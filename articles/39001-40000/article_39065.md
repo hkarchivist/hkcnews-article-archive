@@ -1,0 +1,82 @@
+---
+title: "德學者稱存在「強迫勞動」　遭新疆企業告損害名譽　律師：可缺席判案　拒執行裁決或被禁搭高鐵"
+date: "2021-03-09"
+last_updated: "2021-03-10 10:34:24"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "新疆"
+  - "再教育營"
+  - "鄭國恩"
+url: "https://web.archive.org/web/20210928142241/https://www.hkcnews.com/article/39065/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39094/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39065/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39094/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 德學者稱存在「強迫勞動」　遭新疆企業告損害名譽　律師：可缺席判案　拒執行裁決或被禁搭高鐵
+
+
+{{< video src="https://web.archive.org/web/20210928142241if_/https://www.youtube.com/embed/HxpBrxLL2q8" >}}
+
+
+（報道在片段2:39）
+
+內地媒體《天山網》報道，部分新疆企業和個人正委托律師，計劃起訴德國學者鄭國恩（Adrian Zenz）。報道引述當地民眾稱，鄭國恩涉嫌散布「強迫勞動」等涉疆謠言，令他們聲譽受損、經濟遭受損失。
+
+他們已向新疆地方法院提民事訴訟，要求鄭國恩賠禮道歉，為新疆恢復名譽及賠償損失。有內地律師指，即使鄭國恩缺席聆訊，法庭也可以判案，但難以強迫被告執行裁決：「按照中國的司法體系，那就可以列入失信人名單。有一天如果入境中國國內的話，或者不能坐高鐵、不能坐飛機。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928142241im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/鄭國恩-新疆-再教育營-20210309170202_1153_large.png" alt="">
+<figcaption>德國學者鄭國恩（Adrian Zenz）主張新疆有強迫勞動、大規模絕育，遭新疆企業及民眾起訴。網上圖片</figcaption>
+</figure>
+
+### 德國學者遭新疆企業控告
+
+最早報道消息的是新疆宣傳部旗下的 [《天山網》](https://web.archive.org/web/20210928142241/http://news.ts.cn/system/2021/03/08/036591486.shtml) ，報道沒有透露原告的身份和案件具體證據，但引述民眾指，鄭國恩涉嫌散布「強迫勞動」等涉疆謠言，令他們聲譽受損、遭受經濟損失。他們目前已循民事途徑，向新疆地方法院控告鄭國恩，要求他賠禮道歉、為新疆恢復名譽及賠償損失。
+
+報道指，鄭國恩近年在 [Twitter](https://web.archive.org/web/20210928142241/https://twitter.com/adrianzenz) 上經常發表涉疆言論，炮製虛假學術研究成果，受西方媒體追捧，令部分國家和企業減少甚至停止由新疆進口棉花，當地農民和加工企業受到較大經濟損失。
+
+報道形容，這宗案件反映出中國民眾的法治和跨國維權意識增強，不排除還有更多人控告鄭國恩這類人員或機構。
+
+除此之外，《天山網》亦刊登 [多篇文章](https://web.archive.org/web/20210928142241/http://news.ts.cn/system/2021/03/08/036591489.shtml) ，批評鄭國恩以及美國前國務卿蓬佩奧，稱他們的謊言必將淪為笑柄，他們必將受到歷史審判和清算等。
+
+<figure>
+<img src="https://web.archive.org/web/20210928142241im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/再教育營-鄭國恩-新疆-20210309171351_6ede_large.png" alt="">
+<figcaption>鄭國恩月初發表報告，稱新疆有大規模強迫勞動情況。資料圖片</figcaption>
+</figure>
+
+### 主張新疆存在強迫勞動、大規模絕育
+
+鄭國恩自2016年起多次評論新疆議題，他在2019年分析數據指，新疆再教育營的規模可能達到100萬人。他在去年6月提出，新疆當局大規模強迫維吾爾族女性絕育，形容是「人口滅絕」，研究被多家外國媒體引述。
+
+鄭國恩 [最新一份報告](https://web.archive.org/web/20210928142241/https://jamestown.org/wp-content/uploads/2021/03/Coercive-Labor-and-Forced-Displacement-in-Xinjiangs-Cross-Regional-Labor-Transfers-A-Process-Oriented-Evaluation.pdf?x91436) 在今個月2日發表，他引述內地南開大學2019年12月發布的《新疆和田地區維族勞動力轉移就業扶貧工作報告》，指當局有系統地強迫新疆的維吾爾族搬到其他省份工作。報告形容，新疆正以扶貧為名，減少維吾爾族在新疆的人口密度及同化他們。
+
+鄭國恩接受 [《德國之聲》](https://web.archive.org/web/20210928142241/https://www.dw.com/zh/%E4%B8%93%E8%AE%BF%E4%B8%AD%E5%9B%BD%E9%80%8F%E8%BF%87%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E9%A1%B9%E7%9B%AE%E6%92%95%E8%A3%82%E4%B8%80%E4%B8%AA%E6%B0%91%E6%97%8F/a-56778410) 訪問時指，「南開報告」提供了前所未有的證據，證明中國政府強制維吾爾人勞動。他引述報告曾提出，中國應加大強迫勞動轉移的規模，因為可以替華東地區提供廉價勞動力。
+
+他引述報告指，除了經濟好處，轉移維吾爾族勞動人口，還可以減低他們在新疆的人口密度，以及用漢族生活同化他們。報告中又提到，北京計劃在2022年將30萬漢人安置到新疆南部。
+
+鄭國恩在訪問中指：「中國在新疆控制維吾爾人的策略是由強迫勞動轉移丶防止生育和再教育營所組成的。」他倡議歐盟及國際社會，還有在當地有投資的企業，應該重新審視情況，並有新措施應對這種人道問題。
+
+中國外交部曾數次批評鄭國恩，指他是美國極右翼組織「共產主義受害者紀念基金會」、屬美國情報機關操縱的反華機構骨幹成員。外交部發言人汪文斌批評，鄭國恩以「數據造假」、「無中生有」、「妄加揣測」及「玩弄數字遊戲」來誹謗中國。
+
+官媒《環球時報》去年亦引述消息，指中國正考慮起訴鄭國恩。
+
+<figure>
+<img src="https://web.archive.org/web/20210928142241im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/新疆-囚犯-20191008191500_2bf3_large.jpg" alt="">
+<figcaption>新疆近年被指興建再教育營，及強迫維吾爾族勞動。資料圖片</figcaption>
+</figure>
+
+### 內地律師：難以執行法庭裁決
+
+內地律師王有銀指，根據內地《民法典》，新疆民眾有權在誹謗所在地起訴鄭國恩，法庭亦可依法受理。如果鄭國恩不在國內，法庭可透過直接傳達、或公告傳達，通知被告出庭應訊。若被告缺席，法庭也可以照樣判案。
+
+不過王有銀指，即使法庭裁定鄭國恩敗訴，都難以確保他一定執行裁決。「將來涉及跨國執行，難度肯定會非常大，而且涉及到相關國家之間是否相互承認這個司法裁判。」
+
+他指，目前內地也有不少人拒絕執行法庭判決，按照中國司法體系，他們會被列入失信人名單。「你這個人將來有一天，如果入境中國國內的話，中國的司法機關會按照法律規定，對其拒不履行行為強制履行，或者不能坐高鐵、不能坐飛機，如果國內有財產的話，可能也會代履行。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928142241/https://www.hkcnews.com/aboutus/#subscribe)

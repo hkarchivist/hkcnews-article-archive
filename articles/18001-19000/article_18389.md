@@ -1,0 +1,43 @@
+---
+title: "全球首富貝索斯聲稱遭小報勒索"
+date: "2019-02-08"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "貝索斯"
+  - "國家詢問報"
+url: "https://web.archive.org/web/20210712024051/https://www.hkcnews.com/article/18389/%E8%B2%9D%E7%B4%A2%E6%96%AF-%E5%9C%8B%E5%AE%B6%E8%A9%A2%E5%95%8F%E5%A0%B1-18389/%E5%85%A8%E7%90%83%E9%A6%96%E5%AF%8C%E8%B2%9D%E7%B4%A2%E6%96%AF%E8%81%B2%E7%A8%B1%E9%81%AD%E5%B0%8F%E5%A0%B1%E5%8B%92%E7%B4%A2-"
+original_url: "https://www.hkcnews.com/article/18389/%E8%B2%9D%E7%B4%A2%E6%96%AF-%E5%9C%8B%E5%AE%B6%E8%A9%A2%E5%95%8F%E5%A0%B1-18389/%E5%85%A8%E7%90%83%E9%A6%96%E5%AF%8C%E8%B2%9D%E7%B4%A2%E6%96%AF%E8%81%B2%E7%A8%B1%E9%81%AD%E5%B0%8F%E5%A0%B1%E5%8B%92%E7%B4%A2-"
+---
+
+# 全球首富貝索斯聲稱遭小報勒索
+
+<figure>
+<img src="https://web.archive.org/web/20210712024051im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/02/貝索斯-國家詢問報-20190208190433_2767_large.jpg" alt="">
+<figcaption>貝索斯是亞馬遜創辦人，亦是全球首富。美聯社資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712024051im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/02/國家詢問報-亞馬遜-貝索斯-20190208175844_19cf_large.png" alt="">
+<figcaption>貝索斯在Medium.com的貼文。網上截圖</figcaption>
+</figure>
+
+全球首富、《華盛頓郵報》老闆兼亞馬遜創辦人貝索斯（Jeff Bezos）在Medium.com貼文，指小報《國家詢問報》（National Enquirer）及其母公司全美媒體公司（American Media Inc.），威脅要公開他的「私密照片」，對他「敲詐勒索」。全美媒體公司表示，《國家詢問報》的報道「合法」，該公司正與貝索斯進行「真誠的談判」。
+
+不過，美聯社報道，聯邦檢察官正調查《國家詢問報》對貝索斯婚外情的報道，檢視其母公司全美媒體公司是否違反與檢察官的合作協議。消息人士透露，檢察官正調查全美媒體公司是否違反之前的合作協議；全美媒體公司在協議中承諾，以「不犯法」交換避免因違反選舉財務法而被起訴。
+
+貝索斯上月9日宣布與結婚25年的妻子瑪肯西離婚，同一天，《國家詢問報》聲稱將公開貝索斯與前主播桑契斯（Lauren Sanchez）的短訊和親密照片。貝索斯遂僱用前美國總統列根的安全顧問戴貝克（Gavin de Becker），調查短訊為何流出。在這篇貼文中，貝索斯稱戴貝克與他相識二十年，調查能力超卓。
+
+這篇題為「 [No thank you, Mr. Pecker](https://web.archive.org/web/20210712024051/https://medium.com/@jeffreypbezos/no-thank-you-mr-pecker-146e3922310f) 」貼文，其中所指的帕克（David Pecker），便是全美媒體公司行政總裁。全美媒體公司被指與美國總統特朗普關係密切，特朗普則多次對貝索斯旗下的《華盛頓郵報》的報道表達不滿，貝索斯稱，希望通過戴貝克的調查，判斷「《國家詢問報》大量不尋常行動的動機」。
+
+貝索斯又寫道，「在我公開的全美媒體公司信中，可以見到勒索的細節」，「除非戴貝克和我願意作出不實的公開聲明，稱全美媒體公司的報道並無政治動機或政治勢力操作，否則他們將公開這些私人照片」。他並稱：「假若在我的立場，我不能忍受這種勒索，有多少人能忍受呢？」
+
+貝索斯現年55歲，是亞馬遜創辦人，亦是美國著名報章《華盛頓郵報》最大股東。去年3月，他以1,120億美元財富，在福布斯全球富豪排行榜首次成為首富，力壓次席的微軟創辦人蓋茨。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712024051/https://www.hkcnews.com/aboutus/#subscribe)

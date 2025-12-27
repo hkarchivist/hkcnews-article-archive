@@ -1,0 +1,74 @@
+---
+title: "再見梓樂　連豬紙鶴成長照伴到天國"
+date: "2019-12-13"
+last_updated: "2019-12-13 15:44:58"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "喪禮"
+  - "周梓樂"
+  - "寶福紀念館"
+url: "https://web.archive.org/web/20220625170919/https://www.hkcnews.com/article/25411/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25417/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/25411/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25417/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 再見梓樂　連豬紙鶴成長照伴到天國
+
+22歲香港科技大學計算機科學及工程學系二年級學生周梓樂，上月初在將軍澳尚德邨停車場墮樓，留醫數日後不治。周梓樂昨日於大圍寶福紀念館設靈，數千市民前往致祭，人龍由下午4時許一直排至晚上10時許。周梓樂今早7時大殮，8時出殯，遺體將送往和合石火葬場火化。
+
+
+{{< video src="https://web.archive.org/web/20220625170919if_/https://www.youtube.com/embed/YPaXA7RkhJg" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20220625170919im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/周梓樂-寶福紀念館-喪禮-20191213013500_2e66_large.jpg" alt="">
+<figcaption>寶福紀念館設有指示牌，靈堂內不准拍照。周滿鏗攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220625170919im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/尚德停車場-科大生墮樓-周梓樂-20191109113951_25f3_large.png" alt="">
+<figcaption>周梓樂同學，安息。</figcaption>
+</figure>
+
+昨午4時許，基督教悼念儀式還未正式開始，已有市民在靈堂外排隊。群眾大多身穿黑衣，各自拿著白花、白信封默默排隊。云云面孔中，有仍穿著校服的中學生、有上班族打扮的、有頭髮花白的老人、有一家大小。有人趁排隊的時間，在白信封寫下最後想對周梓樂說的話。入夜後人更多，人龍一直沿著下城門道綿延到山下，走了好幾分鐘才走到龍尾，距離紀念館門口至少數百米。上山的穿梭巴士、的士、私家車來往不停，一度出現車龍。群眾要等上1個多小時才能進入靈堂。
+
+<figure>
+<img src="https://web.archive.org/web/20220625170919im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/周梓樂-喪禮-寶福紀念館-20191213013303_949b_large.jpg" alt="">
+<figcaption>中學生拿著白花，告別梓樂。美聯社圖片</figcaption>
+</figure>
+
+紀念館內的靈堂對開擺放花牌，不少署名「香港市民」、「同路人」、「眾手足」、「同行兒女」。有人在花牌寫著：「主懷安息，願榮光歸香港」，有人向周梓樂承諾：「未走完的路，我們繼續走下去」。紀念館內排隊的位置，可聽到靈堂內播放的音樂，亦可見到靈堂內周梓樂的相片。不少人神情哀傷，有人抿嘴忍淚，眼眶泛紅。
+
+靈堂簡潔素淨，橫匾寫著「主懷安息」，中央擺放了周梓樂的遺照，四周放置人們送來的花牌，包括科大校長史維、科大學生會、科大投球隊等。周梓樂見報的相片，是那張他身穿救生衣、戴頭盔的。遺照上的他一頭清爽短髮，身穿黑衣，微微側身面向鏡頭，年輕白晢的臉龐帶著含蓄的微笑。相片下方放了一個透明十字架，旁邊是堆得滿滿的白花，還有一隻穿黑衣的「連豬」公仔躺在花堆上。周梓樂父母的花牌放在中央，寫著「梓樂愛兒，永遠愛你」。靈堂一角放了一塊板，一隻隻彩色紙鶴堆在板上，是一片素白中的祝福。
+
+靈堂右側的螢幕播著周梓樂的成長照片。有兒時在沙灘玩耍，恣意地平躺在沙灘上；有小時候在泳池，在水中對鏡頭鼓腮嘟嘴。周梓樂似是運動健將，小小的他穿上跆拳道服拍照，又在運動場上得意的拿起頸上的獎牌。中學時期，有他打籃球的英姿，有他與一大班同學搭肩合照的班相。長大後他到處旅遊，在日式寺廟、池塘邊拍照；後來學會在鏡頭前耍酷，在雪地上戴上黑超遙望遠方，或撓起雙手拍照，笑得也比以往含蓄。下一秒返回片頭，寫著「1997 - 2019」，令人心酸。1997，是香港回歸的一年；2019，是香港人不會忘記的一年。
+
+與周梓樂素未謀面的市民，在數十張照片中，看到他22年的人生。而他的最後一頁，還有很多問號。
+
+<figure>
+<img src="https://web.archive.org/web/20220625170919im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/寶福紀念館-周梓樂-喪禮-20191213013333_572c_large.jpg" alt="">
+<figcaption>入夜後，群眾靜靜排隊，送手足最後一程。周滿鏗攝</figcaption>
+</figure>
+
+送別周梓樂的過程短暫。進入靈堂後各人拿著帶來的，或家屬派發的白鮮花，走上前方，在堂官指示下低頭靜默數秒，然後把手上的花放在桌上的白花堆中。在平和安祥的音樂下，親友市民靜靜坐在席上，有人看著周梓樂的照片不禁流淚，不時聽到抽泣聲。不少人走出靈堂時雙眼通紅，有人難掩激動，要用紙巾掩面抹去傷痛淚水。靈堂的座位都面向遺照，左邊未有家屬席，坐最前排者均穿上黑西裝、黑襯衣，他們靜靜望著周梓樂遺照和獻花者。公眾悼念不設瞻仰遺容。
+
+悼念本來在傍晚5時至晚上8時，但由於人龍不絕，一直至晚上10時許人潮才消散。前來的人很多都是普通市民，與周梓樂素未謀面，在微涼的初冬夜晚排上個多小時，只為送手足最後一程。人潮差不多散去之際，有致祭完走出來的人向著紀念館大喊：「再見啦，梓樂！」
+
+周梓樂的家人低調，未有公開說話。吉儀內附有一張小卡，引用聖經箴言：「恨，能挑啟爭端；愛，能遮掩一切過錯。」，又寫道：「感恩得到各人的愛與關懷 ！祈願大家都能活得健康、平安！」還有詩篇：「耶和華必賜力量給祂的百姓。耶和華必賜平安的福給祂的百姓。」
+
+<figure>
+<img src="https://web.archive.org/web/20220625170919im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/寶福紀念館-喪禮-周梓樂-20191213013427_1de4_large.jpg" alt="">
+<figcaption>周梓樂家人致謝，小卡放在吉儀。鄭靖而攝</figcaption>
+</figure>
+
+和周梓樂同齡、22歲的黃先生，晚上到寶福紀念館外派發白絲帶，他準備了約90條，不消一會已派完。他表示，周梓樂離世令他感到愧疚，「好多機會都冇出嚟，希望補償下」、「feel到自己好無力，明知件事有可疑、有不公義，但係咩都做唔到」。黃先生認為，周梓樂事件的真相仍未明，希望政府可給予市民清楚交代。
+
+21歲的Jacky拿著白花到來寶福紀念館送別周梓樂。於他而言，周梓樂是手足，很想送他最後一程。當初知道周梓樂離世時，他先是感到憤怒，認為是警察造成；憤怒過後就是悲傷，「20幾歲大好青年，為咗爭取人應該有嘅自由同權利就冇咗條命，好可惜。」Jacky希望能調查周梓樂的墮樓原因，還公眾真相。他說，為了周梓樂及其他運動中的犧牲者，一定會堅持下去，直至爭取到他及周梓樂都希望得到的訴求為止。
+
+來到寶福紀念館送別周梓樂的Taco，他不認識周梓樂，但認為周的逝世是全香港人的事，因此希望送他最後一程。他想跟周梓樂說：「周同學安息，我們會代你一直行落去，待你在天國見我們香港勝利。煲底相見！」
+
+83歲的吳伯來悼念周梓樂，他有一個姪孫在科大讀書，但他不認識周梓樂。他說，周梓樂22歲逝世，令人悲痛，感嘆年輕人在運動中有很大犧牲。問他有何想跟周梓樂說，吳伯說：「將來我哋喺上面相會！」
+
+
+{{< video src="https://web.archive.org/web/20220625170919if_/https://www.youtube.com/embed/T5xfD968uBw" >}}
+

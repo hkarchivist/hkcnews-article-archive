@@ -1,0 +1,94 @@
+---
+title: "【國安法首案】劉智鵬稱字意千年無改　但指梁天琦2016賦予光時穩定意思同用法"
+date: "2021-07-05"
+last_updated: "2021-07-05 23:10:08"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "梁天琦"
+  - "Edward Leung"
+  - "Leung Tin-kei"
+  - "Edward Leung Tin-kei"
+  - "唐英傑"
+  - "劉智鵬"
+url: "https://web.archive.org/web/20210928063536/https://www.hkcnews.com/article/43085/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43087/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2016%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43085/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43087/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2016%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法首案】劉智鵬稱字意千年無改　但指梁天琦2016賦予光時穩定意思同用法
+
+國安法首案，控方專家證人、嶺南大學歷史系教授劉智鵬今日繼續出庭作供。劉智鵬今午接受辯方盤問，被質疑既然說涉案字詞意涵千年不變，為何倚重於梁天琦2016年的用法。劉回應指，是因為梁天琦於2016年立法會補選當中「將呢八個字擺咗喺好重要嘅語境入面，因此佢呢個語境賦予咗呢八個字相當穩定嘅意思同用法。」被問到是否認為梁天琦就涉案字詞在歷史上的用法，與其理解一樣，劉智鵬斬釘截鐵說：「同我嘅理解一樣，同好多中國人對呢啲字詞嘅理解都一樣。」
+
+在辯方代表、資深大律師郭兆銘盤問期間，曾問到涉案字眼在2021年傳達甚麼樣的訊息。控方一度提出反對，質疑提問範圍聚焦2021年與本案有何關係。郭兆銘隨即反駁指：字詞涵意2000年沒變啊，引來一陣笑聲。
+
+<figure>
+<img src="https://web.archive.org/web/20210928063536im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/劉智鵬-國安法-嶺南大學-20210705223029_65cf_large.jpg" alt="">
+</figure>
+
+案件進入第六日審訊，被告唐英傑在國安法生效首日的2020年7月1日涉嫌駕駛電單車衝向警員，被控煽動他人分裂國家罪、恐怖活動罪，及一項危險駕駛交替控罪。
+
+劉智鵬今午在周天行引導下反駁辯方的專家報告。辯方專家分別是香港大學政治與公共行政學系教授李詠怡，以及中文大學新聞與傳播學院院長李立峯，二人今日亦在席旁聽。
+
+劉智鵬認為，辯方企圖用2019年較後時間的例子，說明不同人士在接收涉案字眼時會有不同演繹，劉直指這是「有缺陷的論證」。他解釋：「好簡單啫，我哋唔可以用後來嘅解釋去斷定以前發生咗嘅歷史，即梁天琦創造呢八個字，有佢喺創造呢八個字時語境指涉嘅意思，我哋唔可以將後來嘅人、唔同嘅人，對呢八個字唔同理解，去斷定梁天琦對呢八個字嘅理解係後人理解咁樣。」
+
+反之，劉智鵬有信心根據其從歷史角度的分析，梁天琦與他對光時的理解一樣。以下是辯方代表、資深大律師郭兆銘盤問期間的節錄：
+
+問：既然你話字眼在現代同過去的用法一樣，點解倚重梁天琦對字眼嘅用法？
+
+答：因為梁天琦喺 2016年立法會補選，將呢八個字擺咗喺好重要嘅語境入面，因此佢呢個語境賦予咗呢八個字相當穩定嘅意思同用法
+
+問：你係話梁天琦所講嘅嘢係確認你歷史角度嘅睇法？
+
+答：我係話梁天琦用嘅呢八個字，係遵從咗約定俗成嘅用法，並且通過佢創作呢八個字嘅語境，進一步確定口號其實同歷史上面相關字詞嘅用法一致
+
+問：你係咪即係話，梁天琦就住呢啲字眼喺歷史上嘅用法，同你嘅理解一樣？
+
+答：同我嘅理解一樣，同好多中國人對呢啲字詞嘅理解都一樣
+
+<figure>
+<img src="https://web.archive.org/web/20210928063536im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/04/梁天琦-20180417174539_1ff0_large.jpg" alt="">
+<figcaption>2016年2月，時任本土民主前線發言人梁天琦。資料圖片</figcaption>
+</figure>
+
+### 劉智鵬：必需理解字詞過去用法　同意辯方也可能正確
+
+劉智鵬供稱，辯方專家用當代語境理解「光時」在社會上被認受的情況，認為是沒有回應到自己提出的歷史角度的考慮。他續形容，「光復」與「革命」兩詞在中國歷史上有源遠流長的使用，必需要知道兩詞幾時開始用、過去在用法的變化，才能較準確知道現在的用法。劉智鵬花了頗長的篇幅（約450字）解釋，主審法官杜麗冰、陳嘉信先後用左手托頭一段時間，亦即托著頂上假髮。
+
+不過，劉智鵬其後在控方盤問下承認，自己用歷史角度出發可能是對的，而辯方專家證人用社會科學及文化研究的角度分析，也有可能是對的。劉智鵬說：「我哋唔可以將今日發生嘅事情，同過去有關嘅事情切斷。」
+
+### 劉智鵬斥辯方解釋「光復」用glory一詞　含糊、無內容
+
+劉智鵬又反駁辯方對「光復」、「革命」字詞的理解，形容「辯方報告對《說文解字》嘅理解其實係唔正確」。劉稱，辯方引用的《元史：陳祖仁傳》正好說明與其報告所提出的「光復」正常用法一致，「即係話呢，自古嘅仁君，即係皇帝，佢哋光復嘅所謂祖宗之業，其實就係指江山、政權、國土，就唔係好似辯方報告用一個字『glory』咁含糊，並且係無內容嘅。」
+
+至於「革命」，劉智鵬重申最早可以追溯去湯武革命（即商周朝代），直到晚清遇上「revolution」這個概念，劉說：「（晚清）中國係好受法國大革命嘅影響，因此係用咗一個古老嘅詞語『革命』去作為revolution嘅翻譯。……有突破性嘅發展，都有人用『革命』來形容，但喺中國近現代嘅使用入面，主要都係政治嘅，譬如辛亥革命、階級革命，甚至乎辯方專家報告都講到文化大革命，都係一個高度政治嘅用法，因此我總結就係話，辯方報告喺呢幾個段落對我報告嘅批評，係唔成立嘅。」
+
+控方周天行引導劉反駁辯方引用的汽水廣告「靜靜地起革命」、美容產品「美肌革命」。劉智鵬說：「革命呢個詞，政治用法排喺第一位，就係推翻政府，然後先有第二個意思，指一個事物好明顯或者好大、程度大規模嘅轉變，當然最重要都係個語境。」他認為不能相信政治的革命與商業的革命有同一意思。
+
+周天行又播放了約10分鐘的片段，顯示不同光復行動的過程，其中一條是由香港自治運動拍攝的影片，兩位主持人在節目中談到「光復旺角，還我奶粉，反走私賊」。劉智鵬看過影片後回應周天行說：「肯定唔係還我奶粉咁簡單。」他續指，光復行動的一個重要訊息，就是香港這個族群與內地的族群不一樣，因此要有一連串的光復行動，香港族群自己保護自己。
+
+<figure>
+<img src="https://web.archive.org/web/20210928063536im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/國安法-嶺南大學-劉智鵬-20210705225838_2a61_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+今天早上的主問環節，劉智鵬供稱，梁天琦在2016年立法會補選所講的「光復香港 時代革命」，以及2019年7月21日出現在中聯辦外的「光時」口號，在語境上是一致的，並與古時的無明顯分別。
+
+劉上周五作供解釋歷史角度怎樣理解「光時」的語境，他由三國時期講起「光復」意指在敵人或異族手上奪回佔領的政權或國土，「革命」甚至可追溯至商周，指推翻或改變政權及社會制度。
+
+在周天行的引導下，透露劉智鵬在專家報告引述梁天琦稱2016年的年初一事件是「起義」，周天行問劉是否知道年初一發生甚麼事，劉形容：「佢指嘅係一般稱為旺角暴亂嘅事。」
+
+控方又播放多段呈堂影片，見到2019年7月21日有示威者在中聯辦外牆噴漆，包括「支聯辦」 和光時，周天行於引導提問將兩者放在一起：「見到有啲人喺中聯辦外牆噴咗啲油，話支聯辦或者光復香港時代革命。以你嘅意見來講，呢啲嘢係代表咗咩？」劉智鵬回應指，寫支聯辦的人，以外國人的立場看待中國及中國政府，因為「支那」一詞過去一段長時間裡被外國人用以形容中國，「結合佢哋塗喺牆上嘅光復香港時代革命，即係呢，示威人士要挑戰中華人民共和國對香港管治嘅權威，甚至係唔接受中華人民共和國對香港嘅管治。」
+
+控方又播放多段有群眾叫喊光時口號的影片，劉智鵬認為口號多次在活動出現，訊息清晰：「首先佢係一個政治口號，伴隨呢個口號一齊叫喊嘅包括：驅逐中共、香港獨立、天滅中共（繙譯員譯作：heaven destory the communist party），仲有一系列毀壞公物嘅活動，最嚴重嘅係焚燒同踐踏國旗，總結而言，光復香港時代革命喺多次活動經常被叫喊，係同呢個驅逐中共、香港獨立有直接關係。」
+
+不過，影片亦都顯示同場群眾有叫喊「香港人加油」、「五大訴求 缺一不可」、「好仔唔當差 當差正仆街」等口號，這些內容卻未有在周天行提問或劉智鵬回應時被提到。
+
+周天行今午經已完成主問，辯方開始盤問，劉智鵬明天將繼續出庭作供。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928063536/https://www.hkcnews.com/aboutus/#subscribe)

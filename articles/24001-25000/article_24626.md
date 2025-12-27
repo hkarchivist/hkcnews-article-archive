@@ -1,0 +1,92 @@
+---
+title: "6記者靜默戴頭盔貼文字　警指示威終止記招　記協：和平表達意見遭滅聲"
+date: "2019-11-05"
+last_updated: "2019-11-05 01:03:17"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+  - "記協"
+  - "香港記者協會"
+  - "記者被捕"
+  - "四點記者會"
+url: "https://web.archive.org/web/20210727001203/https://www.hkcnews.com/article/24626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24631/6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24631/6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 6記者靜默戴頭盔貼文字　警指示威終止記招　記協：和平表達意見遭滅聲
+
+立場新聞特約攝影記者、浸會大學學生記者周日在採訪期間被捕。香港攝影記者協會周一在警方的例行記者會上發起「查警暴、止警謊」靜默行動，香港記者協會呼籲記者響應。《明報》、香港電台、立場新聞、端傳媒、香港獨立媒體、《am730》的6名記者戴上頭盔，分別貼有「查」、「警」、「暴」、「止」、「警」、「謊」六個字。
+
+警方指上述6名記者是在示威，要求他們離開，但不成功。警察公共關係科警司高振邦表示，記者會不是示威場合，6人的行為會剝奪其他傳媒採訪權以及市民得到資訊的權利，但有現場記者反駁指，行動無礙記者會的進行。雙方僵持接近約20分鐘後，警方宣布取消記者會，其後改以Facebook直播警員講話。
+
+有份參與行動的記協執委陳朗昇，對於記者會被取消表示遺憾，不滿和平表達意見被滅聲。他擔心記者被捕情況會越趨嚴重，無法保障市民知情權，故在別無選擇的情況下採取今次行動。
+
+眾新聞沒有派員出席周一的警方記者會。
+
+<figure>
+<img src="https://web.archive.org/web/20210727001203im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/記者會-香港警隊-20191104184842_2382_large.jpg" alt="">
+<figcaption>6名記者分別戴上貼有「查」、「警」、「暴」、「止」、「警」、「謊」六字的頭盔。美聯社圖片</figcaption>
+</figure>
+
+立場新聞特約攝影記者Joey Kwok和浸會大學編委記者鄧澤旻周日在太古城中心，先後被警方拘捕，Joey Kwok被指涉「阻差辦公」，周一下午約4時獲警方無條件釋放。鄧澤旻同樣在下午獲釋。
+
+多個新聞工會及機構 [強烈譴責警方任意拘捕記者](https://web.archive.org/web/20210727001203/https://www.hkcnews.com/article/24621/%E8%AD%A6%E5%AF%9F%E6%9A%B4%E5%8A%9B-%E7%AB%8B%E5%A0%B4%E8%A8%98%E8%80%85-%E6%8B%98%E6%8D%95-24621/%E5%A4%9A%E5%80%8B%E6%96%B0%E8%81%9E%E5%B7%A5%E6%9C%83%E5%8F%8A%E6%A9%9F%E6%A7%8B%E5%BC%B7%E7%83%88%E8%AD%B4%E8%B2%AC%E8%AD%A6%E6%96%B9%E4%BB%BB%E6%84%8F%E6%8B%98%E6%8D%95%E8%A8%98%E8%80%85-%E4%BF%83%E7%89%B9%E9%A6%96%E6%8C%87%E4%BB%A4%E8%AD%A6%E9%9A%8A%E5%81%9C%E6%AD%A2%E6%9A%B4%E5%8A%9B%E9%98%BB%E6%92%93%E6%8E%A1%E8%A8%AA) ，聲明提到政府多番強調絕不容忍暴力，但對於警隊針對記者施行的言語甚至肢體暴力，卻屢屢視而不見。記者被捕的事件，正衝擊着《基本法》保障新聞自由的底線，記協促請特首指令警隊停止暴力阻撓採訪。
+
+攝影記者協會原本呼籲攝影記者，在周一出席警方記者會時，參與「放閃行動」，使用強光閃光燈拍攝；有文字記者會自發坐前排戴上頭盔，頭盔前後都會有文字口號。下午4時記者會開始時，警察公共關係科總警司謝振中、警察公共關係科高級警司江永祥、消防處副消防總長陳慶勇等共6人進場時，坐在第三排分別是《明報》、香港電台、立場新聞、端傳媒、香港獨立媒體和《am730》的6位記者，隨即戴上貼有文字的頭盔，分別是「查」、「警」、「暴」、「止」、「警」、「謊」，6人當時沒有發言、沒有任何行動，而是坐著。
+
+
+{{< video src="https://web.archive.org/web/20210727001203if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F532195504008376%2F&show_text=0&width=560" >}}
+
+
+主持記者會的警察公共關係科警司高振邦見狀隨即表示：「今日我哋警方開記者會，記者會係想讓傳媒同埋市民得到我哋嘅訊息，唔係俾大家做一啲標語或者示威。」高振邦多次要求6名記者除下標語，但6人不為所動，高隨即宣布記者會暫停，台上的警隊高層和陳慶勇離開記者室。
+
+高振邦之後向在場記者說：「如果你哋唔除的話，請你哋離開」，並指示警方的傳媒聯絡隊協助6人離開。有記者表示：「你無權叫記者離開架喎。」警方與現場記者意見爭持，高振邦稱：「咁你一係除咗標語好嗎？因為我哋記者會其實係讓公眾可以得到我哋的資訊，唔係讓大家喺度做啲示威活動，如果你想反映，其實有好多唔同渠道俾你反映意見。」他再讀出6名記者所屬的傳媒機構名稱：「請第3行包括《明報》、香港電台、立場、端、獨立媒體、《am730》6位記者，請你哋離開呢個記者會。」
+
+<figure>
+<img src="https://web.archive.org/web/20210727001203im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/記者會-香港警隊-20191104185131_145d_large.jpg" alt="">
+<figcaption>數名警方傳媒聯絡隊人員（藍背心），要求6名記者離開，期間試圖用手推《明報》記者（灰衣）。美聯社圖片</figcaption>
+</figure>
+
+高振邦又說，記者會是讓傳媒機構得知警方所發布的消息，但有記者反駁指：「咁你哋咪繼續講囉」、「阿Sir可以繼續講嘢架」。數名傳媒聯絡隊人員曾試圖用手推《明報》記者，有記者則表示不要使用暴力。高振邦之後警告：「如果佢哋唔離開，可能會終止記者會架啦。」、「我諗記者唔好同我爭論啦，因為好明顯係示威活動。」高振邦之後指示傳媒聯絡隊離開，繼續口頭要求6名記者離開。有份參與行動的《am730》記者，換上了記協執委兼立場新聞記者陳朗昇。
+
+雙方繼續僵持，有現場記者問道：「其實大家行家有無阻到你（其他記者）？」有記者和應：「沒有」。陳朗昇再問到：「有無阻到鏡頭先？即係6個警官出來大家係影到架嘛？」有人回應他說：「影到，清晰」。高振邦之後與身旁的2位警員耳語。
+
+整個行動持續約20分鐘，高振邦表示，記者會是和市民溝通的重要渠道，不是表達自己意願的平台。他又說，已多番勸喻展示標語的記者要尊重自己專業，其個別不負責任行為對其他傳媒不公道，但情況沒改善，高振邦宣布在無可奈何之下取消記者會，又批評記者不專業行為剝削市民得到資訊的權利。他說畢後，記者室的燈光馬上熄滅。有記者大喊：「而家邊個不負責任？邊個不專業啊？」、「Facebook算啦咁樣」 。
+
+
+{{< video src="https://web.archive.org/web/20210727001203if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F462096734656327%2F&show_text=0&width=560" >}}
+
+
+陳朗昇事後在警察總部外向傳媒表示，行動目的是希望聲援被警方無理拘捕的立場新聞特約記者及浸大編委會記者，故6名記者在服飾上要求警方尊重記者採訪工作，並非示威或抗議。
+
+陳朗昇又說，行動無意傷害公眾知情權，對警方取消記者會表示遺憾。他認為近4個月來，記者已多次成為被針對的對象，包括有記者被警方噴射胡椒噴霧。被問到會否擔心行動導致警方日後更加針對記者，陳朗昇表示，不是沒有擔心，但已經別無選擇，他擔心記者被捕情況會日益嚴重，「拘捕一個記者，就可以拘捕另一個記者，可以一路拘捕落去，市民的知情權係無得保證，希望話俾警方聽唔好咁做。」另一名參與行動的端傳媒記者鄭佩珊表示，行動並非要阻礙警方舉行記者會，質疑警方任意決定取消記者會，是剝削公眾知情權。
+
+陳朗昇認為，記協的能力有限，沒有即時措施阻止警方針對記者，雖然已申請司法覆核，但需要待數個月後案件才會處理。他希望警方立即停止對記者的暴力行為，前線記者面對警方拘捕、胡椒噴霧和槍口的威脅「唔係講笑」，希望管理層和前輩諒解並給予前線記者支持，不要秋後算帳，若傳媒噤聲，自由就無法受保障。
+
+攝記協及記協晚上發聲明，指在記者會戴上貼有標語的頭盔者，是以靜默方式敦促警隊停止針對記者的暴力行為，包括亂噴胡椒水、狂擲催淚彈、扯脫防毒面罩，甚至任意拘捕等。行動期間記者一直安坐沒有站立、沒有叫喊口號，即使後來被無理驅趕，他們仍緊守崗位，堅持等待記者會開始。惟主持記者會的高振邦卻要求展示標語的記者離開，聲言記者會不是示威的地方， 甚至反指記者剝奪其他人的採訪權利。即使在場大部分傳媒均高呼「可以繼續」，警方仍一意孤行取消記者會。
+
+兩會指，今次業界以最和平的無聲方式表達意見，仍遭警方以「滅聲」手段作回應，對此深表遺憾，呼籲傳媒機構切勿對勇於維護新聞業界權益及尊嚴的記者作任何處分。《警察通例》列明，警務人員須以互諒互讓的態度，盡量配合傳媒工作；以及不應妨礙傳媒的攝錄工作。但前線警員在衝突現場的行為已瀕臨失控，經常無差別襲擊記者。工會自6月起曾就有關問題多番約晤警方會面，均被拒諸門外；而6月11日之後，警察公共關係科亦再沒有與前線記者會面，商討有關採訪安排。「高振邦警司今日竟聲稱，記者可透過合適場合和渠道反映意見，實屬無稽之談。警方請緊記，逃避解決不了問題，溝通之門不能永遠緊鎖。」
+
+6名參與行動的記者所屬機構中，香港電台指，參與行動的記者事前並沒知會上司或管理層，會先向記者了解，再內部商討如何處理。 [《am730》發聲明](https://web.archive.org/web/20210727001203/https://www.facebook.com/am730hk/photos/a.127021374003625/2624212900951114/?type=3&theater) ，指該報管理層在行動前並不知情，行動期間亦沒有與涉事記者用電話聯絡及要求停止行動。聲明說，不會向該記者作出懲處，管理層對記者今次短暫參與抗議行動表示理解。
+
+《明報》編輯部晚上發聲明表示，一向要求同事在採訪過程中保持專業，不應參與非採訪行為。《明報》一直知道前線同事在採訪反修例風波時，面對前所未見的困難，備受來自包括警方在內的阻撓及威脅，多名同事亦因此受傷，曾去信警務處要求解釋並改善。《明報》理解前線同事身心均受影響，參與抗議的同事不會受到處分。但強調記者的責任是不放棄任何機會提問，努力尋求真相，因此要求同事採訪時不應參與非採訪行為，亦要求警方執勤時要切實尊重記者的合法採訪權利，確保採訪自由不受干擾。
+
+
+{{< video src="https://web.archive.org/web/20210727001203if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Ficablenews%2Fvideos%2F493084737953446%2F&show_text=0&width=560" >}}
+
+
+警方下午5時半，在Facebook直播，只有謝振中、江永祥、消防處陳慶勇三人出鏡，指上周五（1日）至周日（3日）行動中一共拘捕325人，包括247男78女，年齡介乎14至54歲，涉嫌非法集結、藏有攻擊性武器、藏有工具可作非法用途、刑事毀壞、身處非法集結時使用蒙面物品等。警方在周六使用了378發催淚彈、127發橡膠子彈、7發布袋彈、22發海綿彈；周日使用了45發催淚彈、13發橡膠子彈、4發布袋彈、1發海綿彈。
+
+警方指，周日進入多個商場，因大批暴徒破壞商店和附近港鐵站，稱香港沒有地方「無王管」，商場和屋苑平台不是罪犯避風塘，警察有權進入拘捕。謝振中質疑，為何有人不指責暴徒進入商場破壞，但指責警方進入商場制止。至於太古城中心的傷人案，警方拘捕了3人，包括咬耳的48歲男子涉傷人罪；2名涉執行私刑分別23歲及29歲的男子，涉襲擊致造成身體傷害罪。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727001203/https://www.hkcnews.com/aboutus/#subscribe)

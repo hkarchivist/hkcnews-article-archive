@@ -1,0 +1,85 @@
+---
+title: "挪威疫情（4）—香港疫苗接種計劃，有那些地方不合格？"
+date: "2021-02-28"
+last_updated: "2021-02-28 16:06:25"
+author: "骷髏小姐在挪威"
+category: "眾說"
+tags:
+  - "挪威"
+  - "挪威王國"
+  - "武漢肺炎"
+  - "疫苗接種"
+url: "https://web.archive.org/web/20210804184537/https://www.hkcnews.com/article/38630/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38632/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38630/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38632/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 挪威疫情（4）—香港疫苗接種計劃，有那些地方不合格？
+
+特區政府的疫苗接種計劃，打頭炮的是中國製科興疫苗，先不說科興疫苗有效率低，更匪夷所思的是，特區政府無視國際認證的必須步驟：在國際醫學期刊發表疫苗第三期大規模臨床試驗結果；另外，在特區政府評估科興疫苗的報告中：「四百幾名長者試驗結果，95%可信區間：負166% 至91%」，有評論指出「負數嘅有效率，係指打完疫苗中嘅機率更高 」。難以想像，任何一個負責任的政府，會妄顧有效率和安全，不由令人有合理懷疑，特區政府用香港人做白老鼠，為國家促銷，配合國家的疫苗外交。科興疫苗，不單很多香港市民沒信心，連疫苗接種計劃的執行，和挪威相比，特區政府也十分不濟，究竟那些地方不合格呢？   
+   
+ 挪威自2020年12月27日開始疫苗接種，目前接種的有三種：輝瑞、Moderna和牛津（AstraZeneca）疫苗，接種計劃的執行很細緻，所以，只能從4個比較重要的面向比較兩地的接種計劃執行：
+
+<figure>
+<img src="https://web.archive.org/web/20210804184537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/挪威-Hong%20Kong-疫苗接種-20210228153230_20bd_large.png" alt="">
+</figure>
+
+**(1) 特區政府的接種計劃 欠公開透明**
+
+有關接種計劃的執行，挪威NIPH（Norwegian Institute of Public Health）網頁有詳細說明，而首都Oslo也有45頁的接種行動計劃書，其中甚至列出工作小組和負責人姓名等等，香港呢？2月26日開始接種，特區政府2月18日才倉卒公佈詳情，2月23日才可網上預約，而網頁資料更少得可憐。疫苗接種，是一早預知一定會推行的，但特區政府那麼遲才公開計劃詳情，資訊又那麼少，一個可能是行政效率低，另一個可能是資訊越少越不透明，公眾便難以監察，政府便不用問責。   
+   
+ **(2) 特區政府的接種計劃 不便民**
+
+在挪威，市民不用自行預約，當接種輪到有關優先組別時，政府便會通知屬該組別的市民；而香港市民必先在23日起在網站預約接種時間及地點，長者或有需要人士可到郵局或屋邨辦事處協助辦理。   
+   
+ **(3) 特區政府 沒有提供接種的預計進度**
+
+提供接種疫苗的預計進度，是良好的管治，因為可讓公眾知道，大概甚麼時候會輪到自己接種，還有社會回復正常的可能時間表，令接種計劃有前瞻性。挪威NIPH提供了接種進度的兩個可能情景：中性和樂觀（見附圖1），而影響接種進度快慢的因素有：(1) 疫苗數目：已抵埗的數目，加上已訂購數目及預期抵埗日期；(2) 政府接種的人手；(3) 後勤和物流支援等。
+
+每個政府，包括特區政府應掌握以上資料，從而作接種進度的估算，但特區政府欠奉，無法不令人揣測，特區政府是想迴避監察和問責。   
+   
+ **(4) 公眾可否監察接種是 否有效針對優先接種組別？**
+
+挪威NIPH 更有專頁提供不少持續更新的統計數字供市民查閱，其中包括按性別和年齡區分的接種人數（例子見附圖一） ，有了這些數字，便可和各優先接種組別的人數對比，越接近，即越有效針對優先接種組別。
+
+***附圖1：對不同組別，可期望甚麼時候完成Covid-19的疫苗接種（中性估算）***
+
+<figure>
+<img src="https://web.archive.org/web/20210804184537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/挪威-疫苗接種-20210228153251_6eed_large.png" alt="">
+<figcaption>說明一例：55-64歲組別，預期會在2021年5月中完成接種輝瑞疫苗第一劑。資料來源：網頁（挪威NIPH疫苗接種進度的其中一個可能情景：中性）截圖</figcaption>
+</figure>
+
+在香港，5 個優先接種組別是：   
+ • 第一類：醫療機構人員及參與抗疫工作人員   
+ • 第二類：60 歲或以上人士   
+ • 第三類：安老院舍及殘疾人士院舍院友及員工   
+ • 第四類：維持必要公共服務人員（包括紀律部隊、郵政人員、環境衛生前線人員、處理廢物污水街市潔淨人員等）   
+ • 第五類：為跨境運輸、口岸、港口工作人員
+
+那麼，特區政府會否提供以下數字，讓公眾監察 ？   
+ • 各優先組別的接種數目   
+ • 各優先組別接種不同疫苗的人數等等
+
+***附圖2：首都Oslo至19.02.2021已接種疫苗人數（按性別和年齡區分，Kvinner女，Menn男）***
+
+<figure>
+<img src="https://web.archive.org/web/20210804184537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/疫苗接種-挪威-20210228153259_2343_large.png" alt="">
+<figcaption>資料來源：網頁（挪威NIPH的疫苗接種統計）截圖</figcaption>
+</figure>
+
+如果特區政府不提供這些數字，公眾自然會有很多疑問，例如：疑似不適合60歲或以上接種的科興疫苗，是否最終主要是這個年齡組別接種？又例如三萬Thanks，是否主要接種有效率較高的復必泰疫苗？或甚至不接種等等疑問。不過，在今日的「新香港」，期望讓公眾監察，讓特區政府問責，簡直是緣木求魚了，只能期望盡量紀錄特區政府的劣政，為歷史留下更多真相和事實。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210804184537/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 骷髏小姐在挪威](https://web.archive.org/web/20210804184537im_/https://www.hkcnews.com/uploads/avatars/62c82bf5-71b6-4951-bba8-032b2a012e95.png?410975182)
+
+**博客 | 骷髏小姐在挪威**
+
+【骷髏小姐・骷髏小姐在挪威】當年的背包客，第一次去挪威，便呆了一段歲月，因為驚艷。之後再踏足挪威，一晃多年，有欣慰有嘆息，也有憂愁。愛東逛西逛，愛望天望地望人，用近鏡也用廣角鏡，以香港的風景為底色，說些挪威人挪威事。

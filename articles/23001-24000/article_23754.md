@@ -1,0 +1,71 @@
+---
+title: "【反送中運動】7.28上環暴動案45被告全部撤銷宵禁令　43人不再限制離境"
+date: "2019-09-26"
+last_updated: "2021-05-13 23:18:30"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "西九龍裁判法院"
+  - "728上環衝突"
+url: "https://web.archive.org/web/20211026201803/https://hkcnews.com/article/23754/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD45%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/23754/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD45%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【反送中運動】7.28上環暴動案45被告全部撤銷宵禁令　43人不再限制離境
+
+7.28上環衝突中，44人被控暴動罪，1人被控在公眾地方管有攻擊性武器。案件周三（25日）再提訊，控方以調查需時為由申請再將案件押後，裁判官決定將其中2宗暴動案件押後至11月19日；1宗暴動案件押後至10月29日，而在公眾地方管有攻擊性武器一案則押後至10月24日。45名被告獲准繼續保釋，全部人獲撤銷宵禁令，43人獲撤銷離境限制。
+
+案件原訂下午2時半在西九龍裁判法院聆訊，網上有人號召到場聲援。下午2時，離正式開庭還有半小時，法院一樓大堂已有約2百人排隊旁聽，由在場職員逐一派籌。法庭外的延伸座位被佔滿，部分旁聽要站在座位後方。在庭內，30多位律師及法庭人員匆忙地走來走去，一時翻閱手上的文件，一時傳遞各種黑色硬皮夾，又忙著與身旁的律師商討。法庭中央的三排庭位共20多個座位全被坐滿，甫開始的時候，10多名律師甚至要在牆邊站著等待。律師多，因為被告人數眾多。45個被告分別坐在法庭兩側，法庭保安忙著確認座位順序：「你係D10？」「唔係，D3」，又逐一核對身份證，講解一旦獲保釋後的文件安排；法庭書記在庭上找律師代表：「有冇XXX代表？」人人都忙到一頭煙。
+
+到庭的被告大部分都穿著正式，男的恤衫西褲，女的斯文打扮，亦有部分人身穿黑色或淨色T恤。有人獲保安指示座位後，碰見旁邊熟悉的面孔，即時露出笑容打招呼，然後閒談一番。等候開庭期間，有人繼續與旁邊的人聊天，有人低頭看手機，有人探頭張望公眾席，氣氛輕鬆。反而公眾席氣氛較為安靜，要麼靜靜看著眼前忙碌的眾人，要麼探頭看看自己親友所在位置，偶爾才傳來交談的聲音。
+
+至約3時10分、較原訂時間遲了約40分鐘才正式開庭。45名被告分成4案處理，分別為：
+
+●3人被控於德輔道西近西邊街參與暴動（即情侶及16歲女生），
+
+●24人被控於德輔道西近皇后街參與暴動，
+
+●17人被控於上環干諾道中及文華里交界參與暴動，以及
+
+●24歲內地男學生被控於上環信德中心地下的公眾地方被發現管有攻擊性武器。
+
+其中兩宗案件的被告分別有24人及17人，人數眾多，被告要分成2排站在犯人欄前方。當中不少為年輕面孔，穿起恤衫、打扮正式的眾人，默默地將雙手交疊在身前或身後，有人昂首、神情自若地直望法官，有人低頭看著地下，有人不時向公眾席張望。這次提訊主要處理保釋條件，當聽到自己獲撤銷保釋條件限制時，不少人都鬆一口氣，或與身旁的人交頭接耳，有人在聽到身後有人成功獲撤後，伸手到後方握手並報以微笑。
+
+<figure>
+<img src="https://web.archive.org/web/20211026201803im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/警方拘捕-728上環衝突-20190729011347_200e_large.jpg" alt="">
+<figcaption>7.28上環衝突中警方拘捕49人，其後極速起訴45人，於7月31日首次提堂。黃思銘攝</figcaption>
+</figure>
+
+控方就前3宗案件，均以需時進一步調查及索取法律意見，申請押後聆訊。就3人被控於德輔道西近西邊街參與暴動，控方申請押後8星期，主任裁判官羅德泉宣佈於11月19日聆訊。代表湯偉雄和杜依蘭的辯方律師潘熙反對將案件押後，指警方在7月28日作出拘捕，30日批准被告保釋，但31日卻隨即起訴提堂，當時已對警方未準備好答辯仍立即落案起訴感不滿，法庭給予控方空間延後8星期，如今控方又再申請押後8星期。他又指，控方對3名被告的指控籠統，唯一的指控只是說當事人當時在現場，沒有提及其作出何種行為足以提出暴動指控。
+
+裁判官問控方再申請押後的原因時，控方表示是因為案件涉及較多證據，包括非常多的錄像片段，如閉路電視、互聯網片段等，合共超過30小時的片段，現今仍未審視完畢，而且證人證供亦較多，涉及10人以內的警員證人。裁判官追問為何兩個多月仍未審視完30多小時的片段，控方律師僅稱因為片段數量多及涉及不同種類，表示會盡快完成審視，並承諾下次可以開始聆訊。裁判官最後決定將案件押後於11月19日聆訊。
+
+就24人被控於德輔道西近皇后街參與暴動的案件，控方同樣申請押後8星期，案件同於11月19日進行聆訊。控方指，案件涉及200多小時錄影片段，50多名警員證人要落口供。控方在庭上提交一份列表，指是在審視證據後，在各個電視台片段中見到部分人站在前線，片段亦拍到當時現場出現暴力行為。部分辯方律師以控方仍未能提出實質指控為由提出反對。
+
+就17人被控於上環干諾道中及文華里交界參與暴動案件，控方則申請押後4星期，裁判官同意於10月29日進行聆訊。控方表示此案涉及1百多小時片要審視，另要取24份證人口供，部分證物要檢驗。控方同時提交一份警方審視片段後的扼要，當中提及被告在當時涉及非法集結。
+
+另外，多名辯方代表律師均指，曾去信控方要求索取文件，如警方口供、審視過的錄像片段，並提供具體指控，獲回覆拒絕，只稱準備好答辯時會提供，如今辯方只收到一份不完整的指控書。控方回應指會在準備好答辯時，將文件給予辯方。
+
+審訊由下午3時多開始，一直至晚上8時才結束，中間因為要準備文件及雙方律師商討等原因休庭3次。大部分的時間，用於討論保釋條件中是否取消宵禁令及離港限制。控方表示不反對以原有條件保釋，即以現金1千元、居住在報稱地址、定期向警署報到、不準離港及須遵守宵禁令。控方指案件罪行嚴重，尤其在於上環干諾道中及文華里交界參與暴動案件，使用燃燒彈這類涉及火的暴動，刑期可能較重，認為被告有潛逃風險，而且確實有一名被告在獲警方保釋後潛逃，故反對撤銷離港限制；而且6月份至今的公眾活動經常延續到深宵，活動與本案類似，有必要確保被告不會干犯類似罪行。
+
+辯方律師大部分均要求撤銷宵禁令及離港限制，主要原因包括案件已押後8星期後，控方仍沒有作出實質指控，亦未能出示任何有說服力的證據， 指控薄弱；撤銷宵禁令及離港限制影響被告人身自由等。辯方律師逐個講述每個被告的個人背景，陳述宵禁如何對影響其工作或學業，直至中途，有辯方律師提出多名被告都站了一個半小時，建議休庭，以與控方商討是否就撤銷限制提出反對。裁判官宣佈休庭後，不少已被撤銷限制的被告均表示得開心，年紀較大的湯偉雄走向眾人前，跟一眾男生擁抱。休庭後，辯方指經商討後，控方願意放棄宵禁令，但就離港限制則未能達共識，故裁判官表示要繼續按每人情況處理。至中途，控方律師表示務實提出，考慮案件情況及掌握資料後撤回反對，最後除了2人沒有申請撤銷離港限制外，其餘被告都獲撤銷離港限制。
+
+裁判官曾解釋指，就干諾道中及文華里交界案件，涉及火的暴動案件的確是嚴重事件，但制定保釋條件要考慮的是個別人士在案件中的作為，而控方就案件新提供的資料，只表示被告涉及非法集結，沒有提及有何行為構成暴動；而且一人潛逃，不等如其他人就應該接受同樣嚴苛的條件。
+
+而涉嫌公眾地方管有攻擊性武器一案，則押後至10月24日，被告陳子謀獲撤銷宵禁令，但繼續保留離港限制。
+
+散庭的時候已是晚上8時，庭內公眾席上不少人已散去，但庭外仍有3、40人等候。在法院樓下，數十人手持雨傘，為各被告遮擋容貌，護送他們離去，並一直高呼口號。
+
+<figure>
+<img src="https://web.archive.org/web/20211026201803im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/728上環衝突-暴動罪-20190926020302_2ce5_large.jpg" alt="">
+<figcaption>數十人在法院樓下等候，用雨傘為各被告遮擋容貌，護送他們離去。鄭靖而攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026201803/https://hkcnews.com/aboutus/#subscribe)

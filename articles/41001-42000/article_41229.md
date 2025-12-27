@@ -1,0 +1,56 @@
+---
+title: "【區議員宣誓二讀在即】再多5名區議員請辭 至少37區議席將被懸空"
+date: "2021-05-11"
+last_updated: "2021-05-11 23:04:25"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "辭職"
+  - "區議員宣誓"
+url: "https://web.archive.org/web/20210726134112/https://www.hkcnews.com/article/41229/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD37%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41229/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD37%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【區議員宣誓二讀在即】再多5名區議員請辭 至少37區議席將被懸空
+
+要求區議員宣誓的《2021年公職（參選及任職）（雜項修訂）條例草案》明日恢復二讀辯論，最快即日獲通過。區議員辭職潮一浪接一浪，大埔區議員林名溢、北區區議員林淑菁、黃大仙區議員劉珈汶、屯門區議員馬旗以及正被還柙的屯門區議員張可森、今日均在社交媒體發文宣佈將會辭去區議員的職務，自3月以來，總共有23名民主派區議員因不同理由辭職。
+
+眾新聞統計，截止今日(5月11日)晚上9時，共有37區的區議員議席懸空，當中包括22名區議員辭任、7名區議員已或將被DQ、3名現正還柙的區議員、3名拒絕宣誓，以及1名已離開香港的區議員。
+
+<figure>
+<img src="https://web.archive.org/web/20210726134112im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/區議員-區議員宣誓-20210511230035_1e04_large.png" alt="">
+</figure>
+
+大埔區議員林名溢今日在Facebook表示已辭去大埔區議員一職，今日是在任的最後一日，他表示，自從他上任起，無論大小事也跟進，又指不少街坊向他求助，沒有足夠的休息時間，身體狀況大不如前，故無法繼續勝任區議員一職。他又提到，過去一年來愈來愈發現區議員無權力，很多理所當然的事「講到口臭」，都被政府部門敷衍或卸責，完全沒有更改政策的餘地，意識到區議員只不過是「打雜」，替政府的錯誤政策執手尾，同時又看着同路人被打壓卻無能為力，漸感心灰意冷。
+
+黃大仙橫頭磡區議員劉珈汶則在Facebook發文指，不欲完成無理的宣誓要求，已向公民黨提出退黨申請，並計劃於最後一刻辭任黃大仙區議員。劉在貼文中表示，宣誓修訂條例通過在即，認為作為區議員可做之事少之又少，不欲完成無理的宣誓要求，在「日漸敗壞」的區議會內委曲求全。她又稱，不希望令她的支持者活在謊言之下，成全政權欲美化制度的「幻想」。她對無法履行競選承諾，完成4年任期，表示無奈、愧疚和不捨，向選民致歉。對選擇留下的議員，她表示敬意，又稱在任至今的497日，是她一生中最光榮的時刻。她又感謝黨團對她栽培及照顧，指縱然今天分道揚鑣，但相信各自會不停摸索新方向，亦會有重聚的機會。
+
+而新民主同盟的林淑菁也表示不會宣誓，並宣佈已辭去北區欣盛區議員職務。她在帖文中指，對於能獲得選民的信任，當選區議員，為社區爭取公義，她深感榮幸，但因應香港的言論自由日漸受損，紅線愈收愈緊，發聲要擔心自身安全，作為三名子女的母親，她選擇了家庭，決定不會宣誓並辭任區議員，希望市民原諒。她補充，對未能完成4年任期，她向每一位對投票給她的選民致以萬分歉意。
+
+另外，民主黨屯門掃管笏區議員馬旗，亦宣佈放棄區議員職務， 他表示香港政情急速劇變，要宣誓擁護政府施政，「非馬旗所能認同！」他強調寧願放棄職務，也要以公民一份子為香港民主自由努力，故決定辭職明志；而正被還柙的屯門新墟區議員張可森，則透過「屯門社區網絡」的Facebook指，早前已向民政事務總署署長謝小華遞信，辭任屯門區區議員一職，並於今日生效。
+
+<figure>
+<img src="https://web.archive.org/web/20210726134112im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/林進-天水連線-20210121215046_240b_large.jpg" alt="">
+<figcaption>正當區議員辭職潮一浪接一浪時，林進選擇宣誓，堅守議會到最後一刻。   資料圖片</figcaption>
+</figure>
+
+宣誓在即，看似成為不少民主派議員萌生請辭的念頭，但仍有人決定堅守傾向宣誓，堅守議會最後一刻。元朗瑞華選區區議員林進今日在Facebook表示自己將會宣誓，他指自己曾想過一走了之、辭職明志，尤其是經歷了民主派初選案後，當時曾想過「點解仲要同佢玩呢個政治遊戲」，但當回到社區，看到不少市民仍然堅持，例如一位天水圍街坊出席每一次遊行示威、穿梭各個法庭，為的就是與手足講聲「撐住」；有一名小學生與他一起在街站派傳單；「儘管前路有多黑暗，仲有一班人堅持着，那我又怎能輕易放棄？」。
+
+林進強調，若他選擇不辭職，相信有機會被秋後算帳，預計會被追討薪津到破產、甚或要入獄，但他仍想珍惜每一個令社區、令香港變好的可能性，他直言「決定宣誓是一回事，能否留下又是一回事，會否被DQ又是另一回事。但未來的事交給未來處理吧。」。
+
+
+| 辭職 | 元朗區議員王百羽、深水埗區議員周琬雯、大埔區議員胡耀昌、大埔區議員連桷樟、葵青區議員尹兆堅、東區區議員徐子見、元朗區議員杜嘉倫、西貢區議員黎銘澤、觀塘區議員畢東尼、觀塘區議員李嘉達、荃灣區議員譚凱邦、北區區議員袁浩倫、中西區區議員吳兆康、中西區區議員梁晃維、西貢區議員范國威、東區區議員黃宜、北區區議員林卓廷、大埔區議員林名溢、黃大仙區議員劉珈汶、北區議員林淑菁、屯門區議員馬旗、屯門區議員張可森 |
+| --- | --- |
+| 已/將DQ | 東區區議員鄭達鴻、南區區議員袁嘉蔚、觀塘區議員梁凱晴、荃灣區議員岑敖暉、觀塘區議員洪駿軒、九龍城區議員李軒朗、葵青區議員梁耀忠 |
+| 還柙 | 東區區議員趙家賢、沙田區議員岑子杰、元朗區議員伍健偉 |
+| 拒絕宣誓 | 中西區區議員何致宏、屯門區議員李家偉、沙田區議員黃文萱 |
+| 已離港 | 中西區區議員許智峯 |
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726134112/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,56 @@
+---
+title: "【十一前夕】聶德權發信警告公務員切忌參與公眾遊行　46人被捕已停職　強調零容忍"
+date: "2020-09-30"
+last_updated: "2020-09-30 18:01:34"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "公務員"
+  - "聶德權"
+  - "十一遊行"
+url: "https://web.archive.org/web/20210727061208/https://www.hkcnews.com/article/34376/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34386/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34376/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34386/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【十一前夕】聶德權發信警告公務員切忌參與公眾遊行　46人被捕已停職　強調零容忍
+
+**十一前夕，政府部門連環發稿「提醒」市民勿上街。公務員事務局局長聶德權向全體公務員發信，提及截至九月底，有46名公務員因涉嫌參與非法公眾活動被捕，現時正接受警方調查或正被起訴，全部已被停職。**
+
+<figure>
+<img src="https://web.archive.org/web/20210727061208im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/公務員-聶德權-20200930160646_5e9d_large.jpg" alt="">
+</figure>
+
+聶德權在信中，借「疫情」未斷尾或會有所反覆，防疫意識不能鬆懈，帶出「切忌參與任何可能違反禁止群組聚集相關規例的活動」。信中最長的段落直接指明，警方已反對十月一日舉行的公眾遊行，活動屬未經批准集結，若參與其中可能觸犯法例。
+
+他稱，政府極為重視公務員的品行操守，對違法公務員是零容忍，亦絕不姑息。他形容網上有人利用扭曲不實的信息，鼓勵市民參與，希望公務員能明辨是非、奉公守法，遵守《公務員守則》訂定的操守準則。
+
+他又說過去一年多，香港經歷「暴亂」和「疫情」衝擊，好不容易迎來喘息空間，期望公務員團隊繼續支持特區政府，維護社會安寧。
+
+### 保安局：有人在網上煽動「攻擊警署」
+
+保安局發言人中午發稿，稱留意到有人繼續在網上煽動他人十月一日，在香港各區參與未經批准集結，更鼓吹使用暴力，包括攻擊警署、投擲汽油彈、非法堵路等，公然挑戰法治，嚴重破壞公眾安寧和社會秩序。不過，稿中未有提及上述說法的證據。
+
+保安局強調，參與未經批准集結屬違法行為，最高可判處監禁五年；觸犯暴動罪，最高可判處監禁十年；傷害他人身體、管有或使用汽油彈、縱火等嚴重罪行，都可判處長期監禁。局方又說，市民不應參與任何未經批准集結或受禁的羣組聚集，指警方絕不容忍任何違法及暴力行為，會嚴正執法，確保社會安寧、公共安全。
+
+### 五人涉煽惑被捕　警：宣揚「鋸頸、鎅頸」攻擊警
+
+另外，警方傍晚公布，拘捕兩名男子涉嫌煽惑他人意圖造成身體嚴重傷害而傷人、煽惑他人參與未經批准的集結，二人分別為20歲和30歲男子，警方檢走三部電話和兩部電腦。網絡安全及科技罪案調查科總督察范俊業指出，留意到網上有些發文，包括在連登、Telegram、Facebook的言論，宣揚致命的方法攻擊警員，甚至殺害警員，包括如何「鋸頸、鎅頸」等行為。他說尊重市民集會自由，但又說自由和權利不是絕對。
+
+警方昨日亦公布，拘捕三名男子涉嫌在網上煽動十月一日非法集結、襲警及堵路。被捕人士年齡介乎19至30歲，其中兩名19歲男子為學生，涉嫌煽惑他人縱火、煽惑他人造成公眾妨擾、煽惑他人非法集結。網絡安全及科技罪案調查科總督察戴子斌表示，被捕人士在網上討論區及通訊應用程式發放訊息，內容包括「火魔」及「磚頭」等，鼓吹他人在十月一日參與違法行動，包括縱火及襲警。
+
+警方反對民陣申請十月一日在港島遊行，上訴亦被駁回。民陣召集人岑子杰斥「抗疫成為林鄭政治打壓的最好工具」，呼籲港人在十一當日必須小心，因根據以往經驗，警方會「濫用599G」，任何人在街上都會有危險。岑說：「縱然每次（申請）都係失敗，但每次都證明緊香港的人權正在倒退。」
+
+<figure>
+<img src="https://web.archive.org/web/20210727061208im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/十一遊行-20200930161855_29ea_large.jpg" alt="">
+<figcaption>網上有網民呼籲明日十一下午二時，由銅鑼灣東角道遊行至灣仔菲林明道。網上圖片</figcaption>
+</figure>
+
+不過，在網上討論區亦有網民呼籲「十一大遊行 光復香港 時代革命」下午二時由銅鑼灣東角道起步，遊行至灣仔菲林明道。網民稱已經知道香港不會有真正的代議士，認為「還覺得可以靠其他人代自己抗爭？唯有靠我哋自己走出嚟。」但也有網民認為「吹雞但咩部署提示都無，似送頭多」、「街頭抗爭之路已經完結」等。另有網民認為，其實可以行街、光顧黃店。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727061208/https://www.hkcnews.com/aboutus/#subscribe)

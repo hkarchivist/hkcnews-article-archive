@@ -1,0 +1,50 @@
+---
+title: "港鐵新動力逾百人投票通過罷工　促與資方談判六大訴求"
+date: "2020-02-08"
+last_updated: "2020-02-08 00:37:51"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "港鐵"
+  - "港 鐵 公司"
+  - "mtr"
+  - "地鐵"
+  - "香港地鐵"
+  - "mtr hong kong"
+  - "hong kong mtr"
+  - "mtr hk"
+  - "香港 地铁"
+  - "hk mtr"
+  - "Mass Transit Railway"
+  - "罷工"
+  - "工業行動"
+url: "https://web.archive.org/web/20210724214041/https://www.hkcnews.com/article/26736/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26738/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/26736/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26738/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港鐵新動力逾百人投票通過罷工　促與資方談判六大訴求
+
+醫護界一連五日發起罷工，雖未成功爭取全面封關，但換來局部封關及強制檢疫新措施，鐵路運輪界正醞釀「接力」罷工。擁有750名會員的港鐵新動力，周五舉行特別會員大會，在171人投票之下，以119票贊成通過發動罷工，要求港鐵公司發公開信，促請政府立即封關，堵截武漢肺炎源頭，並成立專案小組確保員工具備足夠防疫裝備等六大訴求。工會將草擬聲明給有意參與罷工的會員簽署，統計人數後，會與公司商討，一旦談判破裂才會發動罷工。港鐵有約3萬員工，港鐵新動力會員人數現只佔2.5%。
+
+<figure>
+<img src="https://web.archive.org/web/20210724214041im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/Mass%20Transit%20Railway-20200208000008_2f81_large.jpg" alt="">
+<figcaption>工會早前到港鐵總部提交請願信，要求管理層加強保障員工安全。港鐵新動力圖片</figcaption>
+</figure>
+
+港鐵新動力去年11月成立，為港鐵第八個工會，也是第四大工會。工會早前向會員進行問卷調查，了解會員對工業行動的意見。收回的283份有效問卷顯示，若公司「未能提供安全的工作環境給員工」、「未能回應聯署信的內容」以及「在社會事件的取態」，都是參與工業行動的三大因素，更有96%受訪者表明支持工業行動。至於不會參與行動的原因，就有近一半人指因擔心公司以裁員以外的方式報復。在工會保障的合法行動當中，最多人選擇的行動為「拒絕任何超時的加班工作」。若工會發動工業行動，有37%受訪者表明願意無限期響應，直至公司答應為止。
+
+在昨舉行的特別會員大會當中，出席會員需投票表決工會發起工業行動的議案，結果有119票贊成罷工，46票贊成按章工作，4票不贊成任何工業行動，2張廢票。根據港鐵新動力工會章程，若經出席並構成法定人數，而有表決權會員多數人贊成通過的決議，即屬有效。而章程的法定人數，為不少於全體有表決權會員的五分之一或50名，並以較低者為準。換言之，發動罷工的議案已獲得通過。
+
+工會主席陳凱暉提出六大訴求，1）希望港鐵公司拒做病毒的運輸鏈，發出正式公開信給政府，促請政府堵截源頭，立即封關。2）成立專案小組，並確保有工會成員加入，小責到各部門調查、監督、調配及統籌，確保各部門均有足夠的防疫裝備，並要每星期公開相關數據，以確保所有部門同事都有適切和足夠的防疫保護。
+
+3）公開口罩的合格使用等相關醫療報告，公開現時清洗及更換列車冷氣過濾網報告和品質報告並要涵蓋重鐵、輕鐵、巴士及工程車，以釋除同事的疑慮。4）承認監管外判商不力，以至車廂和車站未達令人滿意的標準，並要公開為行政失當而道歉。5）承諾改善工會的職能，不應與現時聯席協商會（JCC）及員工評議會（SCC）一樣，只就員工工作發言。6）承認公司處理應對不足，責斥不同部門重新檢視在家工作是否切實執行。
+
+有出席的工會成員指出，港鐵公司現在聲稱工作環境安全，但怎樣保證，「現在講緊病毒，昨天大埔又暈低一個！」也有會員詢問工會，對參與工業行動的會員有何保障，有人建議會不會先由按章工作開始，稱許多同事都不知道工業行動的內容：「公司同事都不認同怎可？」陳凱暉說，會建議港鐵主動向員工和公眾，公開解釋網傳車站內暈倒的個案，工會亦有義務法律顧問。工會將草擬罷工聲明，統計簽署人數後，再與公司商討，談判破裂後，再有罷工時間表，承認都要視乎人數，才能有影響力。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724214041/https://www.hkcnews.com/aboutus/#subscribe)

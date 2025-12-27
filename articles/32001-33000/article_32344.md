@@ -1,0 +1,70 @@
+---
+title: "【再多8人收選舉主任信】社民連岑子杰區議會動議反國歌法遭質疑　 民協何啟明被問五大訴求"
+date: "2020-07-27"
+last_updated: "2020-07-28 19:38:27"
+author: "實習記者鄭啟智"
+category: "眾聞"
+tags:
+  - "何啟明"
+  - "選舉主任"
+  - "岑子杰"
+url: "https://web.archive.org/web/20220123091505/https://www.hkcnews.com/article/32344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【再多8人收選舉主任信】社民連岑子杰區議會動議反國歌法遭質疑　 民協何啟明被問五大訴求
+
+選舉主任今日再向至少8名民主派參選人發信，查問政治立場，包括：公民黨譚文豪、林瑞華；社民連岑子杰；民協何啟明；熱血公民鄭松泰；人民力量陳志全；參選超級區議會的岑敖暉；以及參選批發及零售界的張秀賢。截至今日（27日），在已報名參選的民主派當中，至少20人接獲選舉主任來信。
+
+選舉主任提出的問題內容大致與早前一樣，共可分為四大類，包括：請求美國及外國制裁；否決預算案及政府議案；反對／阻撓國安法；支持港獨／自決。不過，社民連岑子杰被問到，他曾於沙田區議會提出反對國歌法的動議，被質疑不符合擁護《基本法》和香港特區的要求。熱血公民鄭松泰則被問及，他曾因倒插國旗而被判侮辱國旗及區旗罪成，選舉主任質疑其言行無意效忠基本法。
+
+出選九龍西的岑子杰，除了被選舉主任問及是否原則上反對港區國安法；反對香港履行維護國家安全的憲制責任；以及當選後會否否決財政預算案和所有政府議案。選舉主任特別引述他曾於今年5月，在沙田區議會動議反對國歌法，質疑此舉代表他「無意真正及忠誠地接受和履行擁護《基本法》及效忠香港特區的承諾」。
+
+同樣參選九龍西的民協何啟明，亦收到選舉主任的來信。信中指他曾參與反國安法的聯署，查問他是否原則上反對港區國安法，以及反對香港履行維護國家安全的憲制責任。選舉主任又詢問，是否除非特區政府回應五大訴求，否則他會否決財政預算案和所有政府議案。
+
+參選九龍東的公民黨譚文豪，在信中被指曾到訪美國，討論當時已通過的《香港人權及民主法案2019》。選舉主任詢問，他是否有意繼續請求美國和其他外國政府，對香港落實制裁措施；以及此舉怎樣符合擁護《基本法》及效忠特區的實質要求。選舉主任又引述公民黨曾公開表示會否決財政預算案和所有政府議案，查問此舉怎樣符合擁護《基本法》及效忠特區。   
+
+
+<figure>
+<img src="https://web.archive.org/web/20220123091505im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/民主派初選-岑子杰-20200711233837_1234_large.jpg" alt="">
+<figcaption>社民連岑子杰被選舉主任質疑，在區議會提出反對國歌法動議不符合擁護《基本法》規定。鄭啟智攝</figcaption>
+</figure>
+
+至於周日接獲選舉主任來信的黃之鋒，已作出28點 [詳盡答覆](https://web.archive.org/web/20220123091505/https://www.facebook.com/joshuawongchifung/posts/3185147718244381?__tn__=K-R) 。他在社交網站表示，有感撰寫回信的過程，似是「被國安公署邀約錄取書面供詞」，又不排除這份答辯文件，日後將會成為國安審查的關鍵。他又認為，選舉主任似乎是要為他羅織違反《國安法》的罪名，多於核實其參選資格。
+
+黃之鋒在回信中表明，不再推動「民主自決」的主張，並指香港眾志早於今年1月公開宣布停止推動「民主自決」，其後亦已解散，因此他不可能再推動「民主自決」的主張。
+
+他又簡短地以「否」和「沒有」，表明無意繼續請求美國和其他外國政府，對香港實施制裁。對於選舉主任指，他參選目的是要借助立法會議員的身分，方便推動外國對中港施加壓力。黃之鋒重申，他沒有能力和意圖這樣做，又指其「國際戰線」包括但不限於「促進世界和平」。他在信中又指多名建制派，包括民建聯李慧琼，亦曾多次到訪外國。
+
+黃之鋒指，他反對現行國安法，但不反對香港有維護國家安全的憲制責任。他又表示，《基本法》所容許立法會議員否決財政預算案和其他政府議案，他當選後會按《基本法》、立法會條例、議事規則等規定履行職務。
+
+<figure>
+<img src="https://web.archive.org/web/20220123091505im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/2020立法會選舉-Joshua%20Wong-20200720170320_1b5e_large.jpg" alt="">
+<figcaption>黃之鋒指他提及的「國際戰線」，包括但不限於「促進世界和平」。黃之鋒Facebook照片</figcaption>
+</figure>
+
+**眾新聞整理選舉主任今日向至少8名民主派提出的四大類問題：**
+
+**1. 請求美國及外國制裁（收到問題：譚文豪、林瑞華、張秀賢、岑敖暉）**
+
+選舉主任詢問參選人，是否仍有意繼續請求美國和其他外國政府，對香港實施制裁；以及此舉怎樣符合擁護《基本法》及效忠特區的實質要求。
+
+**2. 否決預算案及政府議案（收到問題：譚文豪、林瑞華、何啟明、岑子杰、張秀賢、岑敖暉、陳志全）**
+
+選舉主任指參選人曾表明否決所有政府議案、撥款，或財政預算案，逼使政府回應五大訴求，怎樣符合擁護《基本法》及保證效忠特區要求的實質要求？
+
+**3. 反對／阻撓國安法（收到問題：岑子杰、何啟明、張秀賢、岑敖暉）**
+
+選舉主任指參選人公開表示反對港版國安法，詢問是否原則上反對全國人大通過及納入香港實施的港區國安法，以及是否反對香港特區維護國家安全的憲制責任？」
+
+**4. 支持港獨／自決（收到問題：岑敖暉）**
+
+選舉主任指，他今年2月底曾在社交網站展示含有「光復香港，時代革命」字眼的圖片，詢問這口號是否有拒絕接受中國對香港行使主權、主張香港由中國分離出去或改變香港法律地位等含意。
+
+***反對國歌法（收到問題：岑子杰）**
+
+選舉主任指岑子杰曾於沙田區議會動議反對國歌法，質疑此舉代表他「無意真正及忠誠地接受和履行擁護《基本法》及效忠香港特區的承諾」。
+
+***倒插國旗和區旗（收到問題：鄭松泰）**
+
+選舉主任問及，他曾因倒插國旗而被判侮辱國旗及區旗罪成，質疑其言行無意效忠基本法。

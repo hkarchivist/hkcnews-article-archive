@@ -1,0 +1,46 @@
+---
+title: "台「漢光演習」展開　強化三軍聯合火力打擊"
+date: "2020-07-13"
+last_updated: "2020-07-13 18:14:22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "漢光演習"
+url: "https://web.archive.org/web/20210925123932/https://www.hkcnews.com/article/31897/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31907/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31897/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31907/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 台「漢光演習」展開　強化三軍聯合火力打擊
+
+<figure>
+<img src="https://web.archive.org/web/20210925123932im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/軍事演習-台灣-20200713144900_121f_large.png" alt="">
+<figcaption>台灣空軍戰機進行戰備轉場任務。軍聞社網頁</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210925123932im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/軍事演習-台灣-20200713144920_21cf_large.png" alt="">
+<figcaption>防化兵進行除污作業。台灣軍事新聞社網頁</figcaption>
+</figure>
+
+台灣軍方「漢光36號」今天展開為期5天4夜的實彈實兵演習，除了演習利用民間建築物保存戰力，並驗證新編成的「聯合兵種營」聯合作戰效能。另外，台灣中科院研製的新式偽裝網、構改F-16V戰機等新式武器亦參加演習，強化三軍聯合火力打擊能力。
+
+綜合中央社及台灣軍事新聞社報道，演習模擬解放軍來襲，軍方先實施戰力防護及保存，西部戰機進駐花蓮佳山基地，防空部隊則進行機場防護，海軍艦艇緊急出港。後續的演習，將在全台各作戰區進行海空射擊，並通過聯合反登陸、反空降、反特攻等科目，驗證「濱海決勝、灘岸殲敵」戰術。北部中樞地帶則將進行淡水河防演練等反滲透、反「斬首」行動演習。
+
+報道指出，今年漢光演習包括13年來首次參加的「劍龍級」潛艇發射魚雷，並有憲兵、海巡、警政三大特種部隊首次反劫持聯合演習。後備軍人則於本周四（16日）在台中甲南海灘演習反登陸火炮試射。
+
+周一進行的第一天演習，着重戰力防護與戰力保存，駐守台灣西部的戰機轉場至花蓮佳山基地等地；停泊軍港內的軍艦也緊急出港，赴指定地點集結備戰。軍事新聞通訊社報道，清晨時分，空軍戰機由駐地起飛，依計劃分赴各有關基地，由地勤官兵逐一為戰機檢整，拆除掛載彈藥後，再將戰機拖進機庫。此外，C-130運輸機也將所需要的後勤維保人力、裝備，載送至指定地點。
+
+至於「濱海決勝」部分，規劃於東南的海空域，採用「移地借景」、「仿真實戰」方式，由海軍整合並統一指揮三軍火力、防空部隊以及海巡等戰力，包括F-16V戰機及沱江艦等武器，發揮「重層攔截、連續打擊」效能，實際驗證三軍聯合火力打擊能力。
+
+軍事新聞社報道指，演習中，在高雄地區的軍方第4作戰區，實施「生物疫病暨軍民醫療能量整合」演習，藉由演習整合軍民醫療，確保部隊戰力。此次操演模擬陸軍裝甲564旅聯兵三營偵搜部隊遭敵生物戰劑攻擊，多數官兵受到污染，緊急協調醫院實施戰劑採樣，並由化學兵執行車輛及裝備除污作業，確保官兵健康及生命安全。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925123932/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,45 @@
+---
+title: "警政專家轟差別對待黑人示威"
+date: "2021-01-14"
+last_updated: "2021-01-14 12:17:01"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "Gerry McNeilly"
+  - "衝擊國會"
+url: "https://web.archive.org/web/20210802034920/https://hkcnews.com/article/37244/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-gerry_mcneilly-37250/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37244/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-gerry_mcneilly-37250/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警政專家轟差別對待黑人示威
+
+美國國會衝擊事件中，外界質疑國會警員不但未預警事件，更被人數多出數倍的特朗普支持者成功衝入國會，零星片段更顯示部分白人警員與集會人士合照。監警會前國際專家組成員Gerry McNeilly接受眾新聞書面訪問時批評，涉事執法機構必須為未能提前阻止衝擊問責，他更批評今次事件「數十年、多個世紀白人與黑人差別待遇，清楚在華盛頓展現出來」。
+
+在去年6月黑人民權示威Black Lives Matter期間，國會保安嚴陣以待，直升機在示威者頭上一直盤旋，基本上走近國會大樓都不可能。特朗普政府官員更曾下令驅散在白宮外和平示威的群眾，只為特朗普開路步行往附近一間教堂，拿著《聖經》給記者拍照。
+
+<figure>
+<img src="https://web.archive.org/web/20210802034920im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/華盛頓-Black%20Lives%20Matter-20210114033052_17c3_large.jpg" alt="">
+<figcaption>示威者去年6月在白宮外示威抗議黑人George Floyd被警員殺害，突然因總統特朗普前往教堂手持聖經拍照被清場。美聯社資料圖片</figcaption>
+</figure>
+
+曾任加拿大安大略省獨立警務督查前主任的Gerry McNeilly質疑，執法部門人手不足、對支持特朗普集會整體採取容忍態度，是違反他們誓言及本身職責，及對傾向優待某些膚色人種。
+
+「黑人和其他一直在美國追求獲自由及平等對待，確保民主獲勝。另一邊廂，很多白人持續造反，推動不平等及不公，尤其針對看上不似他們的人和受邊緣化的人。」
+
+他警告，之後發展影響美國能否保持全球民主的領袖，促請當局全面及透明地調查，並解決在黑人權益、追求民主、而非推翻政府的示威面對的不公待遇。
+
+「下一步會告訴我們美國會否真的堅持憲法，及憲法中平等對待所有膚色的觀點及信念。」
+
+美國多家傳媒在襲擊事件後，都揭部分保守派支持者討論區貼文字眼提及以武力阻止國會確認選舉人票結果，《華盛頓郵報》引述聯邦調查局事發前的內部文件說有特朗普支持者稱要「革命」，可是為時已晚。
+
+McNeilly批評，在特朗普鼓勵下，特朗普支持者事發前已準備數日，執法部門理應透過社交網絡、酒店訂房等留意到動員，事件是完全可以避免的。「在我看來，警方及執法部門一般而言需要為事件問責，他們必須解釋發生什麼事及為甚麼發生。」
+
+「對於類似示威，我們知道警方都會監察及情報搜集，及基於情報及資訊制訂人手分配計劃。為甚麼當時無發生到呢？」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802034920/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,79 @@
+---
+title: "【引渡修例】潘焯鴻同意港人港審　「細心諗緊」會否參政"
+date: "2019-05-18"
+last_updated: "2019-05-18 02:54:42"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "沙中線"
+  - "中科興業"
+  - "潘焯鴻"
+url: "https://web.archive.org/web/20210725155754/https://www.hkcnews.com/article/20391/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20612/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/20391/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20612/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 【引渡修例】潘焯鴻同意港人港審　「細心諗緊」會否參政
+
+「沙中線醜聞」、「剪短鋼筋」、「螺絲帽」、「追溯日期文件」等問題過去一年纏擾著工程界。中科興業董事總經理潘焯鴻入行近25年，目睹90年代「玫瑰園計劃」如何令香港工程界攀登巔峰，到當前的沙中線問題跌至谷底。這趟興衰起跌的旅程，他親歷其中。潘焯鴻說：「如果我哋靠營營役役、靠關係去解決件事，我哋唔會走得長遠。」
+
+潘焯鴻對於不同政治時事議題也有看法，包括近日全城關注的政府修訂《逃犯條例》。潘說：「驚，坦白講反對，其實香港法院無審理能力，佢只係認證有雙重干犯，只要睇到內地執法單位俾到表面證供已經成立，雖然免咗其中9條罪類，但其中有一條好嚴重，就係貪污。」
+
+「國內好興『提成』，即係購買一些材料，同你有交易的人會同你拎番少少好處，在國內的法律嚴格來講其實係貪污，但國內係好廣泛的傳統，同新年派利是一樣，如果呢啲咁簡單的事，我哋喺逃犯引渡條例入面已經中咗貪污，但其實無講干犯件事的規模，內地法院完全受政治影響，唔係司法獨立，如果我Jason Poon喺香港講太多嘢啦，國內有人唔鐘意，引渡我上去受審咁點啊？」他同意港區人大代表田北辰早前建議的「港人港審」。
+
+曾屬自由黨的潘焯鴻，稱去年察覺黨的理念有變而退黨。潘焯鴻可有想過日後從政？「細心諗緊，我是有責任的人，如果能夠貢獻社會，我當然想，但唔代表要付出晒我所有。呢個諗法唔成熟，我一個公司仔同禮頓鬥，輸嘅機會大，我無理由做啲咁嘅嘢，就算我臉皮厚，我兩個女都要照顧。」
+
+相關文章： [沙中線主角潘焯鴻：中科生意去年跌逾七成　手握資料或再「吹哨」](https://web.archive.org/web/20210725155754/https://www.hkcnews.com/article/20387/%E6%BD%98%E7%84%AF%E9%B4%BB-%E4%B8%AD%E7%A7%91%E8%88%88%E6%A5%AD-%E6%B2%99%E4%B8%AD%E7%B7%9A-20387/%E6%B2%99%E4%B8%AD%E7%B7%9A%E4%B8%BB%E8%A7%92%E6%BD%98%E7%84%AF%E9%B4%BB%EF%BC%9A%E4%B8%AD%E7%A7%91%E7%94%9F%E6%84%8F%E5%8E%BB%E5%B9%B4%E8%B7%8C%E9%80%BE%E4%B8%83%E6%88%90-%E6%89%8B%E6%8F%A1%E8%B3%87%E6%96%99%E6%88%96%E5%86%8D%E3%80%8C%E5%90%B9%E5%93%A8%E3%80%8D)
+
+<figure>
+<img src="https://web.archive.org/web/20210725155754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/中科興業-潘焯鴻-20190508214453_257f_large.jpg" alt="">
+<figcaption>中科董事總經理潘焯鴻經歷過工程界的高低起趺，沙中線事件令他公司生意額大跌。周滿鏗攝</figcaption>
+</figure>
+
+潘焯鴻1993年畢業於香港理工學院的建築科技及管理學高級文憑課程，兩年後他取得倫敦南岸大學的建築管理學士學位。剛入行時在地盤由低做起，負責過中電集團沙田中心和萬國寶通銀行的工程，「我乜都要學，我哋要讀晒所有文件，我仲要去收『石屎飛』（檢查石屎有否送錯地盤），而家大學畢業生唔會同你做呢啲嘢，會say No。」他曾於韓國現代建設（Hyundai）任職項目經理，2009年創立中科興業。
+
+或許是昔日的工作磨練，塑造了潘焯鴻的價值觀：工作責任大於生活享樂，「而家畢業嘅新人，無咁積極尋求知識。舉個例，西部通道深圳灣公路大橋斷纜，我問過幾個工程師，佢哋唔明點解會咁，唔知箇中重點。」今年2月，他在中科興業的Facebook專頁 [發文](https://web.archive.org/web/20210725155754/https://www.facebook.com/www.chinat.hk/posts/2248321651892418?__xts__[0]=68.ARAumUgA8fj3HYlo_gsn_KZzJSHSIRbMBg8RkZkSCFyFiZG2GdtCQOYqoQqZC40moQy0quJRPDU-B9s3VlWqUKoNoO_UC67bvKSacHol4nAh3M3jWA2Qt0AnHmE5cJ5C_Qdy1BkY7i4vVCh-2WZ7F0Rc-onNaJ4kjVewglEJj6kDHjn9UFWylu5fzCI1wHuj5uCWWo-HR4ujtZmpYXRDpJ_Dp4JerR6N90_HeSovvB8hPwHeunwJ08rSPpIRjnQhhjsqOa63WBU-smkRxBeRRppj9nCDRZgXoIvOXXZbdj7wQlISvRFMhDqfxUuOWwwdCkYrbJ959cKafn2BfmVb7vFdI8ld&__tn__=-R) ，分析了斷纜的原因、工程界的弊病，慨嘆現時的工程人員，對知識一知半解。
+
+貼文寫道：「哀哉的是，香港工程人員就算曾經參與，亦少有真正認識個（箇）中細節。這種營營役役、求利忘本、得過且過心態，就是整個行業地位偏低及沉淪的原因。當然，總有說『等埋詳細調查先啦！』、『你有咩資格講野？』、『講出黎唔怕追究報復？』。這是安全問題，沒有等的餘地！當行業面對這種逆境，該擔當的就不要逃避，更不應杜門株守。」
+
+身處低潮，人會記得昔日的美好。
+
+<figure>
+<img src="https://web.archive.org/web/20210725155754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/玫瑰園-潘焯鴻-20190508222118_4f08_large.jpg" alt="">
+<figcaption>潘焯鴻見證著「玫瑰園計劃」在90年代如何令香港工程起飛。香港機場核心計劃網頁圖片</figcaption>
+</figure>
+
+潘焯鴻記得，回歸前夕的「玫瑰園計劃」、赤鱲角香港機場項目，帶動香港工程起飛。計劃在1989年展開，赤鱲角機場最終在1998年落成，這段期間，不少知名的外資建築公司均有參與工程，包括法國寶嘉、瑞典Skanska、英國Balfour Beatty、日本熊谷組等。潘焯鴻說：「玫瑰園計劃佔當時香港總工程額超過一半，所以好多專業人員都參與過，因為我哋需要在外資公司的模式工作，所以嗰陣時香港整體建築、管理能力係大幅提升，我哋吸納了世界各地的精髓。」、「公司管理、採購、分判、品質管理、安全等，全部都係咁學番來。」
+
+「玫瑰園計劃」後，本港工程量回落，有些外資公司撤出香港。曾蔭權任特首時，在2007年的施政報告中提出十大基建，林鄭月娥獲委任為首任發展局局長。不過，十大基建提出後，即使最快也要等到2009年才展開部分項目，例如啟德發展計劃和港珠澳大橋，潘焯鴻形容工程界曾有一段時間大受打擊，「林鄭月娥管晒所有工務，十大基建以外，佢嘅特色就係乜都唔做，唔起醫院、唔起學校、唔放地出來俾發展商起樓，乜都唔起。」結果導致不少工人被迫到澳門覓出路，潘焯鴻也不例外，他跑到澳門接了威尼斯人酒店工程。他說，林鄭的「政績」是「樓宇更新大行動」，令圍標問題惡化。
+
+雖然近年本地工程量回升，負責石屎工程的中科亦投得不少大型基建項目，包括港珠澳大橋、高鐵香港段、沙中線、南港島線、中環灣仔繞道和蓮塘口岸等。但潘焯鴻認為，「判上判」文化是香港工程界的弊病，他所指的「判上判」是「通常一項工程，二判係唔做，會判俾三判、四判、五判，甚至是六判。」
+
+這樣衍生的問題就是工程人員對知識一知半解，以及靠關係上位。潘焯鴻稱：「在建築行業，升職會好快，今日你係阿頭，下個月你已經係公司的管理層，但下面上來的卻一知半解。香港的分判文化，覺得分判商識咪得，我使乜識，結果就係世界級笑話。」、「分判制度好自然的現象就是『擦鞋』、花天酒地，阿頭以為唔需要再學習，下面的人就奉承。」
+
+<figure>
+<img src="https://web.archive.org/web/20210725155754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/中科興業-沙中線-港鐵-20180626184638_28ec_large.png" alt="">
+<figcaption>中科近年參與不少大型基建工程，包括港珠澳大橋、高鐵香港段、沙中線、南港島線等。中科官網截圖</figcaption>
+</figure>
+
+潘焯鴻稱，中科只有5%至10%工程是外判，其餘則是直接聘請工人，甚至是他親力親為與員工一起工作，「以我能力，其實唔需要咁勤力，唔需要每早8點返工，7、8點先離開，唔需要去地盤開Lunch Meeting，但我無放棄過一直都係咁，幾辛苦都好，伙計在港珠澳大橋開通宵，我都陪佢哋。咁樣做先完成我嘅責任。」
+
+潘焯鴻在2011年區議會選舉後獲邀加入自由黨，去年年中退黨，稱是因為察覺黨的理念有變，「自由黨一開始係好自由，唔同人有唔同諗法，但自從田北俊退落嚟之後，新的一班人上，就變到超級擦鞋仔，連男士侍產假都反對，思想極端到，講出來唔係討好商界，係得罪全世界，我就覺得無意思。」、「沙中線呢件事，佢哋都唔係太支持，覺得我騷擾到政府，話我無生安白造件事，你掉轉頭唔撐黨友、仲咁驚，咁就退（黨）啦。」
+
+潘焯鴻在2014年取得城市大學法律碩士學位，近年則報讀其他大學的網上遙距課程，49歲知天命的他未言休，但已經開始盤算退休後的生活，其中一個目標是研究中國與北極的戰略地位。「我鍾意挑戰新嘢，Law係人的基礎知識，做咩生意都好，我最弱就係Law，我當時無知識去判斷，要問人先識。」
+
+沙中線聆訊揭發有工人為貪方便而剪鋼筋、有人後補螺絲帽檢查清單、承建商禮頓擅自修改設計等，事件曝光後，潘焯鴻察覺到工程界因而出現了些微改變，「啲嘢係揸緊咗，無論投標、執行合約的要求，大家留意番螺絲帽係要有紀錄。之前的檢驗報告可能有好多要後補，而家唔夠膽，物料測試等全部係嚴謹咗。」惟短時間內提升工程質量並不容易，潘焯鴻指，這牽涉到政府的監管。
+
+回想去年經歷，潘焯鴻說：「如果我哋靠營營役役、靠關係去解決件事，我哋唔會走得長遠。沙中線呢件事令我哋受到打撃，終有一日我堅持呢個信念，係會企番起身，就算而家被人誤會（有人質疑他為錢或其他原因而作出指控），最後會知道我哋係好嘢來。」、「再過幾年我退休，由下一梯隊嘅人接手，唔係我個女、唔係我親戚，係中科嘅管理人員，佢哋都要有咁嘅理念先可以永續落去。」
+
+<figure>
+<img src="https://web.archive.org/web/20210725155754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/中科興業-潘焯鴻-20190508171917_2061_large.jpg" alt="">
+<figcaption>潘焯鴻說，不喜歡穿西裝，螢光綠風褸是中科的標誌。周滿鏗攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725155754/https://www.hkcnews.com/aboutus/#subscribe)

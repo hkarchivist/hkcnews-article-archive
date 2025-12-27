@@ -1,0 +1,99 @@
+---
+title: "【明日大嶼】關焯照估政府儲備最快2027年乾塘"
+date: "2020-10-23"
+last_updated: "2020-10-24 14:11:29"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "公共財政"
+  - "明日大嶼"
+  - "關焯照"
+url: "https://web.archive.org/web/20210729030006/https://www.hkcnews.com/article/35022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35038/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2027%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/35022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35038/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2027%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 【明日大嶼】關焯照估政府儲備最快2027年乾塘
+
+在疫情下本港經濟不景，政府預算赤字達2900億元，創下歷來新高。惟特首林鄭月娥日前堅持，本港需要發展明日大嶼。冠域商業及經濟研究中心主任、經濟學者關焯照接受眾新聞專訪，估計明日大嶼最終可能超支四至五成，令本港財政儲備可能最快在2027-28年度便會用盡。他批評政府高估人口增長速度和明日大嶼的經濟收益，又反駁外界建議公私合營和發債的發展模式，兩方案集資也不理想。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030006im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/關焯照-明日大嶼-20201024030910_95e2_large.jpg" alt="">
+<figcaption>關焯照指出，本港人口增長放緩，加上疫情後對商業用地需求減少，認為發展明日大嶼並無必要。蘋果日報相片</figcaption>
+</figure>
+
+### **本港最快2027-28年度用盡儲備**
+
+冠域商業及經濟研究中心主任關焯照，上月聯同綠色和平發表 [《明日大嶼對香港財政的影響分析》](https://web.archive.org/web/20210729030006/https://www.greenpeace.org/hongkong/issues/health/update/22158/%E3%80%8A%E6%98%8E%E6%97%A5%E5%A4%A7%E5%B6%BC%E5%B0%8D%E9%A6%99%E6%B8%AF%E8%B2%A1%E6%94%BF%E7%9A%84%E5%BD%B1%E9%9F%BF%E5%88%86%E6%9E%90%E3%80%8B%E5%A0%B1%E5%91%8A/) ，當中評估假如政府發展明日大嶼，最快在2029-30年度便會用盡本港財政儲備，即使以最樂觀的假設，儲備亦會在2031-32年度「乾塘」。關焯照接受眾新聞專訪時表示，上述推算是建基於明日大嶼工程沒有超支，一旦工程超支，儲備可能會再提早一至兩年用盡，意味本港的財政儲備最快在2027-28年度便可能「乾塘」。
+
+他質疑政府近年的大型基建項目，如高鐵和港珠澳大橋，都超支兩至三成。他評估明日大嶼牽涉人工島、跨海大橋、隧道等複雜工程，最終有機會超支四至五成，即工程造價可能高達1萬億元
+
+> **如果明日大嶼不是6000幾億，是四、五成的超支，可能又會早一兩年，更早令到儲備用曬。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20210729030006im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/綠色和平-明日大嶼-20201024031101_5fe4_large.png" alt="">
+<figcaption>關焯照上月聯同綠色和平發表《明日大嶼對香港財政的影響分析》報告。綠色和平Facebook截圖</figcaption>
+</figure>
+
+### **人口增長放緩 質疑估算收益太理想**
+
+政府和建制派一直強調，明日大嶼所帶來的經濟效益足以應付發展成本。但關焯照批評，政府的評估未有考慮本港人口老化問題，以及目前人口萎縮速度較預期快，高估了人口增長速度。
+
+統計處今年9月發表最新的人口推算報告，本港人口將於2041年達最高峰，為811萬人，較2017年估算提早兩年「見頂」，高峰人口亦減少11萬人。他續指，除了人口增長較預期慢，現時社會環境下還可能出現移民潮，令人口增長進一步放緩。他質疑一旦屆時樓市需求、樓價和地價不及預期，政府如何收回成本。「你預計賣出的價錢，是基於甚麼理由呢？你賣唔賣到那個價呢？他們（政府）會好樂觀咁估計，話實賣到嘅⋯⋯ 可能要內地放人落嚟（買）囉。」
+
+### **公私合營成本轉嫁市民  發債模式損聯匯制度**
+
+外界有意見認為，明日大嶼可採用「公私合營」或發債形式發展，有助紓緩政府財政壓力，但關焯照認為兩種形式均不理想。他認為在公私合營模式下，發展商會要求一定回報，但假如最終因為需求不足影響收益，只會將成本轉嫁市民，就像西隧因為車流量不足而不斷加價。「最後埋單都係市民囉，公私營合作西隧已經是好好的例子。」他表示，發展商屆時可能要求增加地積比率，或者「將貨就價」，影響明日大嶼的城市規劃和樓宇質素。
+
+至於發債模式，他批評是更差的選擇。他指出發債並無解決結構性財政問題，反而因為發債後還款需要歸還利息，會增加政府債務。「你現在突然整咁大舊嘢，又明知你有結構性財赤，你估別人會不會信你，借好多錢給你？就算借到，係咪要還高息呢？」他續指，發債可能影響聯繫匯率的穩定性，因為聯繫匯率需要依靠充足的財政儲備，假如政府未有妥善理財令財政儲備見底，影響貨幣穩定性，便會損害外界對聯匯制度的信心，演變成金融問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030006im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/關焯照-明日大嶼-20201024030752_1e04_large.jpg" alt="">
+<figcaption>關焯照指出，本港聯匯制度最重要的基礎是政府財政儲備穩建，但目前政府財政面臨危機。港台相片</figcaption>
+</figure>
+
+關焯照強調，現時香港根本沒有需要發展人工島。在應付房屋需求上，他認為新界的棕地、農地可以即時發展，足以應付需求，又質疑明日大嶼的土地要等到10年後才可發展，不能解決短期需要。特首林鄭月娥稱，政府收地需要小心翼翼，但關認為政府擁有《收回土地條例》作為「尚方寶劍」，政府不應因為棕地背後的政治力量，而放棄收地。
+
+> **歷來香港政府要收地，一定收到㗎，點會收唔到啫？只不過是有政治背後力量。但而家政府已經一統江山啦，又有國安法，邊個夠膽挑戰你政府啫？又有咁多警察，幫你收地，邊個夠膽阻住你收啫？除非後面有政治力量阻住佢啫！**
+
+
+他又反駁林鄭月娥表示，明日大嶼可以發展成本港第三個核心商業區（CBD）的講法。他指出在疫情下，香港並不需要第三個商業中心，除了整體商業用地的需求下降外，「Work from home」和網上交易、購物等趨勢，均會削弱對實體核心商業區的需求。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030006im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/東大嶼都會-填海-明日大嶼-20190319222547_18df_large.png" alt="">
+<figcaption>明日大嶼發展計劃。資料圖片</figcaption>
+</figure>
+
+### **強推明日大嶼「撼頭埋牆」**
+
+目前政府對於明日大嶼的立場仍然「企硬」，關焯照批評政府要「撼頭埋牆」，就如修訂《逃犯條例》一樣，才知道政策不可行、不能強推。「好多嘢佢要撼到埋牆先會知痛，如果佢要強推，咁香港咪要自食惡果囉⋯⋯ 可能過多兩三年，政府已經叫曬救命，咁你到時點搞？你又commit咗。當然你到時撼頭埋牆可以剎停佢，但會俾人感覺你唔識處理財政問題。」
+
+> **重點是你不夠錢，因為無明日大嶼都會用曬財政儲備，明日大嶼只是加快咗（用完儲備）。問題是無論有無明日大嶼，你都要解決人口老化帶出來的問題。**
+
+
+### **長遠需發展創科、文化創意產業  港必須保持內地對外窗口**
+
+關焯照認為，要解決香港面對的人口問題，需要增加女性勞動率，延遲退休年齡。另外亦應增加非單程證移民和輸入外勞，填補正在萎縮的勞動力。他指出現時本港經濟下滑速度快，政府要迅速提出經濟政策，「要注入新的經濟引擎，帶動香港經濟。如果單靠金融業，香港維持唔耐。」他建議要推動創新科技、文化及創意等高增值的產業，亦難免要與內地城市合作，例如與深圳合作發展創科產業。
+
+他續指，政府開源節流的選擇有限，其中現時經濟收縮，政府不可能擴闊稅基，即使之後經濟復蘇，加稅亦可能影響復蘇步伐受壓和受制於政治壓力。他又舉例指，面對人口老化問題，政府難以削減長者福利，例如近日政府打算暫緩60歲以上長者的2元乘車優惠，已經面對社會壓力。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030006im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/10/Hong%20Kong-維港-360全景-20171029055449_299e_large.jpg" alt="">
+<figcaption>關焯照反問，假如本港失去作為內地對外金融窗口的地位，大灣區還是否需要香港。資料圖片</figcaption>
+</figure>
+
+關焯照坦言，對本港的經濟前景並不樂觀。他認為單靠內地對港的支持政策，並不能持續加快經濟發展，例如CEPA和自由行在疫情下已經陷入樽頸，他亦質疑大灣區對本港的經濟發展的作用有限。
+
+關又認為，目前本港面對以美國為首的西方制裁，令本港作為內地對外金融窗口的地位受損，「當你逐漸無咗作為對外的金融窗口，大灣區仲需唔需要香港？這已經是好好的問題。」他強調，香港一定要面對西方，保持中國對外唯一金融窗口的地位，否則香港在大灣區的重要性只會急速倒退。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729030006/https://www.hkcnews.com/aboutus/#subscribe)

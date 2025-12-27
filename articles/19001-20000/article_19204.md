@@ -1,0 +1,40 @@
+---
+title: "尋找早期港日交流足跡"
+date: "2019-03-20"
+last_updated: "2019-03-29 11:24:10"
+author: "特約分享"
+category: "眾說"
+tags:
+  - "好好過生活導賞"
+  - "港日交流"
+url: "https://web.archive.org/web/20220120010546/https://www.hkcnews.com/article/19204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19442/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19442/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 尋找早期港日交流足跡
+
+每次提起早期的港日交流，不少香港人都以一九四一年黑色聖誕的三年零八個月作為起點。港日交流其實為時更早，而且是具建設性的。
+
+當大家使用日圓（円）時，也許未必想像到它與香港的關聯。円，其實就是日本進行貨幣改革時參考港圓而制定的貨幣單位。根據對港日文化交流歷史有十多年研究基礎的日本文化協會前副校長侯清儀先生指出，明治維新開始前後，日本其中一個重要的海外考察點，就是香港。除了貨幣，他們也把香港的中英對照的學校教科書和字典帶回作參考。引領日本走向現代化的明治維新，充滿著香港的印記。
+
+侯校長又指出，日本非常重視香港，派駐香港的總領事都屬於大使級，而非大城市的領事級，可見日本已認定香港在東亞地區的重要性。
+
+<figure>
+<img src="https://web.archive.org/web/20220120010546im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/港日交流-好好過生活導賞-20190323153344_12e0_large.jpg" alt="">
+</figure>
+
+時至今日，日本本土還留著不少香港的痕跡，在東京和大阪均能找到。為了更深入認識港日兩地的交流歷史，「 [好好過生活導賞](https://web.archive.org/web/20220120010546/https://bit.ly/2HH3LrH) 」邀請侯校長共同設計了一個五天的歷史文化短講遊蹤，到日本關東實地瞭解有香港參與的過去。為了籌備行程及安排講題，侯校長特別與日本國會、靖國神社、東京大學等機構連繫，作出特別的安排，以見學形式認識兩地早期交流的歷史。
+
+此外，侯校長亦會深入介紹日本的歷史及文化生活，親自介紹位於日光的世界文化遺產，屬於德川家康的家廟東照宮。為了令參觀和導賞的時間充裕，我們將居於東照宮所屬的溫泉酒店。
+
+我們亦會參觀日本著名的歌舞伎座，觀賞歌舞伎和初步探討中日戲曲的異同。我們也有機會品嘗日本人欣賞歌舞伎時吃的豪華便當。
+
+尋找早期港日交流足跡活動，由侯校長全程導賞教學。若對此項活動有興趣，可以瀏覽「 [尋找早期港日交流足跡](https://web.archive.org/web/20220120010546/https://bit.ly/2HENKCC) 」網址。三月底前報名，更有早鳥優惠提供。
+
+---
+
+![博客 | 特約分享](https://web.archive.org/web/20220120010546im_/https://www.hkcnews.com/uploads/avatars/983e0e20-27cf-4690-a1b5-01a747c2cf37.png?862696463)
+
+**博客 | 特約分享**
+
+

@@ -1,0 +1,64 @@
+---
+title: "菲律賓爆疫　4日8宗輸入個案　專家促隨時叫停菲傭來港"
+date: "2021-09-06"
+last_updated: "2021-09-06 21:43:47"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "菲律賓"
+  - "菲律賓共和國"
+  - "外傭"
+  - "菲傭"
+  - "印傭"
+  - "新冠肺炎"
+url: "https://web.archive.org/web/20220125044101/https://hkcnews.com/article/45102/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45110/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45102/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45110/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 菲律賓爆疫　4日8宗輸入個案　專家促隨時叫停菲傭來港
+
+放寬外傭入境短短一星期，在過去一周16宗輸入個案中，一半是來自菲律賓外傭，個案更集中在近幾天出現。根據菲律賓衛生部門數字，當地現時每日確診有約二萬宗，是疫情爆發以來最高峰。呼吸系統科專科醫生梁子超形容，菲律賓正處於爆發期，他說：「依家引入外傭是不智安排，無乜必要喺人地風高浪急時咁做」。他預料今周陸續會有菲律賓輸入個案，促請政府及時調整措施，先叫停菲傭來港，避免Delta變種病毒潛入社區，導致新一波疫情爆發。
+
+<figure>
+<img src="https://web.archive.org/web/20220125044101im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/新冠肺炎-菲律賓-20210906214046_143d_large.jpg" alt="">
+</figure>
+
+### 菲爆疫每周新症逾10萬　何栢良料本月輸入個案來自該國
+
+菲律賓和印尼一直屬於高風險地區，只有已接種疫苗的港人才能返港。直到最近才放寬容許打齊兩針的外傭入境。不過一放寬後，近日輸入個案中都主要是外傭，菲律賓累計有8宗，當中一半曾在港完成接種兩劑疫苗，其中一班航班更有4宗病例，該航班要禁飛香港14天。港大感染及傳染病中心總監何栢良今早於電台節目表示，菲律賓疫情非常嚴重，預料本港今個月的輸入個案都會集中於菲律賓，「如今周陸續有航班，預期每班機落地都有零星個案(確診)」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125044101im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/新冠肺炎-衛生防護中心-輸入個案-20210906184716_8e1d_large.jpg" alt="">
+</figure>
+
+菲律賓新一波疫情自七月起爆發，每周新增個案不斷遞增，自8月中開始，每周新增個案更突破六位數字；人口最密集的馬尼拉大都會區16個城市皆發現有Delta變種病毒的痕跡，首都曾因而封城三周。世衛表明，菲律賓現時超過7成個案歸因於Delta變種病毒，「目前已處於Delta變異株社區傳播狀態」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125044101im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/菲律賓-Delta變種毒株-新冠肺炎-20210906184509_1656_large.jpg" alt="">
+</figure>
+
+### 梁子超:打疫苗變無徵狀　對社區傳播更具威脅
+
+現時Delta變種病毒正困擾東南亞地區，呼吸系統科專科醫生梁子超表示，Delta變種病毒的傳播力遠遠高於過往品種，「我地永遠停留喺昨日，以為有檢疫措施，加埋疫苗，就會頂得住」。他提醒，以其他地區應對變種病毒的先例，只有在「第一道防線」防止病毒輸入，才能以最高安全系數及成本效益下防疫抗疫。
+
+梁子超指出，現時Delta變種病毒傳播力強，可經空氣傳染。外國不少情況是機場及檢疫設施人員經短暫接觸已染上病毒，再傳播出社區，「防疫最嚴謹的內地，近日廣州也出現隔離酒店工作人員染疫，還要是無徵狀，可見病毒傳播力有多可怕」，認為本港的隔離檢疫及檢測措施較內地脆弱得多，不能再如先前般「依賴」。他亦指出，外國有研究顯示，已接種疫苗人士如染上變種病毒，較沒接種人士多2倍機會出現「無徵狀」，對社區傳播風險亦更有威脅。
+
+梁子超認為，如果兩地政府可讓抵港外傭，先在非律賓當地完成14至21日的單獨隔離，才安排來港隔離，則更能確保不會因此帶病毒來港。
+
+本港以往有地區熔斷機制，即同一地區累積個案有10宗，就禁止該地區客機到港，但八月初已經取消這個機制，只保留航班熔斷機制，即同一航班3宗確診或七天內兩班不同客機各有兩名或以上乘客抵港檢測確診，都要禁止同一航空公司由同一地點的客機來港14天。
+
+### 4間航空公司營運菲航　兩間因確診個案已停飛
+
+本港原定有四間航空公司安排來往菲律賓至香港的航班，由於菲律賓航空及宿霧太平洋航空先後有乘客確診，觸發「熔斷機制」，這兩間航公司都要禁飛香港14天，只剩國泰航空和香港航空經營往來香港與菲律賓馬尼拉的航班。翻查機管局網頁，有關航班數目未來數天會逐漸增加。
+
+<figure>
+<img src="https://web.archive.org/web/20220125044101im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/菲律賓-新冠肺炎-機管局-20210906194905_2d62_large.jpg" alt="">
+</figure>
+
+### 應按情況停菲傭來港　惟消息指政府認為暫不用叫停
+
+梁子超認為，當局與其依賴航班「熔斷機制」，讓幾間航空公司不斷梅花間竹地停航又復航，倒不如仔細檢視本周情況，如再有菲傭抵港確診，即暫停菲傭來港措施一至兩個月，待當地疫情舒緩後再恢復，「外傭來港措施並非關鍵的經濟考慮因素，不應因而不成比例地增加輸入病毒的缺口」。他補充，印尼反而已過爆發期，當局可先以印傭來港解決供應需要。
+
+據了解政府內部認為，若果菲律賓繼續爆，有輸入個案，自然會熔斷航班，到時所有航班停止就不會來到香港，暫時不用叫停菲傭來港。
+
+特區政府一直強調要「外防輸入」。菲律賓和印尼原本屬於A組高風險地區，只有持港府認可的疫苗接種紀錄的港人才能登機。為恢復本港外傭供應，港府早前與菲律賓及印尼兩地政府訂定雙邊疫苗紀錄認可協議，上周一(8月30日)起，接種新冠疫苗的外傭，只要持有效工作簽證、指定疫苗接種紀錄、無染疫證明及預訂香港荃灣絲麗酒店作21天強制檢疫，即可來港。當局亦決定今月下旬開放竹篙灣檢疫中心予外傭隔離檢疫。

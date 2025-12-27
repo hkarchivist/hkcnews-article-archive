@@ -1,0 +1,59 @@
+---
+title: "官員可信度檢測「肥佬」"
+date: "2020-08-24"
+last_updated: "2020-08-25 07:26:18"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "限聚令"
+  - "全民檢測"
+url: "https://web.archive.org/web/20210727055153/https://www.hkcnews.com/article/33220/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33230/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33220/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33230/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 官員可信度檢測「肥佬」
+
+
+{{< video src="https://web.archive.org/web/20210727055153if_/https://www.youtube.com/embed/_RDltaT9UXE" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210727055153/https://bit.ly/2Cj8v4t)
+
+特首林鄭月娥上周打著中央支持旗幟，宣佈9月1日起為全港市民進行免費病毒檢測，標傍自願參與，只是兩天的時間，官方公開說話的可信度測試已有結果，屬不合格。官員口說市民可自行決定參與，但將全民檢測與放寬社交距離措施捆綁，又抹黑反對參加者是基於陰謀論。
+
+內地《人民日報》前晚亦發表評論文章，呼籲香港市民積極參與檢測，不點名指有人借機對內地支援和社區普檢進行污蔑、抹黑，企圖阻礙抗疫，形容「就是站在750萬香港市民的對立面， 是對香港未來和市民福祉的背叛。」
+
+<figure>
+<img src="https://web.archive.org/web/20210727055153im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/人民日報-全民檢測-20200823215712_17e6_large.png" alt="">
+<figcaption>《人民日報》評論文章。</figcaption>
+</figure>
+
+港府官員和內地以威逼抹黑語言，呼籲市民自願參與檢測，談不上尊重市民自由意志，是侮辱港人智慧，只會造成反效果。
+
+林鄭在上周五的記者會上強調檢測沒有硬指標，早前食衞局局長陳肇始預計將有500萬名港人參與自願檢測，將驗到1500名隱性患者，林鄭澄清500萬人是可檢測容量，又指該計畫被抹黑及陰謀論。林鄭改口，明顯是因為陳肇始「講得太死」，希望留點空間，她又澄清普及社區檢測與放寬社交距離措施的關係，「我們沒有說要等完結才放寬措施。」
+
+[陳肇始昨日在網誌](https://web.archive.org/web/20210727055153/https://www.fhb.gov.hk/blog/cn/index.html) 上卻表示，「如果隱形傳播鏈繼續在社區廣泛存在，各項社交距離措施就無法大幅放寬。」網誌續稱，疫情或會反彈，甚或有另一波社區爆發。若全民檢測達到目的，社交及經濟活動就可逐步恢復、市民可回復較為正常的生活。換句話說，不做全民檢測，經濟及生活難以回復正常？合乎常理嗎？
+
+昨日除陳肇始外，一眾高官全力硬銷計劃，包括政務司長張建宗、財政司長陳茂波、公務員事務局長聶德權及勞工及福利局長羅致光等，均表示會參與。可以想像，親中建制派會總動員在未來兩星期將文宣戰升級，抗衡反對聲音，呼籲市民參與，抹黑對檢測持反對及保留意見的人士，亦會繼續將檢測形容為人命攸關，要救經濟、救香港，各人須要參與，以截斷隱形傳播鏈。
+
+過去一段時間，建制派已不斷宣傳「人命攸關」論，人命關天的說法，假如稍有一點說服力的話，根本不用花大氣力，港人會自動自覺，因為人人都懂生命重要的一句話，社會反應至今並不熱烈，原因並不複雜，官員是真不懂或裝作不知，他們心知肚明，如果從陳肇始及羅致光對全日禁堂食風波的言論所見，真的不懂也並非不可能；港人不宜高估高官對常識的掌握能力。
+
+有專家指出，市民參與要視乎政府能否減少人群聚集和交叉感染風險，今次檢測計劃，相信只能找出社區內大約三分之一帶病毒人士，不能代替之前一直沿用的方法，包括要巿民盡量留在家中、針對有病徵人士盡快檢測，而即使截斷傳播鏈，亦要做好檢疫，防止輸入個案。是否取消社交距離措施，亦明顯並非取決有否完成全民檢測、有多少人完成，最重要的是確診個案數字，沒源頭個案比例等因素。疫情已出現第三波，港人已上了不少寶貴生活課堂，還要別人提「人命攸關」嗎？
+
+陳肇始心急想推更多人參與，越令市民懷疑、反感，以至抗拒，加上市民對負責檢測公司、內地支援人員角色、私隱保障等疑團未解，對林鄭政府和中央都嚴重不信任，選擇信自己，十分正常，參加與否，個人決定。林鄭和北京只能怪自己，搞出一個歷史性信任赤字，中央已落水，唯有死撐盡做。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727055153/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210727055153im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

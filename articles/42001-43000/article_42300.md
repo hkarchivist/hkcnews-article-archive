@@ -1,0 +1,9 @@
+---
+title: "Temporarily Offline"
+date: ""
+author: ""
+url: "https://web.archive.org/web/20210712062637/https://www.hkcnews.com/article/42300/%E8%94%A1%E8%8B%B1%E6%96%87-joe_biden-%E7%BE%8E%E5%8F%B0%E9%97%9C%E4%BF%82-42300/%E7%9B%B8%E9%9A%94%E9%80%BE4%E5%B9%B4-%E5%8F%B0%E7%BE%8E%E5%B0%87%E9%87%8D%E5%95%9F%E7%B6%93%E8%B2%BF%E6%9C%83%E8%AB%87-%E4%B8%AD%E5%9C%8B%E5%8F%8D%E5%B0%8D-%E9%87%8D%E5%BD%88%E4%B8%80%E4%B8%AD%E8%80%81%E8%AA%BF"
+original_url: "https://www.hkcnews.com/article/42300/%E8%94%A1%E8%8B%B1%E6%96%87-joe_biden-%E7%BE%8E%E5%8F%B0%E9%97%9C%E4%BF%82-42300/%E7%9B%B8%E9%9A%94%E9%80%BE4%E5%B9%B4-%E5%8F%B0%E7%BE%8E%E5%B0%87%E9%87%8D%E5%95%9F%E7%B6%93%E8%B2%BF%E6%9C%83%E8%AB%87-%E4%B8%AD%E5%9C%8B%E5%8F%8D%E5%B0%8D-%E9%87%8D%E5%BD%88%E4%B8%80%E4%B8%AD%E8%80%81%E8%AA%BF"
+---
+
+

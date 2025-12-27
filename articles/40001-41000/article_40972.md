@@ -1,0 +1,61 @@
+---
+title: "【人話的罪】港台推翻調查結果致投訴成立　李百全全盤信納　利君雅不獲續約兼扣約滿酬金"
+date: "2021-05-04"
+last_updated: "2021-05-05 04:42:13"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "利君雅"
+  - "李百全"
+url: "https://web.archive.org/web/20221209170050/https://www.hkcnews.com/article/40972/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40984/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40972/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40984/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【人話的罪】港台推翻調查結果致投訴成立　李百全全盤信納　利君雅不獲續約兼扣約滿酬金
+
+**港台在罕有「重啟調查」下，推翻原本的調查結果，令投訴利君雅的指控，由不成立變成立。利君雅多次遭延長試用期後，最終不獲續約，無法成為公務員，更要在本月底離開港台。據了解，管方四月初發信給利君雅提及已完成調查報告，聲稱投訴指控成立，廣播處長全盤信納調查結果，據悉港台更打算「以月計」扣除利君雅的約滿酬金。調查本身並非紀律聆訊，最後卻成為不續聘利君雅的唯一理由。**
+
+<figure>
+<img src="https://web.archive.org/web/20221209170050im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/利君雅-元朗打人-20190722235115_2635_large.png" alt="">
+<figcaption>元朗白衣人施襲，問責官員整晚「失蹤」，利君雅質疑是否「官、警、黑合演的大龍鳳」，促林鄭「講人話」，最終成為不獲續約的「罪狀」。港台截圖</figcaption>
+</figure>
+
+### 料港台「以月計」扣約滿酬金
+
+據了解，管方當初「重啟調查」指明考慮同事能否過渡試用期，需評估情緒（Temperament）、操行（conduct）和個人特點（personal characteristic）等表現，最終調查報告卻未有相關的結論。重啟調查的性質本屬內部調查，並非紀律聆訊，最後卻成為是否聘任利君雅的唯一理由。
+
+負責評估員工升遷的評核委員會收到調查報告後，曾召開會議認為利君雅不適合轉職長工。管方要求利君雅就有關決定提交書面回覆，若管方未有收到回覆，便會向敍用事務委員會提交管方的決定，而利君雅已於四月尾向管方提交書面回覆。
+
+至於約滿酬金的安排，管方指因應調查報告的結果，將會扣除「以月計」的約滿酬金。管方要求利君雅就有關決定提交書面回覆，若管方未有收到回覆便會執行有關決定，而利君雅已於四月尾向管方提交書面回覆。
+
+### 工會：極不認同「投訴成立」　剋扣報酬等同欺壓
+
+香港電台製作人員工會表示，極不認同「投訴成立」的決定，當時發生元朗7.21等事件，同事只是本著專業，緊守崗位，向官員提問，捍衛公眾知情權，希望還原真相。管方最終不但裁定投訴成立，更剋扣同事應得的合理報酬，做法極不合理。管方調查範圍只涉及以日計的記者會，卻以月計扣起同事的約滿酬金，等同欺壓。
+
+對於管方表示，按既定機制和程序處理員工聘任安排。工會重申，重啟調查一事由始至終都違反程序。副廣播處長馮建業無視時任廣播處長的調查結果，決定重啟調查，當事人多次追問重啟調查屬什麼性質，是否紀律聆訊，在當事人多番追問下，管方始表示以處理節目投訴的機制展開調查。處理節目投訴和針對員工個人表現屬兩個不同範疇，處理節目投訴機制不是用於評核員工表現「張冠李戴」。
+
+在整個調查過程中，工會多次追問管方調查進度、投訴總數目等具體詳情。工會和利君雅與時任廣播處長梁家榮和副廣播處長多番交涉後，管方始口頭承諾於2月16日完成初步調查，由始至終管方一直拒絕以書面交代整個調查的時間表。
+
+<figure>
+<img src="https://web.archive.org/web/20221209170050im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/利君雅-港台工會-20210128200418_12ca_large.jpg" alt="">
+<figcaption>香港電台製作人員工會極不認同「投訴成立」的決定，強調同事只本著專業，向官員提問，捍衛公眾知情權，希望還原真相。 (資料圖片)</figcaption>
+</figure>
+
+### 白衣人施襲官員失蹤　促林鄭「講人話」成「罪狀」
+
+2019年7月21日元朗發生白衣人無差別施襲事件，孕婦、記者、立法會議員等多名市民受傷，一班問責官員整晚「失蹤」。行政長官林鄭月娥事隔十多小時後，才率領官員公開見記者。到場採訪的利君雅質疑是否「官、警、黑合演的大龍鳳」，指出在文明社會無差別襲擊已是「恐怖襲擊」，又促林鄭「講人話」，事後獲網民封為「良心記者」、「新聞女神」，但亦因此被建制狙擊，成為不獲續約的「罪狀」之一。
+
+
+{{< video src="https://web.archive.org/web/20221209170050if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fko.fatko%2Fvideos%2F10219395974634671%2F&show_text=false&width=560" >}}
+
+
+利君雅去年遭港台要求延長試用期120日，管方重啟調查利君雅在2019年7月至11月期間的投訴，包括出席政府記者會的表現和行為。一般公務員合約試用期長達三年，利君雅在2017年入職港台，原本2020年年10月完成試用期，同期員工亦順利通過程序。員工升遷一直以評核報告為依據，延長試用期屬罕見和不尋常。
+
+港台去年多個節目橫掃國際獎項，其中利君雅有份主持的《視點31》，節目《中國大數據生活系列》榮獲美國國際電影及電視節2020「紀錄片：新聞特輯」類別金獎、2020紐約電視電影節「特別報道」類別銅獎、第24屆人權新聞獎紀錄片優異獎。

@@ -1,0 +1,44 @@
+---
+title: "1600中小學教師參與教育局「國安與生活」講座　講「總體國家安全觀」　沒提老師應如何教學"
+date: "2020-11-17"
+last_updated: "2020-11-17 22:20:43"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "教育局"
+  - "教育署"
+  - "香港教育局"
+  - "國家安全法"
+  - "李浩然"
+url: "https://web.archive.org/web/20210917072726/https://www.hkcnews.com/article/35667/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35677/1600%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35667/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35677/1600%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 1600中小學教師參與教育局「國安與生活」講座　講「總體國家安全觀」　沒提老師應如何教學
+
+教育局昨日為教師舉辦「國家安全與我們日常生活」研討會，由基本法推廣督導委員會委員李浩然任講者，介紹國家安全理念，共1,600名老師參與。會上李浩然回應有老師問到，叫口號會否觸犯國安法的問題時，指不認為有人叫兩句口號就構成煽動，不過亦視乎叫口號的人的影響力。
+
+<figure>
+<img src="https://web.archive.org/web/20210917072726im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/李浩然-國家安全-教育局-20201117190803_80fc_large.png" alt="">
+<figcaption>研討會由基本法推廣督導委員會委員李浩然任講者，介紹國家安全理念。網上直播截圖</figcaption>
+</figure>
+
+研討會昨日以現場及網上形式同步進行，對象為中小學老師，教育局指共有約100名教師現場參加、約1,500名教師網上參加。活動目標列明，講座會從國家的「總體國家安全觀」出發，介紹相關理念和重點。講座時數可用作在職老師「教師專業角色、價值觀及操守」範疇的培訓，或新入職教師的選修培訓。
+
+講座首一小時，李浩然先介紹由國家主席習近平在2014年提出的「總體國家安全觀」，當中的16個領域。隨後提到國安法在香港實施的法律基礎，指全國人大常委會制定的《港區國安法》，由頒布的機構以至立法技術，都是成文法，而香港的普通法法院要如何處理成文法的法律，仍然未知，對香港法庭來說是個挑戰，但相信法庭也可有能力處理。講座談及此部分時一度斷線逾半小時。
+
+### 老師問喊口號是否違法
+
+現場有老師問到，若針對領導人叫喊口號，會否觸犯國安法，李浩然指，條文列明煽動或鼓吹其他人，才構成犯罪行為，而在法庭而言，煽動標準很高，如果只是叫口號，是行使言論自由，
+
+**「唔認為有個人走出嚟講兩句，就已經係煽動。但都睇你嘅地位、影響力，你係一呼百應，好多人會跟住做嘅，同你係個無乜影響力嘅人講，都好唔同。」**
+
+李浩然又指，國安法教育並非背誦法律條文，更重要的是提高國家安全意識，指真正的國家安全教育是一份國民意識，當人對國家有歸屬感時，自然會關心國家的安全。講座以介紹國家安全理念為主，未有提到教師應如何教學。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210917072726/https://www.hkcnews.com/aboutus/#subscribe)

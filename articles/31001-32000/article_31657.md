@@ -1,0 +1,43 @@
+---
+title: "【IB放榜】男拔3狀元9榜眼　記者問國安法回應"
+date: "2020-07-06"
+last_updated: "2020-07-07 11:49:45"
+author: "實習記者何彩琳"
+category: "眾聞"
+tags:
+  - "男拔萃"
+url: "https://web.archive.org/web/20210724212852/https://www.hkcnews.com/article/31657/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31690/%EF%BF%BD%EF%BF%BD%EF%BF%BDib%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31657/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31690/%EF%BF%BD%EF%BF%BD%EF%BF%BDib%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【IB放榜】男拔3狀元9榜眼　記者問國安法回應
+
+<figure>
+<img src="https://web.archive.org/web/20210724212852im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/男拔萃-20200706150939_27b2_large.jpg" alt="">
+<figcaption>男拔一眾IB狀元及榜眼與男拔國際文憑統籌胡家麟（前排右一）。何彩琳攝</figcaption>
+</figure>
+
+簡稱IB的國際文憑大學預科課程今日放榜，拔萃男書院共有3名滿分「狀元」及9名「榜眼」，其中兩名「狀元」今年9月將入讀劍橋大學法律系。記者會上「狀元」被問到對國安法的回應，其中，「狀元」曾慶倫表示對國安法比較保留，又指現時國安法未見到長遠的果效，暫時保持開放態度觀察。另一名將入讀法律系的「狀元」彭彥程認為，「好睇政府會點樣去執行呢條法律」。3名「狀元」暫時未有打算移民。
+
+IB早前取消公開考試，以校內模擬考試及內部評估取替。傳統名校男拔今年有3名滿分45分「狀元」及9名44分的「榜眼」。上年IB放榜，男拔有4名滿分45分「狀元」及4名「榜眼」。今年男拔60名IB學生，平均分41分。男拔國際文憑統籌胡家麟對於成績十分滿意，認為今年是男拔其中最好一年的成績。另外，聖保羅男女中學今年有4名滿分的IB「狀元」；滬江維多利亞學校有4名獲44分的「榜眼」；保良局蔡繼有學校超過一半學生、共50人考獲40分或以上，當中有5名「榜眼」及10名「探花」。
+
+<figure>
+<img src="https://web.archive.org/web/20210724212852im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/男拔萃-20200706150916_b471_large.jpg" alt="">
+<figcaption>IB狀元彭彥程、曾慶倫、康焯桓（左起），以及男拔國際文憑統籌胡家麟。何彩琳攝</figcaption>
+</figure>
+
+男拔今年3名「狀元」是康焯桓、曾慶倫及彭彥程。康焯桓表示，將赴倫敦政治經濟學院攻讀經濟與哲學。他表示，企業家Elon Musk是其偶像，選讀此科是因為未來想創業。曾慶倫與彭彥程則表示，9月中到劍橋大學攻讀法律。曾慶倫指，讀法律能訓練頭腦和思想，彭彥程則稱讀法律能看到不同人的觀點。被問到畢業後會否回港工作，「狀元」均表示要視乎畢業後的形勢，彭彥程則稱暫時計劃回港發展，強調3年大學生涯十分長遠，有很多未知之數，暫未能確實回答。
+
+被問到如何看待港區國安法時，曾慶倫認為，自己作為想讀法律的同學是十分慶幸，可以看到不同立場的觀點和理據。對於國安法，他表示「我係會比較鍾意去保留，尤其是國安法仲未睇到長遠的impact，暫時保持have a open mind去聽、去睇、去observe」。亦將入讀法律系的彭彥程說，「好睇政府會點樣去執行呢條法律，有啲條文會點樣應用落去依家嘅時勢，會點樣去理解人大常委寫咗啲條文咁」。
+
+並不是所有獲取佳績的學生都離港升學，「榜眼」傅兆霆表示會在香港大學讀醫科。他表示，在港升學因為可以「同聲同氣」，做醫生是希望能幫助港人。另一「榜眼」甘亮志是中英混血兒，暫時未決定讀哪一所大學，但已有英國及澳洲大學取錄。甘亮志表示，未知道港版國安法會如何執法，有可能會因國安法而離開香港。
+
+港版國安法於6月30日正式生效，會上有記者問，如「香港獨立」這類題目能否在IB 課堂中討論？男拔國際文憑統籌胡家麟回應說，「We will never ask student that,we could bring it up into class. Here is the issue, what do you think?（我們不會直接問學生，但我們可以在課堂討論。例如現時有件事，你們（問學生）會怎樣看？）」。 他表示，IB課程就是「to be open mind」。他認為，現時香港分開兩邊不同顏色的陣營，每一邊都有rights and wrong，鼓勵學生先研究再下定論。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724212852/https://www.hkcnews.com/aboutus/#subscribe)

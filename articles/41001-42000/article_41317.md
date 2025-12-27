@@ -1,0 +1,54 @@
+---
+title: "蔡展鵬案開誠布公不符事實　陳克勤引述外國勢力論疑虛假訊息"
+date: "2021-05-13"
+last_updated: "2021-05-13 23:11:27"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "陳克勤"
+  - "CHAN Hak-kan"
+  - "蔡展鵬"
+  - "警務處國安處"
+url: "https://web.archive.org/web/20210919175405/https://hkcnews.com/article/41317/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41329/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41317/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41329/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 蔡展鵬案開誠布公不符事實　陳克勤引述外國勢力論疑虛假訊息
+
+
+{{< video src="https://web.archive.org/web/20210919175405if_/https://www.youtube.com/embed/fctTRPM8-xc" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210919175405/https://bit.ly/2Cj8v4t)
+
+中央高度重度重視香港維護國家安全，爆出警方國安處長蔡展鵬涉光顧無牌按摩店，正停職接受調查，不但令整支警隊蒙羞，中央也面目無光，不但製造公關災難，亦造成國家安全短板。親中政黨及媒體冷處理，「藍絲」專欄作家當作沒有發生。
+
+民建聯陳克勤擔任立法會保安事務委員會主席，避無可避，他今早在電台回應時表示，蔡展鵬作為高級警員，要像「紙咁白」，但重點是轉移視線，說留意到網上一些傳言，亦有警員向他發訊息，指事件或涉及敏感度不足、警隊內部問題、甚至外國勢力。陳克勤一方面強調蔡展鵬案仍有待調查，又說過早下判斷對蔡展鵬不公道，但引述來歷不明的疑似虛假訊息，與「外國勢力」拉上關係，似有意將事件複雜化、混濁化，為中央、港府和警隊遮醜。
+
+「藍絲」網上群組亦流轉一段來自自稱是「退休警司」、以簡體字寫的留言，指蔡展鵬事件「太多巧合及違背平常邏輯的疑點，感覺此事是美中情局發起的一次反攻。」目的是「折損國安系統裏的一員大將」，所謂「大將」，相信是指蔡展鵬。
+
+類似網上訊息，同樣出現在2014年佔中、2019年反修例運動期間，指控有「外國勢力」在背後，但同樣至今完全沒有人能提出確實證據，明顯是虛假訊息，政府官員、建制派立法會議員卻不斷在議會和公開發放，又不斷說要立法打擊「假新聞」，是賊喊捉賊。
+
+警務處處長鄧炳強近日在不同場合提及「假新聞」，他說，如果假新聞引致煽動仇恨、分化社會或者引致挑撥仇恨等，有機會引致包括與國家安全有關的罪案，警方就要處理。陳克勤在大氣電波散播蔡展鵬案背後有「外國勢力」，又沒有提出證據，有挑撥香港與外國社會關係之嫌，假如「一哥」真心擔心「假新聞」，應邀請陳克勤解釋「外國勢力」的說法，如果並無實據，應該負責任地澄清及收回言論。
+
+蔡展鵬是國安處「一哥」，假如只是小事一樁、一場誤會，或者像立法會議員、執業律師謝偉俊今早在節目中形容，「較紅燈過馬路更輕微」，相信早已告一段落，但他已休假一段時間， 案件由有組織及三合會負責，公眾有理由相信案件涉及複雜問題。案件越複雜和敏感，越須要鄧炳強所說的開誠布公，盡量透明， 避免各方揣測及虛假訊息。
+
+鄧炳強昨日（12日）強調自己做法是「開誠布公」，但事實是，事件昨日凌晨由傳媒率先報道，他昨日傍晚召開記者會回應事件，初時對涉事人的身份，仍左閃右避，其後才證實是蔡展鵬，沒有將事件立即公佈的原因，拒絕回應細節，包括是否涉及其他刑事罪行。
+
+「開誠布公」只是口號、並不符合事實，是他口中的「假新聞」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919175405/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210919175405im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

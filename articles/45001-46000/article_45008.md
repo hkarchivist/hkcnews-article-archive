@@ -1,0 +1,40 @@
+---
+title: "胡錫進發文：宣揚中國正發生深刻革命是誤判和誤導　惟文章刊出一日後被禁轉發"
+date: "2021-09-03"
+last_updated: "2021-09-03 19:32:13"
+author: "中國組記者黃麗萍"
+category: "眾聞"
+tags:
+  - "胡錫進"
+  - "眾新聞中國組"
+  - "深刻變革"
+  - "李光滿"
+url: "https://web.archive.org/web/20221209152114/https://www.hkcnews.com/article/45008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 胡錫進發文：宣揚中國正發生深刻革命是誤判和誤導　惟文章刊出一日後被禁轉發
+
+內地作家李光滿上月底發表題為《每個人都能感受到，一場深刻的變革正在進行！》的文章，將反壟斷、共同富裕、整治娛樂圈等政策，形容為一場「深刻的革命」，包括央媒和地方官媒，有80間傳媒轉發，引發外界猜測官方是否要搞政治運動，甚至會出現第二次文革。事過不到一個星期，當日有份轉發的《環球時報》，總編輯胡錫進周四開始唱反調，批評該文描述不當，使用了誇張的語言，背離了國家大政方針，造成誤導。不過，胡錫進的文章在刊出一日後，就被微信指違反公眾平台運營規範，被禁止轉發。
+
+<figure>
+<img src="https://web.archive.org/web/20221209152114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/胡錫進-李光滿-深刻變革-20210903171356_2073_large.jpg" alt="">
+<figcaption>胡錫進發文，批評李光滿的文章是誤判和誤導。</figcaption>
+</figure>
+
+胡錫進指李光滿的文章，宣稱中國從經濟領域、金融領域、文化領域到政治領域，都在發生一場深刻的變革，是對近期國家推出一系列市場監管措施的誤讀和曲解。他指，這些監管的目的是規範市場、糾正、防止資本野蠻生長，以及由此帶來的各種副作用。在加快經濟社會發展的同時，推進共同富裕，強化公平正義建設，所有的一切都是社會治理進一步和上台階的完善，而不是什麼「革命」。
+
+他進一步解釋，中國經常講自我革命，但它的含義是自我鞭策，不斷創造新的輝煌，而不是文章所說的充滿摧毀的運動式革命。胡錫進指，整個國家處於有序的運行中，政治上高度團結，應對挑戰的動員力和資源十分充裕，令中國能夠強有力地應對美國貿易戰和全面戰略打壓這樣的極限挑戰，能夠在全世界率先控制住新冠疫情，這一讓整個西方一籌莫展的公共衛生災難。
+
+<figure>
+<img src="https://web.archive.org/web/20221209152114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/天安門-20210903175011_2990_large.jpg" alt="">
+<figcaption>胡錫進指，中國整個國家處於有序運行中，所講的自我革命，是自我鞭策，而非摧毀的運動式革命。</figcaption>
+</figure>
+
+胡錫進反問，在這樣的國家裡，需要搞運動式革命嗎？他說變革、乃至深刻的變革，一直在中國持續進行，但是李光滿的文章用一種特殊的檄文口吻，寫到這個國家好像要告別改革開放，以及十八大以來的基本路線方針政策，要形成某種秩序顛覆，真的要革命了，這確屬嚴重的誤判和誤導。
+
+胡錫進稱自己在公在私，都從沒有聽說過中國正在出現李光滿文章所描述的政治動向，收到的信息是中國要繼續發展，要不斷以有力且穩健的方式自我完善。
+
+他指李光滿的文章寫到：「不僅要摧枯拉朽，而且要刮骨療傷」，這種聳動的全局性宣示，與中國實際政策面嚴重脫離，屬於少數人的狂想。他擔心這樣的語言，會勾起人們的某些歷史記憶，引發一定範圍的思想混亂和恐慌，希望所有人都相信，中國的改革開放路線不會變，兩個毫不動搖不會變，十八大以來的重大方針政策一定會得到堅持，又呼籲大家，凡是對國家監管措施的極端解讀都不要信。
+
+不過，胡錫進的文章在刊出一日後，就被微信指違反公眾平台運營規範，被禁止轉發。

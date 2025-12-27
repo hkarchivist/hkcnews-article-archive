@@ -1,0 +1,31 @@
+---
+title: "南韓「考量兩岸關係」　會議當天突取消唐鳳視訊演講　台灣外交部召見駐韓代表「強烈不滿」"
+date: "2021-12-20"
+last_updated: "2021-12-21 12:06:55"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "韓國"
+  - "大韓民國"
+  - "南韓"
+  - "兩岸關係"
+  - "台灣外交"
+url: "https://web.archive.org/web/20220520132659/https://www.hkcnews.com/article/49390/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49401/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/49390/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49401/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 南韓「考量兩岸關係」　會議當天突取消唐鳳視訊演講　台灣外交部召見駐韓代表「強烈不滿」
+
+台灣行政院政務委員唐鳳本月剛在美國「民主峰會」視訊會議二度發言時，遭「只聞其聲」方式處理，16日又遭南韓政府在會議當天，臨時通知取消線上演講邀請，台灣外交部發言人歐江安20日晚間表示，南韓稱取消原因為「考量兩岸關係各層面」。台灣外交部對此已召見南韓駐台北代理代表，表達「強烈不滿」，台灣駐韓代表也向韓方表達「嚴正抗議」。
+
+<figure>
+<img src="https://web.archive.org/web/20220520132659im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/兩岸關係-台灣外交-20211220220110_19a1_large.png" alt="">
+</figure>
+
+南韓16日舉辦「2021第4次工業革命全球政策會議」(The 4th Global Policy Conference on the 4th Industrial Revolution)，唐鳳原本在今年9月就已應邀在「社會創新」場次，以「台灣數位社會創新」（Taiwan’s Digital Social Innovation）為題發表演講；議程中，原本議程則以「台灣數位部長(Digital Minister, Taiwan)」稱呼唐鳳。
+
+台灣外交部發言人歐江安表示，會議當天上午7點50分，舉辦此會議的南韓「第四次工業革命委員會」卻突然發出電郵，通知唐鳳辦公室取消此會議邀請，並稱原因為「考量兩岸關係各層面」（Various aspects of cross-Strait issues were taken into consideration）。
+
+台灣外交部晚間表示，「對於韓方的失禮行為，外交部已召見韓國駐台北代表部代理代表表達強烈不滿，我國駐韓國代表處唐殿文大使也同步向韓方表達我國政府的嚴正抗議」。歐江安說，台灣駐南韓代表處向韓方抗議時，該委員會並未說明取消唐鳳視訊參與視訊原因。
+
+台灣本月9、10日受邀參加美國首屆「民主峰會」視訊會議，唐鳳在10日「科技與民主」的「對抗數位威權主義及肯定民主價值」分組討論擔任與談人，卻傳出因首次發言時，簡報畫面出現一張南非人權組織CIVICUS所做的「公民活動空間自由度」的「中國、台灣有別」地圖，讓白宮大為驚愕，以致在唐鳳二度發言時，「只聞其聲」，未見其視訊；美國國務院事後稱，「是無心之過」，但美國參議員盧比歐（Marco Rubio）仍於14日致函美國總統拜登（Joe Biden），要求說明清楚。

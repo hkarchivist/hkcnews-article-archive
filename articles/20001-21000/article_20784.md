@@ -1,0 +1,51 @@
+---
+title: "從《向西聞記》反思香港房屋問題"
+date: "2019-05-26"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "公營房屋"
+  - "向西聞記-碌架床"
+  - "新加坡組屋"
+url: "https://web.archive.org/web/20210712025834/https://www.hkcnews.com/article/20784/%E5%90%91%E8%A5%BF%E8%81%9E%E8%A8%98%E7%A2%8C%E6%9E%B6%E5%BA%8A-%E6%96%B0%E5%8A%A0%E5%9D%A1%E7%B5%84%E5%B1%8B-%E5%85%AC%E5%B1%8B%E6%88%BF%E5%B1%8B-20784/%E5%BE%9E%E3%80%8A%E5%90%91%E8%A5%BF%E8%81%9E%E8%A8%98%E3%80%8B%E5%8F%8D%E6%80%9D%E9%A6%99%E6%B8%AF%E6%88%BF%E5%B1%8B%E5%95%8F%E9%A1%8C"
+original_url: "https://www.hkcnews.com/article/20784/%E5%90%91%E8%A5%BF%E8%81%9E%E8%A8%98%E7%A2%8C%E6%9E%B6%E5%BA%8A-%E6%96%B0%E5%8A%A0%E5%9D%A1%E7%B5%84%E5%B1%8B-%E5%85%AC%E5%B1%8B%E6%88%BF%E5%B1%8B-20784/%E5%BE%9E%E3%80%8A%E5%90%91%E8%A5%BF%E8%81%9E%E8%A8%98%E3%80%8B%E5%8F%8D%E6%80%9D%E9%A6%99%E6%B8%AF%E6%88%BF%E5%B1%8B%E5%95%8F%E9%A1%8C"
+---
+
+# 從《向西聞記》反思香港房屋問題
+
+【撰文：江啟安】
+
+最近除了大台的《鐵探》外，香港也有另一套短劇《向西聞記》在Netflix上映，其中 〈碌架床〉 的故事，更成為網上熱話。故事的主線是探討當一家六口居住在一個極度狹小的空間，會出現什麼鬧劇，戲劇當然是以超乎現實的方法講述故事，以達到諷刺香港社會荒謬的目的。不知道外國觀眾看過後，會否對香港這個國際城市有新的解讀？只是，類似 〈碌架床〉 這樣的荒謬，正正在香港每天上映，難怪編劇作家不愁沒有題材。
+
+
+{{< video src="https://web.archive.org/web/20210712025834if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FhmvDigitalChinaGroup%2Fvideos%2F662195130899006%2F&show_text=0&width=560" >}}
+
+
+香港樓貴夾細，享負盛名。近年，外國更開始常用「香港化」（Hong Kongization）一詞，來形容樓價越來越高；又或者形容住屋面積越來越細。這樣受到國際肯定，作為香港人，也只能心中苦笑。問題是，如何突破這個困局？
+
+每每說到房屋問題，有些人最喜歡以新加坡作比較；當年獅城派人來香港參考公屋，結果發展出自己的組屋政策。例如當年輕人擔心結婚後與父母同住時，新加坡政府便發展出一套房屋，讓三代人可以同堂，位於女王鎮的 [[email protected]](https://web.archive.org/web/20210712025834/http://www.scdaarchitects.com/architecture/skyterracedawson) 便是一例，透過這類多代同堂的相連單位，年輕人既可以一盡孝道，孫子一輩也可以交由祖父母照顧，可以說是一箭雙鵰。當今天香港人仍在爭拗不休的時候，新加坡的房屋政策已經到了香港人望塵莫及、「望樓輕嘆」的地步。
+
+<figure>
+<img src="https://web.archive.org/web/20210712025834im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/新加坡組屋-新加坡-20190526200056_afbd_large.jpg" alt="">
+<figcaption>供三代同堂居住的新加坡組屋[email protected]。照片來源：scdaarchitects.com</figcaption>
+</figure>
+
+在早前一個由本地智庫舉辦的研討會上，新加坡國家發展部長黃循財表示他們正運用在荷蘭習來的「汙田」填海技術，於德光島進行工程，而透過興建高於海平線的海堤，不但能應對極端天氣導致的海平面上升，更能減少約四成的海砂使用量。但在香港一提到填海，就好像某些歧視字眼般，令部份持份者聞「海」變色，馬上會惹來一堆環保人士反對，任何先進的技術一概不談，如何減少對海洋生態影響的方法也一概不聽，社會被迫原地踏步。
+
+要達成社會共識，從來不容易。除了政府要以新思維尋找突破困局的方法外，市民大眾在想及下一代的房屋供應時，實在應該「拋開彼此心中矛盾」，才有機會與時間競賽，舒緩香港人住屋的問題，建構理想家園。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712025834/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20210712025834im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

@@ -1,0 +1,42 @@
+---
+title: "專注力不足及過度活躍症"
+date: "2018-07-04"
+last_updated: "2018-07-05 21:54:18"
+author: "香港藥學服務基金"
+category: "眾說"
+tags:
+  - "藥物"
+  - "過度活躍症"
+  - "專注力不足"
+url: "https://web.archive.org/web/20221006135712/https://www.hkcnews.com/article/13285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 專注力不足及過度活躍症
+
+世界衞生組織指出，「沒有精神健康就沒有健康」。政府非常重視市民大眾的精神健康，同時認為精神健康不單只牽涉醫療護理，在二零一三年五月成立精神健康檢討委員會。在檢討進行期間，相關的政府決策局、部門和醫院管理局已同時根據檢討委員會的初步建議，推出多項加強精神健康服務的措施，涵蓋心理健康推廣、兒童及青少年精神健康服務、成人精神健康服務，以及長者認知障礙症支援服務等。
+
+不過，在兒童及青少年精神健康方面，資源似乎仍有待改善。全港估計有超過40,000 名兒童及青少年患上專注力不足及過度活躍症（ADHD） 。由2012至2017 年，醫管局確診18 歲以下的兒童及青少年的人數於5 年間上升近５成，但期間，精神科醫生的人數並沒有大幅增加，導致輪候專科服務時間增長。新症輪候時間由2012/13 年度的平均5.3 個月升至2016/17 年度的15.9 個月。精神科醫生數量增幅緩慢是導致輪候治療時間長的其中一個原因之一，而現時更只有五個醫管局轄下的醫院聯網有提供兒童精神科服務，包括新界東、新界西、九龍東、九龍西及港島西。
+
+ADHD延醫後果可以非常嚴重，患者會感覺焦慮、抑鬱、成績落後，導致自我價值低，影響身心及人際發展；成長後也較易出現未婚懷孕、濫用藥物或酒精，甚至因衝動而犯事，後果非常嚴重。幸好，有非政府組織新生精神康復會聯合商界，由周大福慈善基金提供援助，資助正輪候公營精神科的兒童，到私家精神科診所就診。現時計劃共有23名私家精神科專科醫生參與，已處理超過270 個ADHD個案。政府應大力支持這種商業關心社區的模式，因為現時修讀精神科專科的醫生已經增加，只要多支持六年左右，病人首次等候到公立醫院求診的時間將可大大減少。
+
+<figure>
+<img src="https://web.archive.org/web/20221006135712im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/藥物-過度活躍症-專注力不足-20180704104909_1b99_large.png" alt="">
+<figcaption>長效䆁放的哌醋甲酯（Methylphenidate）</figcaption>
+</figure>
+
+曾經有報道指台灣有補習社讓小朋友服食哌醋甲酯（Methylphenidate） ，使學生更加專心上課。有人曾濫服此藥備戰考試，聲稱有助專注力提高。這類所謂「聰明藥」實為受管制的危險藥物和註冊處方藥劑製品。哌醋甲酯（其品牌名稱：利他林）為中樞神經興奮劑，用來醫治過度活躍症及注意力不足，改善中樞神經傳導物多巴胺的水平，從而改善集中力，七成半患者服用後，病情明顯改善。正常學生服用後，會使腦內的化學傳導物變得不平衡，短期或許未察覺到其害處的徵兆，但腦內化學傳導物不平衡，服食後可能出現情緒不穩，睡眠困難等情況。要知道藥物的設計，原先是為了患有專注力不足的患者，正常學生服藥後必會影響其腦部多巴胺的水平，副作用因而產生。
+
+對於真正患有注力不足及過度活躍的小朋友，規律的藥物治療配合行為輔導，能幫助他們順利發展社交技能及融入學校生活。哌醋甲酯有不同的釋放系統，有短效、中效及長效。配合患者需要。短效的藥物維持四小時左右，對於全日制的學生，除了早上服藥外，中午亦須再服一次。若忘記的話，患者在學校的表現可能變得不穩定。中效的藥物除了服藥後首半時藥力䆁放外，四小時後再有另一次藥力䆁放，整體藥力維持大約八小時。至於長效䆁放劑型，其實，其外殼含有百份之二十二的藥力會先在首三十分鐘被䆁放，然後內裏的藥會隨後慢慢在腸道滲出，整體藥力維持大約十二小時。比較中效的製劑，長效䆁放劑型的藥力能夠平穩地在身體內發揮，減少小朋友表現波動的情況。詳情可參考以下短片: [http://www.youitv.com/partner/drug/](https://web.archive.org/web/20221006135712/http://www.youitv.com/partner/drug/watch?v=0217c6dIZxSjeZH&c=&page=)   
+   
+ **香港藥學服務基金**   
+ **電話：2979 0380**   
+ **電郵： [[email protected]](/web/20221006135712/https://www.hkcnews.com/cdn-cgi/l/email-protection)**
+
+---
+
+![博客 | 香港藥學服務基金](https://web.archive.org/web/20221006135712im_/https://www.hkcnews.com/uploads/avatars/209654a4-f591-4d1a-8302-fdb77a6fdad1.png?1504833207)
+
+**博客 | 香港藥學服務基金**
+
+【香港藥學服務基金・藥釋重負】香港藥學服務基金成立於2007年，是一個政府註冊的非牟利慈善組織。機構由一群藥劑師成立，為安老院舍提供藥劑服務，並與善長和製藥公司提供資助計劃，協助患者購買藥物。

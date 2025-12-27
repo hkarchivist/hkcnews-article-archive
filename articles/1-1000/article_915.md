@@ -1,0 +1,57 @@
+---
+title: "林鄭：梁振英若角逐連任　我一定不參選"
+date: "2017-01-16"
+last_updated: "2017-01-16 21:47:46"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "行政長官"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+url: "https://web.archive.org/web/20211028152938/https://www.hkcnews.com/article/915/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/915/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭：梁振英若角逐連任　我一定不參選
+
+<figure>
+<img src="https://web.archive.org/web/20211028152938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/特首選戰-HK-林鄭月娥-20170116181205_2aa5_large.jpg" alt="">
+<figcaption>林鄭月娥今午在陳智思陪同下舉行記招，她不時低頭手托眼鏡。何君健攝</figcaption>
+</figure>
+
+林鄭月娥在北京宣布接納她辭去政務司司長職務之後3小時，在灣仔會展舉行記者會，正式宣布參選行政長官。有別於過去一年，她經常在人前穿著不同顏色的旗袍，林鄭月娥今日穿上一件灰白色襯衣及大褸、黑色長褲，面對大批記者拍照時，她像學生一樣將雙手交叉放前，說話的聲調明顯放輕，臉上再沒她早前出鏡時為西九故宮爭議解畫時的凌厲眼神。
+
+至於同日獲北京接納辭去財政司司長職務的曾俊華，在林鄭月娥開記者會前1小時發表聲明表示：「在休假期間，我就是否參加2017年行政長官選舉這事，作了認真和詳細的考慮。我將在日內舉行記者招待會，公佈我的决定。記者招待會的詳情，容後公佈。」
+
+林鄭月娥今日與她的競選辦主任陳智思一同舉行記者會，前廣播處副處長戴健文也有現身會場，他稱自己是來「做義工」。林鄭月娥記招佈景版沒有口號，只是簡單的藍白色香港景圖案。她今日在會上未有公布詳細政綱，只表示自己熱愛香港、為年輕一代參選，願意肩負重任，與廣大市民再創高峰。
+
+林鄭月娥稱，如果特首梁振英爭取連任的話，她一定不會參選。記者追問原因時，她先回答不會再多做一屆政務司司長，因希望退下來陪伴家人；但後來梁振英因家庭理由不連任，她希望將良好施政可延續下去。
+
+當被問到她是否「梁振英2.0」、「延續梁振英路線」時，林鄭月娥重申，希望將房屋、扶貧、環境等好的政策延續，又說不會以批評現屆政府為基礎，但有可以做得更好的地方，「如果怕被批評，就不要做事，但我每日返工，都係希望多做一件事。」
+
+她承認，去年12月10日說「不得不重申考慮」參選特首之後有接觸過中央官員，「但唔係尋求欽點。」被問到一旦當選會否為《基本法》23條立法，她說這是憲制責任，任何政府都應該審時度勢。至於會否重啟她任內負責的政改，她說希望務實並先處理經濟民生問題。
+
+被指跟李嘉誠關係友好的夏佳理是林鄭月娥競選辦主席團成員，被問到夏佳理的出現，是否代表李嘉誠支持她，林鄭月娥說，她98年在庫務科工作時，已認識當時是立法會議員的夏佳理；她當社會福利署署長時，夏佳理是馬會主席，在慈善撥款方面有合作。之後她和夏佳理一同出任西九董事局正、副主席，她找夏佳理是因兩人多年交情，與夏的商界關係無關係。她又重申，自己支持自由經濟，奉行資本主義，陳智思之後補充說，對於有人話林鄭月娥是社會主義者的說法並不正確。
+
+林鄭月娥今天沒有公布競選班底，傳聞中的劉鳴煒、李律仁等都沒有出現。她的競選辦公室有主席團及顧問團成員，據悉選址位於灣仔會展辦公大樓，2月3日會有另一場造勢活動。林鄭月娥舉行記招之後，5年前曾參選特首的全國政協常委唐英年發表聲明表示歡迎及支持，他指出：「下屆行政長官和特區政府在未來五年，將會肩負起多項重要任務，包括團結社會、改善民生和發展經濟。所以，會鼓勵所有有能力、有志向者參選行政長官。」
+
+<figure>
+<img src="https://web.archive.org/web/20211028152938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/林鄭月娥-特首選戰-Hong%20Kong-20170116181105_7191_large.jpg" alt="">
+<figcaption>今天沒穿旗袍的林鄭月娥，在藍白色的香港佈景前宣布參選特首。何君健攝</figcaption>
+</figure>
+
+相關新聞   
+ [林鄭稱改善管治 班子注入新血](https://web.archive.org/web/20211028152938/https://www.hkcnews.com/article/921/%E6%9E%97%E9%84%AD%E7%A8%B1%E6%94%B9%E5%96%84%E7%AE%A1%E6%B2%BB-%E7%8F%AD%E5%AD%90%E6%B3%A8%E5%85%A5%E6%96%B0%E8%A1%80)   
+ [特寫：林鄭欠激情 陳智思搶白](https://web.archive.org/web/20211028152938/https://www.hkcnews.com/article/922/%E7%89%B9%E5%AF%AB%EF%BC%9A%E6%9E%97%E9%84%AD%E6%AC%A0%E6%BF%80%E6%83%85-%E9%99%B3%E6%99%BA%E6%80%9D%E6%90%B6%E7%99%BD)   
+ [忐忑的林鄭月娥](https://web.archive.org/web/20211028152938/https://www.hkcnews.com/article/920/%E5%BF%90%E5%BF%91%E7%9A%84%E6%9E%97%E9%84%AD%E6%9C%88%E5%A8%A5)   
+ [林鄭曾俊華理財觀貌合神離](https://web.archive.org/web/20211028152938/https://www.hkcnews.com/article/902/%E6%9E%97%E9%84%AD%E6%9B%BE%E4%BF%8A%E8%8F%AF%E7%90%86%E8%B2%A1%E8%A7%80%E8%B2%8C%E5%90%88%E7%A5%9E%E9%9B%A2)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028152938/https://www.hkcnews.com/aboutus/#subscribe)

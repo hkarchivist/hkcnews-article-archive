@@ -1,0 +1,83 @@
+---
+title: "【教師釘牌】宣道小學資深教師被釘牌　校內調查：沒宣揚港獨　教局連坐處分6老師"
+date: "2020-10-06"
+last_updated: "2020-10-06 22:58:38"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "港獨"
+  - "香港独立"
+  - "香港獨立"
+  - "香港獨立運動"
+  - "香港民族"
+  - "教師釘牌"
+  - "宣道小學"
+url: "https://web.archive.org/web/20210730015822/https://www.hkcnews.com/article/34545/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34553/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34545/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34553/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【教師釘牌】宣道小學資深教師被釘牌　校內調查：沒宣揚港獨　教局連坐處分6老師
+
+九龍塘宣道小學一名教師被教育局指在教學時宣揚港獨信息，被當局以「嚴重專業失德」為由，取消其教師註冊，另外該校校長及副校長收譴責信，其餘3名採用教材的老師則收到書面警告。據了解，學校本來向教育局提交的內部調查報告，結論是未有發現老師「有計劃地在課堂散播港獨信息」，不過最終教育局仍決定對該校6名老師作出處分。
+
+[【教師釘牌】教育局指課程花長篇幅討論港獨　楊潤雄：港獨不應作開放式討論](https://web.archive.org/web/20210730015822/https://bit.ly/3jDBWAB)
+
+[【教師釘牌】首引用「嚴重專業失德」理由　被指宣揚港獨老師終生失教席　常秘「覺得」不稱職可釘牌](https://web.archive.org/web/20210730015822/https://bit.ly/3iyDlXJ)
+
+<figure>
+<img src="https://web.archive.org/web/20210730015822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/教師釘牌-宣道小學-20201006194752_1aea_large.png" alt="">
+<figcaption>宣道小學為九龍城名校。宣道小學網頁截圖</figcaption>
+</figure>
+
+宣道小學是由基督教中華宣道會辦學的私立小學，屬於區內名校。據了解，有關教材來自宣立小學的校本課程「生活教育科」。該科目2000年推出，課程圍繞學生成長，例如處理壓力、手機成癮等。另外低年級會加入國民教育，例如「認識祖國」、「我是中國人」等課題；高年級則會觸及時事議題，曾討論的課題包括英國脫歐、北韓問題、伊斯蘭國等。
+
+知情人士指，該名涉事老師為資深老師，頗受學生歡迎，今年新學年仍有教書，上月收到被註銷註冊的通知後即時離任。
+
+知情人士指，涉事老師並沒有任教該課程，只是負責編製該一課節的教材。該堂課是去年3月教授，對象為小五、小六學生，課時為2小時。該課的主題是言論自由，由於當時民族黨被取締是熱門話題，故採用香港電台鏗鏘集的《觸不到的紅線》為教材。據知情人士指，該課堂的教材亦包括《基本法》及《世界人權宣言》對言論自由的描述等，學生在課堂上看畢影片後填寫工作紙，沒有預設特定答案，亦不存在不可帶工作紙回家的說法。他指，截至去年9月前，都未有出現投訴，故校方去年9月收到投訴後感到非常震驚。
+
+<figure>
+<img src="https://web.archive.org/web/20210730015822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/教師釘牌-宣道小學-20201006194741_2e45_large.jpg" alt="">
+<figcaption>被指散播港獨信息的工作紙。網上圖片</figcaption>
+</figure>
+
+**綜合消息及教育局資料，以下為整個處理投訴的時序：**
+
+**去年3月：** 老師使用有關教材教授該節課堂。
+
+**去年9月：** 《大公報》報道指，有老師設計了一份討論「港獨」為題的工作紙予小五學生。
+
+**去年9月：** 學校收到教育局通知，表示收到家長投訴。學校先作校內調查，向老師了解及審視教材後，不認為指控成立，沒有作任何處分。
+
+**去年9月：** 教育局突擊派員到學校了解，會見學校管理層及涉事老師，亦有抽樣面見數名學生。局方有問及學生對「生活教育科」最有印象的內容、課堂上有否提及港獨、學生本人是否支持港獨等。
+
+**今年3月：** 教育局要求校方兩周內完成有關投訴調查。
+
+**4月：** 校方向教育局提交調查報告，結論是未有發現老師有計劃地在課堂散播港獨信息，但表示若然局方認為有問題可作改善。
+
+**6月：** 教育局發信予6名教職員，包括涉事老師、校長和副校長，及3名採用教材的老師，通知他們涉及專業失德的投訴初步成立，容許他們作書面申述。
+
+**7月：** 涉事老師被通知將被註銷註冊，再次提交書面申述。校長及副校長收到譴責信，其餘3名採用教材的老師則收到書面警告。
+
+**9月：** 教育局通知涉事老師被正式註銷註冊。
+
+據知情人士指，校內的生活教育科仍會繼續，但有關時事或敏感題目的處理，相信以後會更小心，「尤其是有國安法。」他亦不解教育局指涉事老師有計劃在課堂散播港獨信息的說法，指有關課題只教授過一次，又舉例指學校是基督教學校，經常舉辦宗教活動，但也非每個學生都信奉基督教，「用2個鐘可以說服到，係天荒夜譚。」
+
+有份跟進個案的教育界立法會議員葉建源批評，教育局未有就有關投訴召開聆訊，涉事老師未有機會即場辯解。
+
+葉建源指，會先根據《教育條例》提出上訴，程序上會由特首委任的上訴委員團中抽出5人，以聆訊方式處理，其權力可推翻原來決定。如維持原判，會再向特首及行會上訴。如最後結果仍沒改變，會向法庭申請司法覆核。
+
+他指，註銷教師註冊是嚴重處分，包括永久不能再教書、不能註冊補習社、不能進入學校等，原本是處理對兒童不利的罪行，批評是次處分是遠超合理範圍。
+
+《大公報》去年9月報道，指宣道小學有老師讓小五學生做一份討論「港獨」為題的工作紙，要求學生先觀看港台去年9月播出訪問陳浩天鼓吹「港獨」內容，再完成工作紙。不過，整集 [《鏗鏘集：觸不到的紅線》](https://web.archive.org/web/20210730015822/https://www.youtube.com/watch?v=jCeH6vEKREI) ，並沒有陳浩天的訪問，僅有播出他在外國記者會的發言片段。
+
+
+{{< video src="https://web.archive.org/web/20210730015822if_/https://www.youtube.com/embed/jCeH6vEKREI" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210730015822/https://www.hkcnews.com/aboutus/#subscribe)

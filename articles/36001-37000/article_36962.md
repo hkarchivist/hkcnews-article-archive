@@ -1,0 +1,45 @@
+---
+title: "黎智英保釋案　如何裁決影響深遠"
+date: "2021-01-04"
+last_updated: "2021-01-04 22:16:10"
+author: "王永平"
+category: "眾說"
+tags:
+  - "終審法院"
+  - "香港終審法院"
+  - "黎智英"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210729141841/https://www.hkcnews.com/article/36962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36969/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36969/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 黎智英保釋案　如何裁決影響深遠
+
+<figure>
+<img src="https://web.archive.org/web/20210729141841im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/終審法院-黎智英-20201231220849_428c_large.jpg" alt="">
+<figcaption>黎智英大除夕被判再度還柙，圖為他離開終審法院登上囚車。美聯社</figcaption>
+</figure>
+
+終審法院批出律政司就壹傳媒創辦人黎智英的保釋上訴許可，也同時批出臨時羈押令，即是在直至上訴案有結果前，不讓黎智英繼續保釋。處理此案的3位國安法指定法官馬道立，李義和張舉能認為，律政司的上訴有合理爭辯的地方，因此批出許可。判詞指，最終上訴是否得直或被推翻，主要涉及終審法院如何詮釋《香港國安法》第42條，從而決定早前高等法院法官李運騰批准黎智英保釋是正確還是錯誤。至於為何終審法院不讓黎智英在上訴期間繼續保釋，判詞解釋此舉是基於兩個理由。首先，容許黎智英繼續保釋等同假設高院的決定為正確，而這正是上訴須處理的問題。其次，法庭接受控方的關注，即黎智英繼續保釋可能會作出危害國家安全的行為，並造成無可挽救的後果。為了減少取消保釋對黎智英的影響，終審法院把上訴案盡早排期於2月1日開審。
+
+正如大律師公會副主席葉巧琦指出，每宗上訴都是爭議之前決定的對錯，質疑為何黎智英卻因此不獲保釋。至於終審法院信納控方對黎智英可能在保釋期間危害國家安全，判詞對此並沒有進一步分析和結論。
+
+早前黎智英獲准保釋，遭到《人民日報》猛烈批評為錯誤決定，嚴重傷害香港法治，並提到有很多港人呼籲，駐港國安署可依法果斷介入。今次終審法院批出上訴許可，並把黎智英還柙，相信會被視為回歸正軌的第一步。但終審法院稍後如何審理上訴，作出甚麼決定，基於甚麼理據等，不僅中央關注，也是香港司法制度向全世界，包括在香港有重大經濟金融利益的國際人士，示範其運作是否依然獨立，以及裁決是否符合普通法的原則和《公民權利和政治權利國際公約》的規定。必須指出，雖然終審法院表示會就上訴案詮釋國安法第42條，但該法第65條明確規定，整個法案的解釋權屬全國人大常委會。因此，黎智英保釋上訴案的審理過程和最終決定，會是香港法治以至一國兩制一個前所未有的重大測試。
+
+本文原載於筆者在 [am730專欄](https://web.archive.org/web/20210729141841/https://www.am730.com.hk/column/%E6%96%B0%E8%81%9E/%e9%bb%8e%e6%99%ba%e8%8b%b1%e4%bf%9d%e9%87%8b%e6%a1%88-%e5%a6%82%e4%bd%95%e8%a3%81%e6%b1%ba%e5%bd%b1%e9%9f%bf%e6%b7%b1%e9%81%a0-250040)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729141841/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20210729141841im_/https://www.hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

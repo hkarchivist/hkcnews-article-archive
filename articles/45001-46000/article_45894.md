@@ -1,0 +1,53 @@
+---
+title: "陳茂波「變臉」稱示威衝擊金融　2019年屢稱運作如常　下調評級引述疑誤導"
+date: "2021-09-28"
+last_updated: "2021-09-29 11:34:22"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "陳茂波"
+  - "發展局局長"
+  - "Secretary for Development"
+  - "香港營商環境報告"
+url: "https://web.archive.org/web/20211027140343/https://hkcnews.com/article/45894/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45898/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45894/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45898/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳茂波「變臉」稱示威衝擊金融　2019年屢稱運作如常　下調評級引述疑誤導
+
+財政司司長陳茂波昨日發表《香港營商環境報告》，批評2019年反修例示威及美國對華對港措施，共74頁的報告當中，不乏與政府甚至陳茂波本人過去論調有異的篇幅。例如報告第一章其中一節，指控反修例示威「對金融穩定及金融安全造成一定影響」，內文提及「黑暴嚴重影響香港金融機構的正常運作，並對金融穩定和金融安全造成一定的風險」，並舉例中資銀行被破壞、跨國金融機構要「耗費大量精力和資源」規劃應變方案等，形容削弱香港競爭力。
+
+不過，眾新聞翻查資料，陳茂波本人在2019年下半年幾乎從未提出相同的論述。2019年8月7日，陳茂波出席金融督導委員會 [後見記者](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/201908/07/P2019080700816.htm) ，強調銀行及貨幣體系「非常健康」，全場甚至無提及「安全」二字。同年10月特首會同行政會議通過引用《緊急法》制訂《禁蒙面法》，當日恆指顯著下跌，陳茂波 [當日在記者會上說](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/201910/04/P2019100400916.htm) ，「大家回顧過去這三個多、四個月，香港發生的社會事件相當激烈，但你見到我們的金融市場、股票市場、銀行體系仍是很有秩序地運作，很平穩」。
+
+陳茂波同期亦多次外訪，包括美國華盛頓及 [英國倫敦](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/201910/30/P2019103000106.htm) 唱好香港金融「穩健並運作暢順」，例如在2019年10月18日，以中國代表團身份出席國際貨幣基金組織及世界銀行集團年會大會，期間與評級機構穆迪和標準普爾代表會面。政府新聞稿 [引述陳茂波重申](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/201910/19/P2019101900290.htm) ，「即使近期出現社會事件，香港金融市場和銀行體系在過去數月一直運作如常，核心競爭力亦未受近月的社會事件影響」。
+
+<figure>
+<img src="https://web.archive.org/web/20211027140343im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/finance-陳茂波-香港營商環境報告-20210927201753_207e_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+《香港營商環境報告》中續稱，「暴亂對香港的信譽和競爭力也造成嚴重的負面影響。例子之一，就是兩家國際信貸評級機構在2020年1月和4月先後以社會動盪損害營商環境和政治穩定為由，下調香港的信貸評級。」
+
+翻查資料，主要評級機構中，穆迪及惠譽2020年1月及4月分別下調香港評級，不過，根據當時評級報告及傳媒報導，兩個機構針對港府未能處理管治問題及其後疫情等因素，決定下調評級，《香港營商環境報告》卻跳過港府角色，有誤導之嫌。
+
+根據《星島日報》去年1月報道：「評級機構穆迪將香港信貸款評由『Aa2』下調至『Aa3』，評級展望則由『負面』調整為『穩定』。下調評級主要反映香港體制及管治能力低於先前估計，香港沒有實切可行的計畫解決過去九個月的政治、經濟及港人所關注的社會問題，或顯示其本身體制能力較穆迪此前評估為弱，而特區政府的自主權所受的制約比之前想像更大。」
+
+記者再翻查穆迪當時的 [評級報告](https://web.archive.org/web/20211027140343/https://www.moodys.com/research/Moodys-downgrades-Hong-Kongs-rating-to-Aa3-changes-outlook-to--PR_415515) ，當中提及四點因素將評級由Aa2下調至Aa3：「行政及立法機關無法有效處理問題、港府回應社會深層次問題緩慢及不均、進而影響香港管治制度及限制高度自治，外國政府評估香港自治下可能損失香港競爭力及政策有效性」，並沒有《香港營商環境報告》所描述的「社會動盪損害營商環境和政治穩定」（social turmoil had jeopardised the place’s business environment and political stability.）。
+
+至於惠譽的評級，根據《文匯報》去年4月的報道：「惠譽昨解釋下調香港評級理據，指為遏制新冠疫情的限聚令等措施，令零售、訪港旅客人數，機場流量和國際貿易等，極大可能在今年上半年繼續疲軟，導致經濟活動萎縮和失業率上升，這些挑戰令香港的營商環境和政治穩定造成一定程度的損害，加劇了負面評級趨勢。此外，香港根深蒂固的社會政治分歧仍未解決，這給商業環境帶來了揮之不去的不確定性，並增加了公眾不滿情緒再度爆發的風險，這也可能會進一步破壞國際社會對香港的治理，體制和政治穩定的看法。」
+
+無獨有偶，政府當時公開回應，表明 [不認同兩個評級機構的評估內容](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/202001/20/P2020012000888.htm) ，或批評 [其沒有事實基礎](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/202004/20/P2020042000730.htm) ，如今卻被政府不點名在《報告》中引為所用。時任政務司司長張建宗 [以署理特首身份回應時](https://web.archive.org/web/20211027140343/https://www.info.gov.hk/gia/general/202001/21/P2020012100395.htm) ，曾批評穆迪對香港評級不公平，「純粹用一個管治角度去看是不對的」。
+
+對於港府有否不準確引述甚至扭曲評級報告，眾新聞分別向兩間評級機構查詢，惠譽表示不予置評，穆迪則在截稿前未回覆。
+
+獲中聯辦、港澳辦、外交部駐港特派員公署表態支持的《香港營商環境報告》亦出現過去港府甚少使用的描述，例如形容2019年反修例示威期間，「在制約暴徒的過程中，香港警方保持克制，在長達多月的行動中並無執法導致死亡個案。」（第10頁）（In the process of subduing rioters, the Hong Kong Police Force exercised restraint: there had been no death resulting from enforcement actions in the monthslong operations.）
+
+在描述抗疫及經濟復甦的內容當中，《報告》形容香港「成功戰勝了一波又一波的疫情」，「樓市氣氛維持正面，交投甚為活躍，樓價保持堅挺」等。（第26頁）
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027140343/https://hkcnews.com/aboutus/#subscribe)

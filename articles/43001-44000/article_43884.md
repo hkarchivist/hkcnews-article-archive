@@ -1,0 +1,61 @@
+---
+title: "子孫移民　留港長者失落　情緒受困按平安鐘求助　半年急升近百宗"
+date: "2021-08-02"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "移民"
+  - "平安鐘"
+  - "長者安居協會"
+url: "https://web.archive.org/web/20210928110858/https://hkcnews.com/article/43884/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43884/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43884/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43884/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 子孫移民　留港長者失落　情緒受困按平安鐘求助　半年急升近百宗
+
+**社會環境導致不少香港人離開家園，年邁的上一代送別年輕下一代的畫面不斷在機場上演。長者安居協會今年前所未有接獲92宗因移民導致的長者求助個案，當中近兩成有情緒問題，需轉介社工跟進。協會指，有婆婆更因為孫兒移民，感到失落出現自殺傾向。**
+
+**協會發言人表示，不少長輩由孫兒出世便一直從旁照顧，與孫兒關係親密，當子女一家決定移民時，往往令他們大感不捨和空虛，因此建議若子女決定移民後，應及早告知長者，坦誠溝通，不要隱瞞，可教導長者使用視像通訊，讓他們做好心理準備。**
+
+**採訪︳記者張凱傑　實習記者黃麗莎**
+
+<figure>
+<img src="https://web.archive.org/web/20210928110858im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/平安鐘-長者安居協會-20210729223714_27e5_large.jpg" alt="">
+<figcaption>長者安居協會業務營運總監馮志恒（左）及社工蔡詠貞（右）指，今年或因社會氣氛影響，移民潮湧現，導致長者求助個案明顯上升。張凱傑攝</figcaption>
+</figure>
+
+### 5月起求助飆升　感不捨空虛生活缺失
+
+長者安居協會由今年截至7月底，共接獲92宗涉及移民的平安鐘求助個案，最近三個月更急劇上升，由年初每月只有個位數，至單是5月已飆升至29宗，往後的6月和7月亦分別收到雙位數字的求助，合共34宗。業務營運總監馮志恒指出，過往未曾接獲涉及移民的按鐘求助，今年起陸續出現，數字更明顯上升，且預料未來仍會持續。她指，受社會氣氛影響，不少港人移民，協會在過去半年亦接獲平安鐘用戶要求，新增非本地聯絡方式作為緊急聯絡人。
+
+協會指，在求助個案當中，平均年齡為80歲，獨居長者佔近六成。部分長者擔心未能照顧自己、無人協助安排覆診、經濟無人支援，因而出現情緒低落、失眠、孤獨及空虛等情緒困擾，近20宗求助個案需轉介給社工跟進。更有曾患情緒病的長者，得悉孫兒要移民後，衍生失落感，致萌生自殺念頭。
+
+社工蔡詠貞亦指出，不少年輕父母外出工作，照顧子女的責任很多時落在年老長輩身上，長輩伴隨孫兒成長。其中有個案是長者由孫兒出世後一直照顧，關係密切，惟兒子一家決定移民，令長者感到不捨及空虛，生活有所缺失。
+
+蔡詠貞解釋，部分長者因為身體狀況或擔心未能適應異地環境，不想「拖累」家人而選擇留港。部分長者健康狀況和自理能力不差，但始終心繫家人，除了擔心自己生活不習慣外，也擔心子女一家能否適應移民後的新環境，因而情緒受困。
+
+<figure>
+<img src="https://web.archive.org/web/20210928110858im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/平安鐘-長者安居協會-20210729223706_21af_large.jpg" alt="">
+<figcaption>協會建議，子女如計劃移民宜盡早告知長者，坦誠溝通不要隱瞞，留意長者的情緒反應。張凱傑攝</figcaption>
+</figure>
+
+### 平安鐘增「千里顧服務」　給海外子女報告情況
+
+協會建議，子女如計劃移民，宜盡早告知長者，坦誠溝通，同時給予時間讓長者消化和接受，否則有機會觸發長者出現情緒困擾。子女在離港前，可盡量爭取時間與長者相處，並委託多一個在港的聯絡人，有事起來都可作緊急支援，又可教導長者如何利用網上視像會議，讓他們更放心，明白即使相隔兩地，仍可看見彼此的生活。
+
+協會提醒，若長者屬健康人士，可為他們轉介至鄰近地區的長者中心，多認識新朋友，亦可參與團體活動或參與訓練課程，建立社交圈子之餘，又可裝備自己。若長者需要接受照顧，則要及早安排照料計劃，由專人代為處理日常所需。
+
+鑑於移民導致的求助個案上升，長者安居協會於本月起，在現有的平安鐘計劃增設24小時「千里顧服務」，每月向用戶遠在海外的子女提供長者活動報告，包括有沒有按鐘求助、入院、預約看醫生等，也會就健康、心理、社交、安全和自理範疇提供分析和建議。團隊會定期與長者聯絡了解需要，亦讓遠居海外的子女知道父母在港的生活和身體狀況。該新服務的月費由$199至$390不等，視乎新舊用戶、揀選平安鐘、平安手機、智能手錶等不同服務內容而定。
+
+<figure>
+<img src="https://web.archive.org/web/20210928110858im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/平安鐘-長者安居協會-20210729223722_1458_large.jpg" alt="">
+<figcaption>長者安居協會由8月起在平安鐘計劃增設24小時「千里顧服務」。張凱傑攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928110858/https://hkcnews.com/aboutus/#subscribe)

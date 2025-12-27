@@ -1,0 +1,67 @@
+---
+title: "QT案入境處終極敗訴　QT：7年來如二等公民　盼為性小眾平權踏前一小步"
+date: "2018-07-04"
+last_updated: "2018-07-04 22:51:16"
+author: "記者戴晴曦"
+category: "眾聞"
+tags:
+  - "同性婚姻"
+  - "QT案"
+  - "同性伴侶"
+url: "https://web.archive.org/web/20211207194339/https://www.hkcnews.com/article/13294/qt%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13308/qt%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-qt%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13294/qt%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13308/qt%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-qt%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# QT案入境處終極敗訴　QT：7年來如二等公民　盼為性小眾平權踏前一小步
+
+英籍女同志QT遭香港入境處拒絕受養人簽證申請，之後上訴得直。入境處早前在終審法院提出上訴，終院今日頒下 [判詞](https://web.archive.org/web/20211207194339/https://legalref.judiciary.hk/lrs/common/ju/ju_frame.jsp?DIS=116049&currpage=T) ，一致駁回入境處上訴，入境處並須支付訟費。QT對判決感到高興，批評政府過去7年拒絕承認她與伴侶的關係，令她猶如二等公民，希望本案為香港性小眾平權踏前一小步。
+
+女同志QT與SS，2011年5月在倫敦根據《民事伴侶法案》，透過民事結合（civil partnership）註冊為同性伴侶。同年，SS獲一間公司受聘來港，QT當時先持訪客簽證來港，其後兩度申請受養人簽證，隨SS逗留，但被入境處拒絕。入境處指，入境處政策中「spouse（配偶）」泛指一夫一妻的異性婚姻。QT於2014年提出司法覆核，在原訟庭敗訴，其後在上訴庭上訴得直。
+
+<figure>
+<img src="https://web.archive.org/web/20211207194339im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/10/上訴庭-同志平權-QT案-20171011020003_a098_large.jpg" alt="">
+<figcaption>QT對判決感到高興，希望本案為性小眾平權踏前一小步。資料圖片</figcaption>
+</figure>
+
+終院在判詞開首表示，案件對「法律面前人人平等」，以及入境處的受養人簽證政策有否構成歧視的議題，構成重要爭議。案件涉及兩項爭議點：QT是否受到不同而具歧視性的待遇；若是，該歧視性的待遇是否有理可據（justified）。不過，終院同時表明，本案不涉及同性伴侶有權根據本港法律結婚的議題。
+
+處方早前陳詞指香港法律只承認一男一女婚姻，多個案例亦表明婚姻有特殊地位，認為民事伴侶和已婚配偶存在明顯差異，所以QT的差別待遇毋須有理可據。終院反駁，英國法律下，民事伴侶和婚姻均受到認可。雖然民事伴侶不稱為婚姻，但在其他方面，差不多與已婚配偶無區別。
+
+終院在此論據援引的其中一個案例，涉及早前出任終院非常任法官何熙怡女男爵的案例，何熙怡女男爵當時表明，民事結合賦予同性伴侶與已婚夫婦一樣，履行同等的法律責任，以及享受一樣的權益。在英國法律下，民事伴侶在其他方面，與已婚配偶無區別。（Civil partnership is not called marriage but in almost every other respect it is indistinguishable from the status of marriage in United Kingdom law. It was introduced so that same sex couples could voluntarily assume towards one another the same legal responsibilities, and enjoy the same legal rights, as married couples assume and enjoy.）
+
+終院又指，入境處在回應「為甚麼QT的待遇比一個已婚的人差？」的問題上，只作「因為她沒有結婚」的答案，形容處方將被挑戰的待遇差別準則用作自己的理據，屬循環論證。
+
+上訴庭曾指出，婚姻獨有某些「核心權利和義務」，故已婚和未婚人士地位的不同不證自明，這些差別待遇不應被視為歧視。上訴庭首席法官張舉能舉例，離婚、領養、繼承遺產等屬於已婚伴侶的權利和義務，假如失去上述權利和義務，婚姻的法律地位便顯得微不足道（the legal status of marriage simply has little if any substance in law）。由於上訴庭認為，QT案的入境事務不屬核心權利，當時裁定QT上訴得直。
+
+終院不同意上訴庭這部分的說法，形容說法同屬循環論證，並令人陷入何謂屬於「核心」、何謂不屬於「核心」的徒勞辯論，做法不應遵從。終院認為，審視每件被指稱為歧視的案件時，應判斷當中的差別待遇是否有理可據，婚姻狀況亦不能假定地確定歧視並不存在。
+
+終院又指出，某些情況下，按已婚與否判斷是否授予某種權利屬合適做法，例如離婚權，但至於不屬已婚配偶的人是否享有領養或繼承遺產權，就不是很清晰。
+
+<figure>
+<img src="https://web.archive.org/web/20211207194339im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/同志運動-同樂運動會-Hong%20Kong-20170621170220_100b_large.jpg" alt="">
+<figcaption>終院質疑，入境處以性取向摒除申請人的申請後，如何推動嚴謹入境控制的合法目的，又認為政策與鼓勵外來人才的目的背道而馳。資料圖片</figcaption>
+</figure>
+
+終院認同上訴庭所指，一男一女婚姻下的配偶才獲發受養人簽證的政策，與政策鼓勵外來人才，以及保持嚴謹入境控制之目的沒有合理關聯，質疑處方以性取向摒除申請人的申請後，如何推動嚴謹入境控制的合法目的。政策與鼓勵外來人才的目的亦背道而馳，因具所需天份或技能的人可以是異性戀或同性戀者。
+
+終院亦不接受入境處以行政方便為由，以結婚證書劃界，令QT待遇有差別，認為QT與SS可像已婚夫婦交出結婚證書一樣，便利地交出民事伴侶證書，形容入境處的理由不合理。終院最終駁回入境處的上訴，並頒令處方支付訟費。
+
+
+{{< video src="https://web.archive.org/web/20211207194339if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F2033960656711980%2F&show_text=0&width=560" >}}
+
+
+QT今日未有到庭，透過律師韋智達讀出聲明。她對判決感到高興，認為法庭維護了她作為女同志的權利，亦有感自己為本港性小眾（LGBTI）的平權運動踏前一小步。她指，與政府打了一場持久戰，形容政府過去7年一直拒絕承認她與SS的民事伴侶關係，待她如二等公民，但今次裁決證明，性傾向的歧視等同其他歧視，會令人感到被冒犯和羞辱，同時有違本港的核心價值和法治精神，而「法律面前人人平等」的原則，性小眾群體亦同樣適用。
+
+QT指，在家庭關係方面，每個人應享有尊嚴、尊重和平等的對待，希望本案能為本港同性婚姻鋪路，讓男女同志和異性夫婦一樣享有同等待遇，以及履行相應的責任。她又感謝法律團隊、SS，以及一直支持她的同行者。
+
+韋智達認為，本案雖與同性婚姻無直接關係，但關乎對同性伴侶的認同，認為判決具標誌性。他又指，希望判決令政府意識到，現在是時候作出改變，是適當時機檢討本港同性婚姻政策，與其他國家接軌。
+
+保安局局長李家超表示，尊重法院裁決，入境處將細心研究判詞，取得法律意見後會作跟進。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207194339/https://www.hkcnews.com/aboutus/#subscribe)

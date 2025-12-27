@@ -1,0 +1,48 @@
+---
+title: "從李偲嫣之死，看後極權秩序的冷漠"
+date: "2020-12-24"
+last_updated: "2020-12-24 15:52:52"
+author: "法政匯思"
+category: "眾說"
+tags:
+  - "李偲嫣"
+url: "https://web.archive.org/web/20210306040413/https://www.hkcnews.com/article/36691/%E6%9D%8E%E5%81%B2%E5%AB%A3-%E6%92%90%E8%AD%A6%E5%A4%A7%E8%81%AF%E7%9B%9F-%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB-36703/%E5%BE%9E%E6%9D%8E%E5%81%B2%E5%AB%A3%E4%B9%8B%E6%AD%BB%EF%BC%8C%E7%9C%8B%E5%BE%8C%E6%A5%B5%E6%AC%8A%E7%A7%A9%E5%BA%8F%E7%9A%84%E5%86%B7%E6%BC%A0?fbclid=IwAR2P8htxZWZu-DQytWkA8iOXypv6p9bj52j6TDzDaXlNYafrznSm5D4wd8k"
+original_url: "https://www.hkcnews.com/article/36691/%E6%9D%8E%E5%81%B2%E5%AB%A3-%E6%92%90%E8%AD%A6%E5%A4%A7%E8%81%AF%E7%9B%9F-%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB-36703/%E5%BE%9E%E6%9D%8E%E5%81%B2%E5%AB%A3%E4%B9%8B%E6%AD%BB%EF%BC%8C%E7%9C%8B%E5%BE%8C%E6%A5%B5%E6%AC%8A%E7%A7%A9%E5%BA%8F%E7%9A%84%E5%86%B7%E6%BC%A0?fbclid=IwAR2P8htxZWZu-DQytWkA8iOXypv6p9bj52j6TDzDaXlNYafrznSm5D4wd8k"
+---
+
+# 從李偲嫣之死，看後極權秩序的冷漠
+
+【撰文：海熊】   
+   
+ 《香港國安法》通過，標示著香港完全進入後極權時代。自7月1日到現在，香港每天發生的事都使人喘不過氣來，年尾唯一值得高度關注，甚至讓部分網民「開香檳」的新聞，大概是香港著名親共「社運」領袖李偲嫣，因感染武漢肺炎離世。
+
+<figure>
+<img src="https://web.archive.org/web/20210306040413im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/第四波疫情-武漢肺炎-李偲嫣-20201217115141_2c9b_large.jpg" alt="">
+<figcaption>李偲嫣（1964年8月17日－2020年12月16日）</figcaption>
+</figure>
+
+李偲嫣應該是藍絲的始祖之一。2014年佔領運動期間，支持運動的人在Facebook換上黃絲帶頭像，而為了分庭抗禮，部分網民則換上藍絲帶頭像，頭像隨藍絲帶還寫了六個大字：「支持香港警察」。可見撐警是藍絲的「中心思想」，李偲嫣多年來身體力行，除成立撐警組織，搞撐警遊行和機會，更親自獻花給警務處長，把藍絲的「中心思想」表現得淋漓盡致，無功也有勞。可惜，李偲嫣猝死後，除了好友梁美芬，中港兩地官方人物，以及藍營的政客KOL，全沒有發聲悼念她，提都不提。部分藍絲更和李偲嫣「割席」，聲稱她是「小丑」，對同路人如此冷漠，令人唏噓。   
+   
+ 為什麼藍絲會對李偲嫣之死如此冷漠？因為整個藍絲陣營，以至整個中共陣營，其實是典型的後極權秩序，成員都活在謊言中，沒有任何核心價值可言。捷克前總統和民主領袖哈維爾，批評「布拉格之春」失敗後的捷克社會，認為捷克在後極權秩序下，獨裁者再不需要無時無刻威嚇人民，因為人民已在恐懼下放棄了思考，讓冷漠和無力感充斥腦袋，盲目地配合政權的安排，一起成為後極權體制的螺絲釘。哈維爾舉出賣菜大叔在店子櫥窗懸掛共產黨標語的例子：大叔不一定認同標語內容，他根本漠不關心，但掛這標語已成為他生活習慣的一部分，他的服從行為，讓後極權秩序的空洞謊言成為社會共識持續下去。   
+   
+ 同理，自私犬儒的藍絲，根本不相信中共和特區政府的政治宣傳，什麼「維護國家安全」、什麼「大灣區」？身體最誠實，不少藍絲口袋已有外國護照，子女財產早在歐美國家。但他們冷漠、犬儒和自私的特質，註定他們只能因私利，在中共命令下「團結」，成為後極權秩序的擁護者，但事實上沒有任何共同價值能維繫他們，包括撐警在內。所以他們對身體力行撐警的「同路人」李偲嫣，並沒有絲毫的敬意，只有嘲笑和鄙視。   
+   
+ 民主陣營雖面對極大的困難，以及部分意見上的分歧，但民主陣營和後極權秩序最大的不同，就是民主陣營依然擁有追求正義和真理的熱情，有活在真相中（living in truth）的勇氣。面對後極權秩序，要保持憤怒，保持尊嚴，不要輕易服從謊言和被恐懼屈服。只要我們盡量堅持良心，堅持自我，活得真誠磊落，不做螺絲釘，後極權秩序的謊言就會面臨重大挑戰，香港光明的一天也會更快來到。   
+   
+ 以上為作者個人意見
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210306040413/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 法政匯思](https://web.archive.org/web/20210306040413im_/https://www.hkcnews.com/uploads/avatars/080774f2-a026-4759-8e5c-a08ce42d1d3e.png?2109968118)
+
+**博客 | 法政匯思**
+
+【法政匯思】A group of Hong Kong lawyers dedicated to promoting core values of the rule of law, judicial independence, democracy, human rights, freedom, and justice. Facebook: https://www.facebook.com/hkplg/ 文章內容代表作者個人意見。

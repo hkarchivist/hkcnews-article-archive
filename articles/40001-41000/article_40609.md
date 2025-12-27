@@ -1,0 +1,40 @@
+---
+title: "傳媒揭58歲醫生接種復必泰兩日後腦出血情況嚴重　事發一周無公布張竹君無回應"
+date: "2021-04-23"
+last_updated: "2021-04-23 20:42:41"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "醫管局"
+  - "張竹君"
+  - "復必泰"
+url: "https://web.archive.org/web/20210919102527/https://www.hkcnews.com/article/40609/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40611/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40609/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40611/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 傳媒揭58歲醫生接種復必泰兩日後腦出血情況嚴重　事發一周無公布張竹君無回應
+
+430記者會上，醫管局在傳媒提問下才交代，一名瑪麗醫院醫生接種復必泰兩日後暈倒，診斷為腦出血，目前情況依然嚴重。醫管局指，該名醫生於4月14日接種復必泰，4月16日昏迷送院，現於瑪麗醫院接受治療。惟事件已經發生一星期，今天在記者會有傳媒問及才被揭發。
+
+衞生署晚上7時許回覆眾新聞查詢，確認本月17日接獲通報，指一名58歲男子被發現於家中暈倒，送院後發現有腦出血情況。男子於本月14日在聖保祿醫院接種復必泰。然而，署方拒絕交代不曾公布此個案的原因。
+
+<figure>
+<img src="https://web.archive.org/web/20210919102527im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/復必泰-醫管局-張竹君-20210423190417_235e_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+今午記者會上，《蘋果日報》記者問到是否有一名58歲的醫生，接種復必泰後暈倒並證實為腦出血。醫管局總行政經理（醫療成效及科技管理）庾慧玲回應時確認消息：「瑪麗醫院有一位員工4月16號昏迷之後送律敦治急症室，之後轉送瑪麗醫院，初步斷定腦出血，而家情況暫時都係嚴重。」未能回答該醫生是否有慢性病。
+
+庾慧玲又指，醫院已按既定程序向衞生署匯報，她並表示須待臨床事件評估專家委員會分析，才能判斷個案與疫苗接種是否有關。
+
+其後《經濟日報》記者問及個案是甚麼科醫生、為何事隔多日無出稿公布。庾慧玲稱「我而家手頭上無關於嗰位員工嘅資料」；張竹君則答：「關於疫苗接種副作用嘅詳細（資料），我唔知道。」
+
+政府目前在每日有關疫苗接種數字的新聞稿會公布送院個案，惟只包括由社區疫苗接種中心接種後不適送院個案；離開中心後送院的個案，只能等政府主動公布，或傳媒揭發。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919102527/https://www.hkcnews.com/aboutus/#subscribe)

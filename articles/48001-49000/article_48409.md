@@ -1,0 +1,41 @@
+---
+title: "教局增「勤勞」培養學生價值觀　委員：全球年青人普遍好逸惡勞　更認定需播種「勤勞」"
+date: "2021-12-01"
+last_updated: "2021-12-01 21:55:23"
+author: "記者陳惠恩"
+category: "眾聞"
+tags:
+  - "教育局"
+  - "教育署"
+  - "香港教育局"
+  - "躺平"
+  - "價值觀教育課程架構"
+  - "勤勞"
+url: "https://web.archive.org/web/20220117050805/https://www.hkcnews.com/article/48409/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48409/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教局增「勤勞」培養學生價值觀　委員：全球年青人普遍好逸惡勞　更認定需播種「勤勞」
+
+教育局早前公布《價值觀教育課程架構》，重點新增「勤勞」為全港學生首要培育的十大價值觀之一。負責編訂課程架構的價值觀教育常務委員會委員鄒秉恩指，全球年青人「普遍好逸惡勞」，令委員「更認定需要播種『勤勞』作為十個價值觀」。
+
+  
+ 在《價值觀教育課程架構》中，除了「勤勞」，其他9種價值觀分別是堅毅、尊重他人、責任感、國民身分認同、承擔精神、誠信、關愛、守法和同理心，學校要參考其規範和建議，在課堂內外推展價值觀教育。
+
+<figure>
+<img src="https://web.archive.org/web/20220117050805im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/教育-價值觀教育課程架構-20211201181659_29f4_large.png" alt="">
+<figcaption>《價值觀教育課程架構》新增「勤勞」作學生需培養的價值觀，刪去「尊重人權」及「以批判思維認識祖國」;教育局早前回覆指，沒有刪去人權教育的學習元素，其他內容蘊含與人權教育相關內容。</figcaption>
+</figure>
+
+  
+ 有份編訂新指引的校長鄒秉恩接受港台訪問，他指委員留意到國際間出現「躺平主義」，舉例美國有家長要將「好hea」的40歲兒子趕出家門；他續稱年青人「普遍好逸惡勞、僥倖心態、沒有目標」，認為置業無望，於是「用今天的時間吃喝玩樂」，令委員「更加認定需要播種『勤勞』作為十個價值觀」。他又提到香港50至70年代，經歷一段「很艱苦的工商業起飛發展時期」，「勤勞向上，奮發向上是必須持守的價值觀」。被問到現時補習文化盛行，學生是否仍屬懶惰，鄒指不會不尊重學生因現實主義，希望以好成績獲取將來競爭力；勤勞則可磨練學生意志，重新調整自己日常生活。
+
+<figure>
+<img src="https://web.archive.org/web/20220117050805im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/價值觀教育課程架構-鄒秉恩-20211201182249_63fb_large.png" alt="">
+<figcaption>負責編訂課程架構的價值觀教育常務委員會委員鄒秉恩指，因「躺平主義」在全球出現，需「播種勤勞」。(圖片來源：和富慈善基金李宗德小學）</figcaption>
+</figure>
+
+另外，《價值觀教育課程架構》主要參考2008年《德育及公民教育課程指引》編寫，對比新舊指引，在對中四至中六學生學習期望中，「認同『法治精神』和『尊重人權』對社會的重要」的「尊重人權」被刪走；「以理性、多角度和批判思維，認識祖國現今面對的挑戰和機遇」的「批判思維」不復再。鄒稱，「不寫不等於我們不著重」，認為老師有能力用批判思維、不同角度教學生價值觀，「字眼如果寫得較為敏感，同工推動的意願會有些顧慮」。教育局早前回覆指，沒有刪去人權教育的「學習元素」，對學生的學習期望蘊含與人權教育相關內容，例如培育學生認識《基本法》，對香港居民權利的保障，及一些重要權利和義務，認同國民和公民的身份。
+
+  
+ 「躺平」一詞今年5月出現在內地論壇上的一篇帖文《躺平即是正義》，作者說2年多沒有工作，一直維持低欲望、低消費生活，被內地網民瘋傳，不過帖文很快被平台刪除。事件迴響大至連官媒都發聲，《南方日報》發文《“躺平”可耻，哪來的正義感？》反撃，文章獲新華社轉發。11月尾，本港《價值觀教育課程架構》出爐前，教育局局長楊潤雄寫網誌批評「躺平主義」，長遠窒礙社會的進步，表明加強價值觀教育要對症下藥。

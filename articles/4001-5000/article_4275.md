@@ -1,0 +1,48 @@
+---
+title: "行政長官答問會 泛民追擊UGL風波"
+date: "2017-05-31"
+last_updated: "2017-05-31 18:34:21"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "leung chun ying"
+  - "梁振英"
+  - "689"
+  - "CY Leung"
+  - "思歪梁"
+  - "狼英"
+  - "梁特"
+  - "梁特首"
+  - "港獨之父"
+  - "UGL"
+  - "UGL Limited"
+  - "United Group Limited"
+  - "立法會"
+url: "https://web.archive.org/web/20210710032049/https://www.hkcnews.com/article/4275/%E6%A2%81%E6%8C%AF%E8%8B%B1-%E7%AB%8B%E6%B3%95%E6%9C%83-ugl-4280/united-group-limited"
+original_url: "https://www.hkcnews.com/article/4275/%E6%A2%81%E6%8C%AF%E8%8B%B1-%E7%AB%8B%E6%B3%95%E6%9C%83-ugl-4280/united-group-limited"
+---
+
+# 行政長官答問會 泛民追擊UGL風波
+
+特首梁振英明天是任內最後一次出席立法會答問大會，泛民主派會前有默契，盡量問UGL風波及梁與UGL專責委員會委員周浩鼎溝通一事，民主派會議召集人涂謹申坦言，「得返一個月，仲有咩好問？」
+
+<figure>
+<img src="https://web.archive.org/web/20210710032049im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/05/立法會-梁振英-Hong%20Kong-20170531165634_6903_large.jpg" alt="">
+<figcaption>梁振英明日會到立法會答問大會，預料會被追擊UGL風波。何君健攝</figcaption>
+</figure>
+
+曾遭梁振英點名質疑的會計界議員梁繼昌，不正面回應明天會否加入追問UGL，但表示會「跟同事問」，又笑言很多事情都看臨場反應。至於建制派明天在UGL專責委員會閉門會議再質疑自己的資格，梁繼昌重申自己因為不想妨礙委員會進度，先前書面申報是最後一次就事件申報。
+
+據悉，鑑於上次答問大會，劉小麗示威令會議腰斬，泛民提出如果議員明天有示威行動，可盡早提出，避免影響質詢梁振英，總之明日以質詢UGL風波先行。
+
+民建聯主席李慧琼不評論明天答問會策略，但表示周浩鼎明天不會發問。
+
+由於6名議員在上次答問大會曾經發問，餘下63名議員技術上均可發問，意味議員要「鬥快撳」，爭取發問機會。根據慣例，立法會主席梁君彥會協調不同陣營議員發問，盡量爭取均等發問機會。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210710032049/https://www.hkcnews.com/aboutus/#subscribe)

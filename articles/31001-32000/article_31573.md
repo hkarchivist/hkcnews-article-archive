@@ -1,0 +1,84 @@
+---
+title: "【立會選舉】蔣旻正不滿葉建源保守、立場不夠強硬　教協：進步與否非口號定義"
+date: "2020-07-06"
+last_updated: "2020-07-06 00:26:50"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "教協"
+  - "2020立法會選舉"
+  - "蔣旻正"
+url: "https://web.archive.org/web/20210919141832/https://www.hkcnews.com/article/31573/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31573/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【立會選舉】蔣旻正不滿葉建源保守、立場不夠強硬　教協：進步與否非口號定義
+
+立法會教育界功能組別議席，過去一直由教協包攬，今屆首次有本土派素人北區區議員、29歲補習老師蔣旻正，有意出戰，但教協早前已表明不會協調參加初選，蔣旻正堅持出選。建制派出選者，有指是教聯會副主席鄧飛。
+
+蔣旻正接受眾新聞專訪時表示，今次選舉可被視為民主陣營保守派和進步派之爭。他透露，負責協調初選的港大法律系副教授戴耀廷曾估計，若雙方願意初選的話， 教育界內保守派和進步派 的得票之比有機會是6:4。
+
+蔣旻正指，不滿教協過於保守的立場，包括未有協助在囚抗爭者、國安教育立場不夠強硬等。他有感其勝選機會不大，但期望透過參選將進步派教師的聲音帶給教協，以反對教協不停自動連任，並逼使教協作出改革，「想俾教協知道，呢班進步教師的聲音有幾大。」
+
+相關文章： [【立會選舉】29歲區議員兼補習老師蔣旻正出戰教育界：俾教協知道，進步派聲音有幾大](https://web.archive.org/web/20210919141832/https://www.hkcnews.com/article/31307/%E6%95%99%E5%8D%94-2020%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-%E8%94%A3%E6%97%BB%E6%AD%A3-31307/%E3%80%90%E7%AB%8B%E6%9C%83%E9%81%B8%E8%88%89%E3%80%9129%E6%AD%B2%E5%8D%80%E8%AD%B0%E5%93%A1%E5%85%BC%E8%A3%9C%E7%BF%92%E8%80%81%E5%B8%AB%E8%94%A3%E6%97%BB%E6%AD%A3%E5%87%BA%E6%88%B0%E6%95%99%E8%82%B2%E7%95%8C%EF%BC%9A%E4%BF%BE%E6%95%99%E5%8D%94%E7%9F%A5%E9%81%93%EF%BC%8C%E9%80%B2%E6%AD%A5%E6%B4%BE%E8%81%B2%E9%9F%B3%E6%9C%89%E5%B9%BE%E5%A4%A7)
+
+<figure>
+<img src="https://web.archive.org/web/20210919141832im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/蔣旻正-2020立法會選舉-20200623212600_2c3a_large.jpg" alt="">
+<figcaption>蔣旻正指，不滿教協過於保守的立場，包括未有協助在囚抗爭者、國安教育立場不夠強硬等。周滿鏗攝</figcaption>
+</figure>
+
+蔣旻正笑言，去年因為有感在教協超級市場「買筆好平」，成為教協會員。但他不滿教協立場保守，舉例如下：
+
+### 未有協助在囚抗爭者
+
+蔣旻正自勝出北區鳳翠區議會選舉後，開始以區議員身份，為因反送中運動罪成囚於壁屋監獄的DSE考生準備中文筆記。同一時間，他曾聯絡教協以索取其他科目的筆記，但一直得不到回覆，「某啲渠道聽番來，佢哋唔係咁方便幫手，我喺呢件事上有啲失望。」
+
+為監獄考生準備筆記的事傳出後，蔣說，不少教師團體支持他的行動，紛紛為他準備其他科目的筆記。當中包括2014年成立曾參選教協監事會、被視為進步派的「進步教師同盟」，和今年新成立的教師工會「教育同行陣線」。
+
+蔣旻正在接觸這些團體的過程中，聽到不少人指不滿教協作風保守，「教育界好耐都無得揀，一係教聯，一係教協，呢個情況大家都會去教協嗰邊。」但他認為，有逾10萬會員的教協之內又有保守派和進步派之分，「進步派會覺得社會上的位置會前一啲，甚至教育政策都會想進步一啲。」於是他萌生了參加教育界立法會功能組別選舉的念頭，期望透過參選，將進步派的聲音帶給教協，逼使教協作出改革，「給教協知道呢班進步教師的聲音有幾大。」 他指，自己不是「進師盟」和「教育同行陣線」的成員。
+
+### 對國安教育立場不夠強硬
+
+近日港區國安法正式生效，教育局早前已表明會開展國家安全教育，在課程、教學資源及教師專業培訓等各方面採取多元措施，令學生認識法例。蔣旻正認為在這問題上，教協的立場不堅定明確，「進步派覺得無中立呢回事，國安教育好明顯就係洗腦教育，我哋好堅決反對，但葉建源嗰邊就話要睇吓個內容先算係唔係洗腦教育，又話學生要睇好多唔同面向，我睇落去就係好似要秉承中立咁，我覺得好失望。」
+
+### 對被投訴老師態度「軟」
+
+反修例運動中，有不少教師遭投訴專業失當，收到教育局的譴責信及警告信。蔣旻正說，得知有些例子，教協雖然有為當事人提供協助，但採取「軟」方式處理，「坦白講佢哋係有幫手，但係佢哋處理嗰種方法，係要求老師唔好再出聲，可能係幫到個老師保住份工，但另一個角度睇，係配合緊教育局禁老師聲音。佢係好言相勸，但從社會的大是大非來講，佢同教育局做嘅嘢係一軟一硬。」
+
+### 部分教育政策不夠進取
+
+在教育政策層面上，蔣旻正舉例說，教協多年未能成功爭取「教育專業議會」獨立於教育局之外。（註：1994年成立至今的「教育人員專業操守議會」，其職權只包括向政府建議有關提高教育專業人員操守的意見、擬定操守準則、就涉及教育工作者的糾紛或指稱行為失當個案，向教育局常任秘書長提供意見，實際取消教員註冊的權力由教育局常任秘書長擁有。）
+
+「進師盟其實好早已經提出，要教師自主去處理專業失德的投訴、發牌的機制，但大家知道而家唔係，所有嘢都交番俾教育局做，就算嗰間學校校長調查完都無問題，教育局都可以推翻呢個判決，我要釘牌就釘牌，成個過程都係教育局黑箱作業，教協講咗好多年爭取唔到，同時都係放慢腳步。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919141832im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/教協-葉建源-20191220001147_5788_large.jpg" alt="">
+<figcaption>蔣旻正認為，教協在過去一年反修例風波中，立場未夠強硬。左為會長馮偉華，右為副會長兼立法會議員葉建源。資料圖片</figcaption>
+</figure>
+
+雖然如此不滿，但蔣旻正承認教協在過去一年備受不少壓力，而業界可能大多數都是保守派，「其實教協保守，代表教育界都真係幾保守，大家知道教育界所有資源都係政府津貼，如果教育界入面有好多反政府的行為，就cut budget啦。」、「未必係教協自己保守，如果呢個係政治現實，如果教育界經過咗反修例一周年以來，佢哋都仲係企咁後，咁無辦法，個政治現實係咁。」
+
+那麼，蔣旻正出戰教育界，又有何政綱？他說，近日正協助戴耀廷籌辦新界東的民主派初選，未有時間整理全部政綱，初選完成後他會完整寫出。蔣指出，其中一項政綱將會是推動教育獨立，「仿傚醫管局，提名一班專業的教育工作者、校長、退休校長、教授等團體成立教師專業委員會，爭取重新攞番教師專業的主導權。」他相信，林鄭政府不會推動這項改革，卻是他對於未來香港的一種想法。實際上能否做到是另一回事， 但提出一種明確態度對他來說，很重要。
+
+<figure>
+<img src="https://web.archive.org/web/20210919141832im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/教育界集會-20200104015800_1c9b_large.jpg" alt="">
+<figcaption>教育界今年初舉行集會，關注白色恐怖。美聯社圖片</figcaption>
+</figure>
+
+### 教協：不認同屬保守派　進步與否非由口號定義
+
+對於蔣旻正的說法，記者致電被指有意競逐連任的教協葉建源，他說，所有選舉事宜交由教協總幹事沈偉男回答。
+
+沈偉男回覆眾新聞查詢時指，不認同教協是保守派，指教協反對國安法，「唔知佢有咩理據支持佢的論點」、「最重要係教育局會推動乜嘢去做國安法的教育，對教協或者廣大老師來講，最著重是不希望有洗腦教育出現。」
+
+至於協助在囚學生方面，沈偉男強調，教協不會高調說幫了多少人，「我哋過去大半年，都有跟唔同的群體去溝通，我諗唔止係在囚學生的問題，譬如講緊教師被白色恐怖逼害，我哋一直都有跟進個案，我諗有樣嘢好關鍵就係，我哋作為工會，幫老師係好多年都做緊的事，有時我哋唔會好高調去講，要照顧求助老師的私隱。」，
+
+沈偉男承認過去一年，聽到有人反映教協不夠強硬的聲音，但他認為教協作為工會，首要重點是幫到求助人，而非口號叫得激進與否。他質疑蔣旻正自稱是進步派的說法，「係咪你個口號嗌得勁，就代表你進步呢？」、「教協會員基礎好闊，不同聲音都會有，但係出來參選嗰位老師係咪代表進步，我係好有疑問，何謂進步呢？」沈偉男補充，正收集業界的意見，現階段教協未有具體針對國安法的政綱。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919141832/https://www.hkcnews.com/aboutus/#subscribe)

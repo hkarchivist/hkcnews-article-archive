@@ -1,0 +1,46 @@
+---
+title: "【哄動初選案】傳媒冀剔除報道限制　辯方部分同意：人人都要知如何理解國安法條文"
+date: "2021-03-03"
+last_updated: "2021-03-08 23:36:12"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "民主派初選"
+  - "初選大起訴"
+url: "https://web.archive.org/web/20210805043203/https://www.hkcnews.com/article/38764/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38764/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【哄動初選案】傳媒冀剔除報道限制　辯方部分同意：人人都要知如何理解國安法條文
+
+民主派初選47人案，引起本地及國際傳媒高度關注，提堂第三日首次在庭上爭論傳媒報道問題。辯方律師懇請法官行使酌情權，豁免部分報道限制，他指國安法影響每一個人，每個人都要知如何正確地理解國安法條文，必然跟社會公正有莫大關係，這是不言而喻。控方表明有極大憂慮，形容是天馬行空的申請。辯方律師草擬了一份傳媒報道指引供法庭參考，總裁判官蘇惠德明日再作決定。
+
+<figure>
+<img src="https://web.archive.org/web/20210805043203im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-傳媒-20210303155605_1129_large.jpg" alt="">
+<figcaption>有傳媒在法院外以鋁梯自製「咪兜」供行家貼上收音咪，方便受訪者發言。</figcaption>
+</figure>
+
+### 哄動一案　傳媒爭相報道引討論
+
+根據《刑事訴訟程序條例》第9P條「對報導保釋法律程序的限制」，傳媒只容許報道保釋裁決結果、條件、控辯雙方和裁判官的身分。
+
+聆訊第三日甫開庭，辯方大律師馬維騉稱收到傳媒查問，向總裁判官蘇惠德提出申請，為了社會公正，懇請法官剔除傳媒報道保釋條件的有關限制，相信對政府、律政司也有裨益，因為庭上有不少精英大律師探討國安法的看法，可讓外界得知如何正確地理解國安法條文。
+
+為確保日後審訊公正，他建議可繼續禁止傳媒報道被告和家人的私人狀況，如定罪紀錄、醫療歷史、教育背景等。總裁判官蘇惠德擔心在保釋申請階段，提及每名被告在不同時間的言行，部分內容仍未確認，或會影響日後審訊。馬大狀建議，亦可規限傳媒在本程序上，不得報道律政司指控的內容細節，以及披露每名被告的特定行為，如控方在庭上指稱被告曾經的說法和轉發的資訊等。
+
+副刑事檢控專員（特別職務）楊美琪反對申請，表明有極大憂慮，稱現時條例已清楚列明報道的範圍，如豁免會對被告不公平，因有很多指稱「too early at this stage」，如有負面影響將難以「返轉頭」，而調查仍在進行中，亦有其他嫌疑人，一旦證據洩漏或會影響取證調查。她再指過往兩日，有被告在庭上提及政治信念與本案無關，但被引述出來或導致不必要的情緒，令外界有不公平的觀感，形容這是天馬行空的申請。
+
+馬維騉反駁，指過去多宗國安法案件，律政司均拒絕設陪審團，認為法官會專業地審訊，不受傳媒報道內容左右。即使本案設陪審團，亦可由法官作引導，免受傳媒報道影響。他又認為民主派初選早於去年7月進行，不認為傳媒報道會影響國安處進行中的調查。他指國安法影響每一個人，每個人都要知道如何正確地理解國安法條文，必然跟社會公正有莫大關係，這是不言而喻。
+
+總裁判官蘇惠德先聽取各被告保釋申請陳辭，由於程序未完成，傳媒報道限制的問題留待待明日再作決定，辯方律師草擬了一份傳媒報道指呈上法庭，供法官參考。
+
+案件編號：WKCC813/2021
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805043203/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,51 @@
+---
+title: "《美國之音》報道美人類學講師新疆行　引述維人：「結對認親」的漢人是政府探子"
+date: "2019-01-05"
+last_updated: "2019-01-05 20:55:38"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "美國之音"
+  - "白道仁"
+  - "結對認親"
+url: "https://web.archive.org/web/20220808164450/https://www.hkcnews.com/article/17626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/17626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《美國之音》報道美人類學講師新疆行　引述維人：「結對認親」的漢人是政府探子
+
+<figure>
+<img src="https://web.archive.org/web/20220808164450im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/美國之音-白道仁-結對認親-20190105112631_2181_large.png" alt="">
+<figcaption>漢人和維吾爾「親戚」學習中共19大報告。（美國之音／白道仁）</figcaption>
+</figure>
+
+《美國之音》周六刊登一篇長篇報道 [〈從廚房到炕頭，『黨媽』派來的『親戚』佔領維吾爾人的家〉](https://web.archive.org/web/20220808164450/https://www.voachinese.com/a/party-sent-relatives-occupy-homes-of-uyghurs-20190104/4729881.html) ，引述專門研究維吾爾族和漢族社會生活的美國喬治華盛頓大學人類學講師白道仁（Darren Byler）去年在新疆的訪談，內容聚焦中國政府在當地的「結對認親」計劃。白道仁引述接觸的維吾爾人說，他們認為這些登堂入室的漢人都是政府派來的探子，假裝友好，但是「維吾爾人還得裝得客客氣氣，竭力款待這些『親戚』，害怕萬一哪裏做得不對，就會被『親戚』上報，惹來被關進『再教育營』的厄運」。
+
+報道一開始說，「他們有沒有神情慌亂，言辭閃爍？家中有沒有可疑的外人？廚房裏有沒有多餘的菜刀？牆上是否掛了宗教裝飾？有沒有和經濟狀況不符的物品？他們的漢語如何？平日是看CCTV還是維語VCD？」，「這些遠道而來的男女們一進門，就打量起眼前的這些『親戚』和周遭的環境」。
+
+報道說，這些「親戚」雖以兄弟姐妹相稱，卻沒有血緣關係，甚至語言也不通。這些多為漢人的政府公務員，是中國當局「結對認親」計劃的一部分。他們進駐維吾爾人和新疆其他少數民族的家庭，一連數天和他們同吃同住同勞動，有時甚至同睡一個炕頭。
+
+中國官方媒體《環球時報 》周四發布的一條英文twitter說，自2016年10月以來，中國西北部的新疆有112萬多名幹部和政府僱員，與169萬戶不同少數民族結對認親。另有官方數字說，從2018年1月到11月底，全疆幹部職工「走親戚」的次數累計3149萬次，入住「親戚家」的次數約1050萬次。
+
+白道仁說，「親戚除了自帶鋪蓋捲、伙食費（每天20至50元不等）、米、麵、水果等禮物外，還帶來了「黨媽」交給的任務，「這些『親戚』要負責評估他們的維吾爾主人，測試他們對維吾爾人和伊斯蘭身份的忠誠度，向他們傳授基本的『素質』，鼓勵他們只講國語，只參加漢文化活動」。
+
+《美國之音》的報道說，白道仁研究維漢社會生活，從2011年起，在新疆做過兩年實地考察。去年春天他又回到那裏，和十多位直接或間接參與過「結對認親」計劃的人交談。他了解到，「親戚」有時候會故意讓維吾爾人喝酒、抽煙；一起包餃子時，他們會測試維吾爾人是否問起這些肉類是不是清真，「漢人給你食物時，你要強迫自己吃下去。這讓人們處於一種尷尬和極為痛苦的狀態」， 「很多人告訴我，咽下那些來路不明的食物讓他們覺得惡心」。
+
+報道稱，中國官方將這些「結對認親」包裝為充滿溫情的民族融合政策，但批評者說，這些貌似柔性的政策，事實上強化了當局在新疆的高壓政策。報道訪問美國維吾爾人協會主席伊利夏提說，共產黨的手腳伸得太長，「沒有人會歡迎這些編造出來的『親戚』」。他說，家是每個人最後的庇護所。不管在外面遭受了多大的不公和磨難，家是唯一可以讓人保留一點自由和尊嚴的地方，「如果連家裏都被陌生人侵佔，那麼人們就像生活在一個沒有牆的監獄」。
+
+「人權觀察」中國部高級研究員王松蓮說，把新疆穆斯林的日常起居都暴露在當局的監視下，這種「極具侵略性的強制同化政策」不僅侵犯基本人權，還可能加深該地區的不滿情緒。
+
+和毛澤東時代的「下放勞動」不同，這一次，城裏來的人不是去向貧下中農學習，而是去評估和教化那些接待他們的人。白道仁說，這些「親戚」的背後是強大的國家政權，這讓維吾爾人體味到巨大的威脅和無力。
+
+報道指出，一些維吾爾人對白道仁說，在他們看來，那些登堂入室的「親戚」都是政府派來的探子，假裝友好而已。他們是永遠不會信任這些人的。不過，表面上，維吾爾人還得裝得客客氣氣，竭力款待這些「親戚」，害怕萬一哪裏做得不對，就會被「親戚」上報，惹來被關進「再教育營」的厄運。
+
+報道引述哈密市穆斯林青年熱買提對網上雜誌《寒冬》說：「政府給我和妻子共結了四個親戚。每個禮拜換一個親戚。家裏天天都有人住，這個還沒走那個就來了。」他說：「我現在不敢亂說話，因為我不知道哪句話可能會被他們認為是錯的。」維吾爾人的恐懼並非杞人憂天。事實上，「親戚」無時無刻不在觀察記錄他們的言行。新疆自治區紀委監委網站2017年的一則報道記錄了「結親」幹部的日常：每天早上，各組要開晨會，中午不休息入戶走訪，下午碰頭匯總情況，整理材料，晚上座談討論，由專人收集專報、整理台帳、報送專報，「白加黑連軸轉的工作節奏，讓大家找到了在機關加班加點的感覺」。
+
+<figure>
+<img src="https://web.archive.org/web/20220808164450im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/美國之音-白道仁-結對認親-20190105112607_295c_large.png" alt="">
+<figcaption>漢人「大哥哥」給維吾爾兒童送來圖書《我們的中國》。（美國之音／白道仁）</figcaption>
+</figure>
+
+報道又說，新疆自治區黨委宣傳部給「結親」幹部提供的「攻略」說， 「孩子是一個很好的突破口，家庭成員中如果有孩子，記得帶上玩具和零食，先和孩子們打成一片」。白道仁說，為了免受罰，維吾爾人鼓勵自己的孩子接納這些陌生的「親戚」，擁護他們帶來的國家宣傳和漢文化。有時孩子要充當翻譯的角色，因為他們的漢語往往比長輩們好，但這也把他們推向一個兩難的處境——一邊是握有他們命運的客人，一邊是自己的父母。
+
+不久前，在為《紐約時報》撰寫的長文 [〈不請自來的客人：闖入維族家庭的百萬公務員〉](https://web.archive.org/web/20220808164450/https://cn.nytimes.com/opinion/20181220/xinjiang-uighur-homes/) 中，白道仁寫道：「『結對認親』最痛苦的部分，或許是它削弱了維吾爾父母的權威，並摧毀了家庭」。他引述一位中年維吾爾人的話說：「他們奪走了我們的家庭和信仰。現在我們一無所有了」。

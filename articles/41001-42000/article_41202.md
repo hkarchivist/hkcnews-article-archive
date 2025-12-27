@@ -1,0 +1,101 @@
+---
+title: "韓國民主路系列（七）：舉國上下的一步"
+date: "2021-05-30"
+last_updated: "2021-05-30 02:33:39"
+author: "華人基督徒義顯社"
+category: "眾說"
+tags:
+  - "逆權運動"
+  - "韓國民主路"
+url: "https://web.archive.org/web/20211205054355/https://hkcnews.com/article/41202/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41202/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 韓國民主路系列（七）：舉國上下的一步
+
+【撰文：鳴暉】
+
+近年關於韓國民主運動的電影，如《逆權大狀》、《逆權司機》、《逆權公民》，皆有共同點，就是影片中的抗爭主角其實並非真正的主角，英雄是屬於全國無名之逆權民眾的。
+
+《逆權大狀》中勇敢地為學生辯護的律師，其實是指後來任民選總統的盧武鉉，而《逆權司機》所描述之的士司機，亦是真有其人，他冒著生命危險，去運載德國記者離開受軍人血腥鎮壓的光州，終將屠城真相公之於世。但影片中的大狀、司機，當初都是為口奔馳，矇著眼睛的「河蟹」，直至親眼目睹慘劇及參與者的無私行為，才激起心中的義憤，走進韓國爭取民主的大洪流中。
+
+<figure>
+<img src="https://web.archive.org/web/20211205054355im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/韓國民主路-逆權大狀-20210530022734_5d7d_large.jpg" alt="">
+<figcaption>電影《逆權大狀》</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211205054355im_/https://hkcnews.com/news_新聞/hk-discuss/2017/09/逆權司機-韓國-20170926161344_2be4_large.jpg" alt="">
+<figcaption>電影《逆權司機》</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211205054355im_/https://hkcnews.com/news_新聞/hk-discuss/2018/04/韓國-逆權公民-20180414160839_1930_large.png" alt="">
+<figcaption>《逆權公民》</figcaption>
+</figure>
+
+同樣地，《逆權公民》記述受刑溺斃的學生朴鍾哲和受催淚彈轟死的李韓烈，所引發的全國抗爭運動，導演用去英雄化的手法，把各人原本對歷代獨裁鐵政的無奈，化成國民共有的奮鬥精神。
+
+獨裁者最恐懼的是甚麼？是本來對苛政已乏力消沉的民眾，會受到異見者犠性精神的感召，良知被喚醒，紛紛站出來同席，在韓國這些人包括：
+
+**軍、警：** 雖然不少軍、警殘暴不仁，但卻仍有維護無辜受害者的，如：在全斗煥時代，拒絕向光州市民開槍的全羅南道警察局局長安炳夏，以致最後被解除職務及受酷刑。
+
+**天主教和基督教界：** 不怕破壞要「順從掌權者」的形像，知道貫穿全聖經的教訓是「行公義、好憐憫」的牧者，如：「天主教正義具現全國司祭團」公開了虐待朴鐘哲致死的警員名單；金承勳神父在彌撒中發表「朴鐘哲拷問致死事件真相被揑造」的講辭；文益煥牧師譴責光州屠城及在李韓烈喪禮的演講（列出多位被歷代獨裁者壓迫而死的烈士名字）等。
+
+**慈悲為懷的憎侶：** 如：在光州與示威學生同行的和尚。
+
+**政府的僱員：** 如：負責檢查朴鐘哲遺體的驗屍官，拒絕按上級的指示偽造死因。檢察官力抗高層壓力，追尋朴氏致死因由。
+
+**律師及記者：** 無數抵擋著政權的高壓手段，冒險追尋真相。
+
+**藍領工人：** 雖然工會受政府箝制，失去統籌力，仍有人冒生命危險，救援示威者。例：1980年光州之的士司機；1987年聲援之的士（堵路）及巴士司機（義載學生從大學到示威地點）。
+
+**母親：** 學生受殘酷對待，傷心欲絕的當然是家長，難以視若無睹。例：在1985年成立的家長團體「民主化實踐家族運動協議會」，以凝聚兒女被捕的媽媽們之力量，她們為保護抗爭的年輕人，差不多從不缺席任何抗議運動，走在最前線守護孩子。受警員性侵反被判監的大學女生權仁淑，也是這些母親陪伴她繼續討回公義。朴鐘哲死後兩天，她們亦是最早站出來聲討警暴的。
+
+多年來在韓國民主運動喪失了生命和前途的學生、民運份子、平民百姓多不勝數，然而，他們的血淚終沒有白流，最後令全國民眾一同向前踏步，人民同心的一步之震撼力度，一下子便令獨裁者站不住腳，倒下來了！
+
+韓國人民齊心上街的抗爭歌《如果那天到來》這樣寫：
+
+> **⋯我兄弟們思念的臉龐**   
+ **與那些痛苦的記憶**   
+ **還有我短暫的青春**   
+ **都不會是一場虛無的夢**   
+ **如果那一天到來…**
+
+
+在亞洲一城譜出新詞呼應著：
+
+> **⋯如果枷鎖會換取到自由**   
+ **記憶的傷口痛都不覺痛**   
+ **若那天出現**   
+ **也不枉這年**   
+ **⋯會看到那天**   
+ **要看到那天**   
+ **我信有那天**
+
+
+是的，那天必來到，我們在煲底再相見！（全文完）
+
+**参考：**
+
+鐘樂偉： [《如果那天來到 – 南韓民主化進程》](https://web.archive.org/web/20211205054355/https://www.hummingpublishing.com/product/koreansocialmovement/) ，香港：蜂鳥出版有限公司，2020。
+
+<figure>
+<img src="https://web.archive.org/web/20211205054355im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/如果那天到來-鍾樂偉-20210430030703_14e8_large.jpg" alt="">
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205054355/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 華人基督徒義顯社](https://web.archive.org/web/20211205054355im_/https://hkcnews.com/uploads/avatars/81bc8451-efb1-4dc2-9482-f5b0c5859fce.png?76270930)
+
+**博客 | 華人基督徒義顯社**
+
+【華人基督徒義顯社・義顯之聲】組織使命為：彰顯神國公義，普及社會倫理，結合靈修社參，服事華人教會。

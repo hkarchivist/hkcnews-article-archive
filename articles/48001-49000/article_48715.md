@@ -1,0 +1,49 @@
+---
+title: "【頂級職場彩虹屁】上海文峰老闆喜個人崇拜　下屬撰文稱其「有天眼」"
+date: "2021-12-07"
+last_updated: "2021-12-07 21:57:55"
+author: "中國組記者黃麗萍"
+category: "眾聞"
+tags:
+  - "個人崇拜"
+  - "眾新聞中國組"
+  - "上海文峰"
+url: "https://web.archive.org/web/20220125201037/https://hkcnews.com/article/48715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48721/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48721/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【頂級職場彩虹屁】上海文峰老闆喜個人崇拜　下屬撰文稱其「有天眼」
+
+上海文峰美容美髮集團總裁陳浩，出名喜歡搞個人崇拜，除了公司及門店掛滿他的個人照片，更有「浩哥思想」，員工要熟讀外，還要經常出席會議聽他的偉論。近日一篇聲稱由其秘書所撰的文章，將陳浩吹捧至神的高度，指他「有天眼」、「掌握萬物之規律」，被網民形容為「職場彩虹屁天花板」的文章，更上了多個平台熱搜，連帶其負面新聞亦被重炒，公司隨即將文章刪除。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201037im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/上海文峰-個人崇拜-20211207190948_1c34_large.png" alt="">
+<figcaption>陳浩喜歡個人崇拜，每次出席會議，員工都要拍手歡迎。</figcaption>
+</figure>
+
+陳浩每次出場，員工都要列隊拍手歡呼，在其會議室內，掛有一幅他的大型畫像。別樹一格的他，還喜歡在台上載歌載舞。出名喜歡搞個人崇拜，由官網的首頁，到公司每個角落都是他的大頭相。每次出行，陳浩從走出機場到店裡，全程都有鮮花掌聲和瘋狂追星的員工。集團甚至創作了3首歌曲：《十頌浩哥》、《文峰校歌》及《歌唱我們的文峰》來歌頌他。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201037im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/個人崇拜-上海文峰-20211207190954_1459_large.png" alt="">
+<figcaption>陳浩新年會向員工致詞。</figcaption>
+</figure>
+
+要搞個人崇拜，當然要有個人思想。在上海文峰的官網，載有「浩哥九大思想」作為企業文化，員工要熟讀外，更要背誦口號，包括「浩哥指向哪，我們打向哪！」每次陳浩表演，台下員工都給足面子，用盡全力拍手歡呼。
+
+最近這個吹捧熱潮，更加由一篇文章達到極致。這篇叫《秘書眼中的上海文峰美容美髮集團總裁陳浩》，由聲稱跟了陳浩4年的秘書所寫，被網民形容為「職場彩虹屁天花板」的文章。所謂的「彩虹屁」，意思是連偶像放個屁，都能把它吹捧成是彩虹。
+
+文章將陳浩描述成一個生活極簡樸的人，衣服都是淘寶買的，一年才做一次新西裝，大家覺得他衣服多，是因為他懂得搭配。陳浩外出之所以會住好一點的酒店，是為了去學習人家如何打造環境。陳浩全年無休，但每逢過年就要去三亞，是因為他要打著旅遊的旗號出去探索。而陳浩買了新車，就指是陳浩買給媽媽的。至於他有很多名貴的樹木、翡翠和商舖，這樣做是為了增強品牌影響力，為員工提供堅實的後盾。
+
+誇張？未算！文章之後更將他吹捧到神的高度，說陳浩掌握萬物之規律，凡事只要過了他的眼睛和大腦，一切都會變得通透。對於有人與陳浩的思想稍有偏差，文章則稱陳浩是有天眼的，要相信他的安排。事實上，陳浩自稱創立「六合還陽術」，可以令人起死回生。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201037im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/個人崇拜-上海文峰-20211207190941_857e_large.png" alt="">
+<figcaption>陳浩自稱創立六合還陽術，可以令人起死回生。</figcaption>
+</figure>
+
+由於篇文拍馬屁拍得太出色，結果成功登上熱搜，連帶文峰一系列的負面新聞亦都被重提，包括因虛假宣傳、強制消費等問題，兩次被上海市消保委約談。其中今年3月，上海一位七十歲的阿伯中風後，其家人從其帳單中，發現阿伯三年間竟在文峰理髮店消費了235萬。去年疫情期間，文峰聲稱旗下一款化妝品可以抵禦病毒，被指虛假宣傳。去年12月，文峰被曝出把一名顧客按摩成腦幹大出血。雖然負面新聞不絕，但文峰依然屹立不倒。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201037im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/上海文峰-個人崇拜-20211207191006_227c_large.jpg" alt="">
+<figcaption>上海文峰因虛假宣傳、強制消費等問題，兩次被上海市消保委約談。</figcaption>
+</figure>

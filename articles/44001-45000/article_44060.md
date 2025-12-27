@@ -1,0 +1,59 @@
+---
+title: "【六四集會案】鄒幸彤獲批保釋：不一定要用言論自由交換"
+date: "2021-08-05"
+last_updated: "2021-08-05 23:43:54"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "鄒幸彤"
+  - "張慧玲"
+  - "六四集會案"
+url: "https://web.archive.org/web/20211023233638/https://hkcnews.com/article/44060/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44064/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44060/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44064/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【六四集會案】鄒幸彤獲批保釋：不一定要用言論自由交換
+
+支聯會副主席、大律師鄒幸彤涉撰文呼籲巿民參與今年六四集會，七一前夕再度被捕後遭還柙，今（5日）獲高等法院法官張慧玲批准保釋。傍晚約6時半，鄒幸彤在雨中離開高院，形容今次保釋算是「一個好細嘅勝利」，確認未審先囚不應是慣例，保釋不一定要用言論自由交換。她又說，未來會用盡有限自由繼續抗爭，「好好準備打呢一場關乎文字獄、關乎六四記憶的法庭戰」。
+
+
+{{< video src="https://web.archive.org/web/20211023233638if_/https://www.youtube.com/embed/dCGJLs-WUQE" >}}
+
+
+鄒幸彤涉在網上及報章撰文呼籲巿民參與今年六四集會，七一前夕再度被捕後還柙至今。她今在高等法院申請保釋，法官張慧玲聽畢陳詞後，批准鄒以現金及人事擔保各5萬元保釋，期間須交出所有旅遊證件，不得離開香港（包括到澳門及內地），每周六到馬鞍山警署報到，須在報稱地址居住。
+
+法庭宣布批准保釋後，庭內響起一片掌聲，鄒幸彤面露微笑向旁聽席點頭。鄒由其師傅、大律師張耀良代表，庭上穿著紅白色風褸、束起馬尾，看來精神不俗，甫步入被告欄便笑著與親友揮手打招呼，擺出心心姿勢。
+
+<figure>
+<img src="https://web.archive.org/web/20211023233638im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/鄒幸彤-六四32-20210805222401_60bc_large.jpg" alt="">
+<figcaption>鄒幸彤因今年六四集會案，在七一前夕再度被捕後遭還柙，今（5日）獲高等法院法官張慧玲批准保釋。邢穎琦攝</figcaption>
+</figure>
+
+至傍晚約6時半，穿著印有「Truth of Power」黑色上衣的鄒幸彤步出高院，她首先感激香港人的關心，形容今次成功保釋也算「一個好細嘅勝利」，「確認咗未審先囚唔應該係一個慣例，確認咗我哋唔需要次次係要放棄言論自由嚟換取保釋權」，希望可成為社會的小小鼓勵。
+
+她不認為自己可永遠逃脫牢獄，因若要在今天社會堅持民主自由，「學習坐監是必要的」。她指過去一個月的還柙也有得著，經歷囚友的困難及不公，算是為日後失去自由的生活作好準備。
+
+她續指，還柙期間知道社會環境快速變化，學生組織、區議員不斷被針對，她在大欖懲教所亦遇到許多同路人，希望社會同樣以堅持和熱情關注他們。
+
+### 擇善固執的人不應有罪
+
+鄒幸彤現時身負今年及去年六四集會的案件，分別將於10月及11月開審。她形容，今天獲得短暫的自由，感覺更有責任發聲，告知外界真實的香港發生何事，「所謂歌舞昇平之下的恐懼管治」是甚麼的一回事，不讓「假代議士」、「假人民代表」搶奪所有話語權。
+
+在未來日子，鄒希望用盡有限的自由繼續抗爭，「好好準備打呢一場關乎文字獄、關乎六四記憶的法庭戰」，「因為有罪的人是打壓言論自由、打壓歷史真相的屠夫政權，而不是所有擇善固執的人。」
+
+多次被拒保釋後終暫獲自由，鄒幸彤依舊有話直說，額上長年覆蓋著厚厚的齊劉海，戴著膠框眼鏡，真誠坦蕩。
+
+鄒幸彤這次獲保釋的案件，所涉控罪指其於今年5月29日至6月4日非法煽惑其他人明知而參與未經批准集結，案件將於10月5日審訊兩天。鄒另涉去年6.4集會案，排期於11月1日審訊10天。
+
+<figure>
+<img src="https://web.archive.org/web/20211023233638im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/六四燭光晚會-封閉球場-六四32周年-20210604233043_300b_large.jpg" alt="">
+<figcaption>六四32周年，警方連續第二年禁制維園燭光晚會，支聯會更首度缺席維園。資料圖片</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211023233638/https://hkcnews.com/aboutus/#subscribe)

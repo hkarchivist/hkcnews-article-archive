@@ -1,0 +1,65 @@
+---
+title: "真正的孟母　絕不會為了校網而搬家"
+date: "2018-08-06"
+last_updated: "2018-08-06 13:47:35"
+author: "Carrie媽媽"
+category: "眾說"
+tags:
+  - "遊樂場"
+  - "小一校網"
+  - "濕地公園"
+url: "https://web.archive.org/web/20211027160423/https://hkcnews.com/article/14098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-14109/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/14098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-14109/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 真正的孟母　絕不會為了校網而搬家
+
+Carrie作為八十後港媽，小時候生於公共屋邨，每天做好功課以後，外婆都會帶我到樓下的遊樂場嬉戲。當年的遊樂場比現在的刺激得多，馬騮架、氹氹轉、鞦韆、長滑梯，每一樣都讓人樂而忘返，一玩再玩，與鄰居孩童的友誼也是如此建立起來。相比之下，我不禁要為女兒這一代感到可惜，在繁忙課業、怪獸家長、電子產品的多重夾擊下，兒童幾乎絕跡戶外。
+
+<figure>
+<img src="https://web.archive.org/web/20211027160423im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/屋邨-遊樂場-20180806042713_cd13_large.jpg" alt="">
+<figcaption>舊式遊樂場設施。網路照片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211027160423im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/遊樂場-屋邨-20180806042729_21f4_large.jpg" alt="">
+<figcaption>舊式遊樂場設施。網路照片</figcaption>
+</figure>
+
+### 壓力排山倒海　無處可逃
+
+不少研究都指出兒童在遊樂場遊玩不僅提升快樂指數，還有助認識自己的能力，鍛鍊肌肉發展和社交能力，就連衛生署都建議兒童每天累積進行至少180分鐘的體能活動，包括到公園遊玩、踩單車、散步等。可惜現今世代的孩童，大多被如何也做不完的功課，以及數之不盡的測驗考試壓得半死，就算有片刻的空閒，也只會對著手機、平板電腦、電視等「郁都唔郁」，再活潑好動的兒童也會被困得失去活動意欲，久而久之，要不就精力過盛，要不就社交障礙，難怪新聞常說香港兒童快樂指數持續下跌。
+
+### 明白兒童真正所需　勿要人云亦云
+
+我與老公在生育前已就養兒育女的大原則達成共識，雖然沒能力讓女兒含著金鎖匙出生，但必定會盡自己最大努力，讓她們成長在一個快樂健康的環境；雖然我們未必有能力為女兒提供豐盛的嫁妝，但會盡力讓她們擁有快樂無悔的童年。我們深深明白環境對小孩成長的重要，加上小女兒出生後，小蝸居的空間捉襟見肘，因此毅然決定蝸牛搬殼。在幾經深思細想後，我們選了一個眾親友都意想不到的地區──元朗。我跟老公也不太著意校網，我們追求的是生活素質，更重要是容許孩子「放電」的休憩活動空間，於是選了擁有專屬濕地公園的屋苑。
+
+<figure>
+<img src="https://web.archive.org/web/20211027160423im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/濕地公園-元朗區-20180806042914_1230_large.jpg" alt="">
+<figcaption>搬到元朗居住，有專屬的濕地公園，可隨時散步接觸大自然。網路照片</figcaption>
+</figure>
+
+搬進來後我們才發現這裡許多鄰居都養了毛小孩，屋苑甚至貼心地提供一條建議的放狗路線，我跟老公見到後，忽發奇想「既然狗仔都能夠每天到戶外散散步，我們家的人仔也應該出來放放吧。」於是我們全家約法三章，無論女兒課業如何繁重，無論老公的工作如何忙碌，我們每天都必定抽時間，一家四口齊齊散步，至少半小時。如果當天時間許可，就到屋苑設置的戶外園林去玩樂。規則定好了，執行起來，兩位女兒的反應大相徑庭：小女兒年方兩歲，正是活力充沛之時，在新環境簡直如魚得水；大女兒是小學生，已開始有沉迷電子產品的跡象，甚至故意拖慢做功課的進度以逃避散步，讓我們哭笑不得，結果我足足用了兩個月時間才讓她逐步走出戶外，學懂享受如何跟陽光／月光玩遊戲。我還真慶幸自己搬家的決定做得還不算太遲，在女兒成為一名「小宅女」前，大力的把她扯出屋外。
+
+<figure>
+<img src="https://web.archive.org/web/20211027160423im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/Carrie媽媽-戶外園林-20180806133949_4f9e_large.png" alt="">
+<figcaption>屋苑的戶外園林。照片由筆者提供</figcaption>
+</figure>
+
+還記得有媒體把為了校網而搬家的家長稱為「現代孟父／母」，我一直對這種說法不以為然，社會環境對孩子的薰陶固然重要，但作為家長，最重要是知道孩子最需要的是甚麼。在學習壓力有增無減的今天，我們孩子最需要的也許不是名校，而是可以任意跑、肆意笑的時間與空間。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027160423/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Carrie媽媽](https://web.archive.org/web/20211027160423im_/https://hkcnews.com/uploads/avatars/ac190f7a-57c9-43b5-8e78-296aedffdbad.png?1657799024)
+
+**博客 | Carrie媽媽**
+
+【Carrie媽媽・養兒為樂】小時候夢想當職場女魔頭，霸氣地一統江湖，但英雌難過兒女關，生下兩個寶貝女兒後，甘願退隱江湖，當上全職媽媽，展開生活嶄新且豐富的新一頁。

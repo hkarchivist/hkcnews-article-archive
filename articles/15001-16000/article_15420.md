@@ -1,0 +1,56 @@
+---
+title: "塌樹個案增至5.4萬宗　康文署：需三個月時間清理"
+date: "2018-10-04"
+last_updated: "2018-10-05 00:40:37"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "發展局"
+  - "塌樹"
+  - "山竹善後"
+url: "https://web.archive.org/web/20210805054855/https://www.hkcnews.com/article/15420/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15424/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD54%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/15420/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15424/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD54%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 塌樹個案增至5.4萬宗　康文署：需三個月時間清理
+
+發展局局長黃偉綸今天（2日）出席立法會內務委員會時公布，截至10月2日為止，最新塌樹個案已由早前的4.6萬增至5.4萬宗，他表示政府經過今次經驗後，不打算「冧一棵種一棵」，而是檢討會否讓樹木有更大的生長空間。另外，康文署今日回覆查詢眾新聞查詢表示，估計需約三個月才能完成清理塌樹工作，並正尋求其他相關部門協助，以加快清理進度。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/山竹善後-黃偉綸-20181004215127_1606_large.jpg" alt="">
+<figcaption>發展局局長黃偉綸公布，截至10月2日為止，最新塌樹個案增至5.4萬宗。何君健攝</figcaption>
+</figure>
+
+### 內會討論山竹善後　議員質問及樹木管理
+
+立法會內務委員會今日召開特別會議，討論政府對於「山竹」的善後工作，有立法會議員問及有關樹木管理的問題，民建聯柯創盛認為今次市民「鬧爆政府」的原因之一，是樹木管理以至枯枝落葉跌在不同地方都由不同部門跟進，令市民力不從心，他認為應該責成發展局轄下的樹木辦作為統一管理。
+
+醫學界陳沛然表示，不同範圍的樹木分別歸漁農署、土木工程拓展署、地政總署、康文署等九個不同部門管理，他建議政府設立跨部門單位，以統一處理有關樹木的管理情況。公民黨陳淑莊表示，政府應趁機會重新檢討本港現時所種的「盆景樹」，她批評現時種樹所用的泥土是建築廢料，根部又不能抓落地底，質疑樹木辦的角色用處何在。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/塌樹-山竹善後-山竹災情-20181004235455_27cd_large.jpg" alt="">
+<figcaption>山竹吹襲後，數以萬計樹木倒塌，揭露很多樹木根部很短，根本抓不牢地底。讀者任小姐提供</figcaption>
+</figure>
+
+發展局局長黃偉綸回應表示，政府各部門對於管理不同範圍的樹木，是有清晰分工，他同意市民可能不清楚有關分工，但他相信政府熱線1823有能力轉介至各政府部門跟進，他又表示不打算硬性跟隨「冧一棵種一棵」，而是檢討會否讓樹木有更大生長空間栽種，會因地制宜，在適當地點種植適當的樹。
+
+政府今日提交立法會的文件顯示，有關颱風過後的善後及復原工作，截至9月26日，已檢查超過42.4萬棵樹木，並適時採取緩減措施，包括穩固1.9萬棵樹，例如將傾斜的樹木拉回直立位置，並用纜索及支撐架扶持、移除懸吊斷枝、移除3.1萬棵根基不穩的樹木、圍封2.1萬棵有待處理的樹木等。到目前為止，在社區設施內和公共屋邨內的所有樹木，以及約七成的路旁樹木均已完成檢查。餘下的樹木檢查工作將於10月初完成。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/山竹善後-發展局-20181003223458_2354_large.jpg" alt="">
+<figcaption>啟德發展區「臨時木料廢物收集處」已幾近飽和。環保觸覺提供相片</figcaption>
+</figure>
+
+昨日有環保團體觀察啟德發展區的「臨時木料廢物收集處」已經接近飽和，康文署回覆眾新聞查詢，現時有六部碎木機可將細小樹枝剪碎後，作該署公園種稙地帶的泥土覆蓋物及堆肥等，但康文署指以木碎作覆蓋物有局限性，例如有關木材必須為健康的枝條，以防止傳播病害，又指香港天氣潮濕，用木碎作種稙地帶的泥土覆蓋物容易產生蠓患等問題，故只會在較遠離民居的地方使用。
+
+康文署指該六部碎木機均為小型機種，加上今次有大量的塌樹，未能同時檢查以確認樹木枝條沒有病害感染和適合作循環再用，因此以碎木機處理如此大量的樹木廢料有很大的限制，該署沒有計劃購買額外的碎木機，估計總共需約三個月才能完成清理塌樹工作。署方正尋求其他相關部門協助，以加快清理進度。
+
+環保觸覺義務總幹事譚凱邦認為康文署應該對署方所種稙的樹木有信心，因為康文署恆常有做好護理、確保樹木沒有病蟲害的工作，他又指新加坡同樣是天氣潮濕，但都有使用原址碎木作覆蓋物的做法。他又指如果廢木需時三個月才清理好的話，屆時反而滋生更多蟲、病菌，他認為康文署的說法是大有矛盾。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805054855/https://www.hkcnews.com/aboutus/#subscribe)

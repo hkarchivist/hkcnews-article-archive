@@ -1,0 +1,72 @@
+---
+title: "廣東暫緩部分青少年接種疫苗　四川律師列舉原因拒打針：現行疫苗為緊急使用，非正式疫苗"
+date: "2021-08-11"
+last_updated: "2021-08-11 18:52:38"
+author: "中國組記者廖廸莎"
+category: "眾聞"
+tags:
+  - "新冠疫苗"
+url: "https://web.archive.org/web/20211202040023/https://hkcnews.com/article/44279/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44279/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 廣東暫緩部分青少年接種疫苗　四川律師列舉原因拒打針：現行疫苗為緊急使用，非正式疫苗
+
+**內地在6月中批准3至17歲民眾緊急使用新冠病毒滅活疫苗，在國家一聲令下，全國各地政府隨即行動，趁暑假分批為青少年打疫苗。不過廣東省衛健委近日印發通知，指要暫緩某些情況的青少年接種疫苗。**
+
+**在全國力谷疫苗的時候，四川律師謝德平亦難逃一劫，但他就選擇致信律協表明不願在現階段注射疫苗。他指出現時內地接種的只是緊急使用疫苗，並非正規疫苗，而且對當局轉嫁疫苗副作用法律責任有重大異議。**
+
+<figure>
+<img src="https://web.archive.org/web/20211202040023im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-20210811174501_10a1_large.jpg" alt="">
+<figcaption>內地近日力谷疫苗接種率。新華社</figcaption>
+</figure>
+
+### 全國各地出招求「疫苗清零」　廣東省衛健委暫緩部分青少年接種
+
+全國各地都積極推行青少年接種疫苗，制定時間表，甚至有地方明言暑假之內未注射兩針的學生不可以進入校園。暑假過了一半，有政府快馬加鞭，全力谷針。例如四川南充要求各級幹部在過去3日（9至11日）內拍門找人，務求在這個星期五做到「疫苗清零」，否則星期六就會逐人問責。
+
+<figure>
+<img src="https://web.archive.org/web/20211202040023im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-20210811174528_196a_large.jpg" alt="">
+<figcaption>青少年成為這輪疫苗接種的主要目標。新華社</figcaption>
+</figure>
+
+不過在全國疫苗接種進行得如火如荼之際，廣東省衛健委近日印發通知，指為了防範青少年在接種疫苗後會有不良反應的風險，制定了「暫緩情形專家共識」。衛健委職員說明文件是列出青少人不宜接種新冠疫苗的情形：「如果有列出的情形，是需要考慮暫緩接種的。」
+
+廣州市在4月已經印發過一次類似的緊急通知，當中列舉了10多種要暫緩接種的情況，包括心血管病患者、糖尿病患者等等。
+
+### 四川律師遭律協催打針　列舉原因拒絕：現行疫苗為緊急使用，非正式疫苗
+
+其實坊間亦有一些打完疫苗後出現嚴重副作用，甚至是死亡的情況。各地政府在追數的時候，似乎亦很少提醒市民怎樣的情況下不應打疫苗。福建福清就有人向信訪局投訴強制學生打疫苗，違反中央的「自願打疫苗」原則。不過信訪局回應，為學童打疫苗是國家的統一部署，學校是按照文件的精神，並非強制要求。
+
+<figure>
+<img src="https://web.archive.org/web/20211202040023im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-20210811174517_304c_large.png" alt="">
+<figcaption>網傳廣西南寧有市民打疫苗後死亡，家屬到醫院門前申冤。網上圖片</figcaption>
+</figure>
+
+四川律師謝德平在面對每天被律協催促打疫苗的情況下，昨日寫下一份情況說明，表明不願在現階段注射疫苗，並列舉了幾個原因。
+
+他指出現時內地接種的只是緊急使用疫苗，在國內並未經過三期臨床試驗。換言之，目前的接種者均是三期臨床試驗的參與者，而當局亦未有公開相關的疫苗說明書。
+
+而且原本疫苗廠商應為接種者投保，但現時接種者在打疫苗前卻要簽署免責文件，即使出現副作用亦無法得到賠償。
+
+加上這次南京境外輸入疫情中，大部分受感染的人都已接種疫苗，證明現行疫苗不一定具有實際效用，對現行疫苗的安全、效用和當局轉嫁法律責任有重大異議。
+
+原本謝德平只是將這份情況說明分享到一個律師群組中，但之後就在網上廣傳，今早被召去開緊急會議。我們下午聯絡到他，他拒絕受訪，只強調情況「一切正常」。
+
+<figure>
+<img src="https://web.archive.org/web/20211202040023im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-律師-20210811175151_f5b5_large.png" alt="">
+<figcaption>謝德平列舉原因拒絕接種疫苗。微信自媒體</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211202040023im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/律師-疫苗-20210811182617_2edd_large.png" alt="">
+<figcaption>謝德平向律協發出的情況說明。網上圖片</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202040023/https://hkcnews.com/aboutus/#subscribe)

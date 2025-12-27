@@ -1,0 +1,65 @@
+---
+title: "眾新聞製作《問究未？！》今晚首播"
+date: "2021-10-12"
+last_updated: "2021-10-13 11:22:23"
+author: "游大東"
+category: "眾說"
+tags:
+  - "眾新聞"
+  - "問究未？！"
+  - "眾節目"
+url: "https://web.archive.org/web/20211207192038/https://www.hkcnews.com/article/46436/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46457/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46436/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46457/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 眾新聞製作《問究未？！》今晚首播
+
+<figure>
+<img src="https://web.archive.org/web/20211207192038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/問究未？！-眾新聞-眾節目-20211012184622_228d_large.jpg" alt="">
+<figcaption>製作人、義工，與十位主持人及嘉賓的大合照。</figcaption>
+</figure>
+
+2021年的香港進入「新常態」，當權者千方百計要將反對聲音消滅， [《蘋果日報》結業](https://web.archive.org/web/20211207192038/https://bit.ly/3d5IEy8) 、《鏗鏘集》撤換原有班底、 [《五夜講場》遭勒令停製](https://web.archive.org/web/20211207192038/https://bit.ly/3w6IflE) ，多名資深傳媒工作者遭拘捕、起訴，甚至身陷囹圄，這種具毀滅性的打壓，前所未見，記者二字的背後，就是千刀萬剮，為求公義進行專業採訪報道愈見艱難。夠沮喪吧？夠氣餒吧？但是否甚麼也做不到？一個階段的結束，會不會是上天的試煉，冀望留下來的人繼續堅持，另闢新天？
+
+_   
+ 去年12月初，有線新聞裁員，屬於中國組的助理採訪主任黃麗萍遭解僱，以司徒元為首的「有線中國組」，決定 [集體請辭](https://web.archive.org/web/20211207192038/https://bit.ly/3Fy6H5v) ，原有班底的《有線中國組》於除夕夜播出最後一集，之後其中10人於2021年1月初加盟「眾新聞」，並於3月1日開始，逢周一至周五製作《眾新聞中國組》於每晚九點直播。節目播出後，深受歡迎，「眾新聞」的訂閱人數急升，截至今天（12/10）凌晨四時，facebook專頁的粉絲人數多達27萬，而YouTube頻道的訂戶亦有22.5萬。   
+ _   
+ 隨著時局發展日益轉差，主流媒體只剩下一種聲音，網上媒體逐漸成為市民接收資訊的新渠道，故此「眾新聞」增撥資源製作節目是可以預料的事，除了早前的改革版《香港這一天》（《蘋果新聞報道》末代主播謝馨怡加盟）外，今個星期開始，亦會接連推出兩個新節目《問究未？！》以及《眾聲集》，前者將於今晚八點首播，以後逢周二、三播出，後者的第一集則於周四（14/10）晚上八時上架。   
+ _   
+ 先講講《問究未？！》，據了解，其實早於今年六月底《五夜講場》遭廣播處長李百全下令停製之後不久已率先埋班，經過一輪籌備，《真係好科學》能夠原班人馬在新節目出現外，原為《哲學有偈傾》幕前班底的「好青年荼毒室」亦以特別嘉賓的方式主持其中一集，另外有不同新成員加入，新舊交融，故個人而言可以視為《五夜講場》的變奏版。   
+ _   
+ 節目的製作團隊聯絡人，周一（11/10）於 [「眾節目」facebook專頁發文](https://web.archive.org/web/20211207192038/https://bit.ly/3v3cTxm) ，直言《問究未？！》暫時只有十集存貨，屬於試驗方式（Television Pilot），希望網民能夠以實際行動支持，使得節目能夠繼續製作下去，畢竟製作節目會直接令「眾新聞」的開支增加。聯絡人謂：「《問究未?!》的首筆拍攝資金一半是由眾新聞而來，製作人在這筆有限但珍貴的資金下完成十集的試驗版。製作過程中，我們獲得不少團體以低價借出場地作拍攝用途，我們也要感謝一眾於場地經常出現、默默為年輕人打點的電視製作前輩，部分人更借出私伙器材，協助完成製作。」聯絡人強調，整個製作團隊平均年齡只有25歲，他們從來不知道節目可以走多遠，「但我們就是想藉一個知識型節目說出有志氣的話，堅持行自己的路。我們常反問自己：可以為這時代做甚麼？如果只懂製作，那就堅持做最好的作品。」   
+ _   
+ 從YouTube頻道的預告可見，第一集的主題是《電視台「育成」企画》，主持人、香港大學社會科學系講師黃培烽將會認真探討本地電視文化，由ViuTV、Error 和Mirror 如何「育成」講起，談到娛樂工業的變化，再論及本地天團冒起與社會政治氣氛的關係。其實節目組曾在開拍前曾邀請本人參與錄影，奈何錄影當天有其他工作在身，最終無暇出席。
+
+
+{{< video src="https://web.archive.org/web/20211207192038if_/https://www.youtube.com/embed/xAeNfCPP2P8" >}}
+
+
+_   
+ 至於《眾聲集》，參考官方facebook專頁 [「眾聲號」的帖文](https://web.archive.org/web/20211207192038/https://bit.ly/2X1UyUO) ，節目製作團隊是「來自一群透過影像紀錄香港的新聞工作者，團隊成員包括港台《鏗鏘集》前監製和部分已離職的編導們。」他們指出，除了《眾聲集》之外，另外有不日推出的《冒號開引號》，前者關注社會時事，後者則重人物對談，是團隊與「眾新聞」聯手製作，個人認為是《鏗鏘集》與《鏗鏘說》的變奏版。而首集《眾聲集》的內容，有待官方專頁稍後尚未公布詳情。   
+ _   
+ 緊貼「游大東影視筆記」最新資訊：   
+ ▇ facebook專頁： [游大東【鴻鵠志－影視筆記】](https://web.archive.org/web/20211207192038/https://www.facebook.com/search/top/?q=游大東【鴻鵠志－影視筆記】)   
+ ▇ instagram： [instagram.com/yautaitung](instagram.com/yautaitung)   
+ ▇ MeWe專頁： [mewe.com/p/yautaitung](mewe.com/p/yautaitung)   
+ ▇ Telegram： [https://t.me/yautaitung](https://web.archive.org/web/20211207192038/https://t.me/yautaitung)   
+ ▇ Medium： [https://yautaitung.medium.com](https://web.archive.org/web/20211207192038/https://yautaitung.medium.com/)   
+   
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207192038/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 游大東](https://web.archive.org/web/20211207192038im_/https://www.hkcnews.com/uploads/avatars/141dd4d3-295a-4a8b-9931-5ff4a5607a73.png?2034962320)
+
+**博客 | 游大東**
+
+【游大東・影視筆記】，土生土長八十後，在傳媒打滾十年，從電台到電視，由雜誌到網媒，曾任記者和編輯；偽文青與偽老人精合體，熱愛電視文化，最愛看經典節目；閒時執筆，自己觀點自己寫，深信只要做足功課，大把有趣內容可以講。

@@ -1,0 +1,64 @@
+---
+title: "【立會藐視案】工黨主席郭永健今生日認罪但否認伸手致保安跌倒　官准下月召開紐頓聆訊釐清案情"
+date: "2021-11-30"
+last_updated: "2021-11-30 17:38:49"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "郭永健"
+  - "立法會權力及特權條例"
+  - "區諾軒"
+url: "https://web.archive.org/web/20220125162215/https://hkcnews.com/article/48358/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48364/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48358/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48364/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【立會藐視案】工黨主席郭永健今生日認罪但否認伸手致保安跌倒　官准下月召開紐頓聆訊釐清案情
+
+七名時任立法會議員及議助涉違反《立法會（權力及特權）條例》，指他們前年在內委會選主席時阻礙議會。當中工黨主席郭永健涉嫌抗拒保安及丟出《議事規則》，被控干擾、騷擾或妨礙立法會人員及藐視罪。他今（30日）在西九龍法院承認兩罪，但不同意案情指他曾在爭執糾纏期間伸出左手，導致保安員跌倒。署理總裁判官羅德泉最後應辯方要求，定於下月15日召開紐頓聆訊（Newton hearing）以釐清案情；屆時郭將考慮作供，亦會傳召涉案保安員出庭。
+
+今日是郭的生辰，散庭後旁聽席市民紛紛送上祝福，大喊「生日快樂」、「頂住呀」及「我愛你呀」。郭一邊步入囚室，一邊向市民揮手道謝。
+
+<figure>
+<img src="https://web.archive.org/web/20220125162215im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/六四集會-郭永健-20210909105501_2d2d_large.jpg" alt="">
+<figcaption>郭永健</figcaption>
+</figure>
+
+### 擔心「伸左手」案情影響判刑及民事索償
+
+郭永健（35歲）承認前年5月8日，在會議上抗拒或妨礙正在執行職務的立法會保安員簡廣榮，並且引起騷亂，令會議中斷或相當可能中斷。他於案發時擔任前工黨立法會議員張超雄的助理，今日張及多名前議助亦有到庭旁聽。
+
+辯方表示，雖然郭承認控罪，但不同意案情指他案發時左手曾伸前，導致保安員簡廣榮跌倒。由於這點很可能影響判刑，李也擔心承認案情後，或需承擔相關民事責任。因此，辯方申請排期進行紐頓聆訊，以釐清有關內容。
+
+惟控方反對召開紐頓聆訊，稱法庭已有足夠證據考慮判刑，而控罪指郭抗拒保案員而非襲擊，相信上述爭議不會「大幅度地」影響判刑基礎。
+
+### 官：辯方求情陳詞時控方提出反對　將更費時失事
+
+羅官表示，有關動作屬魯莽或蓄意，或會影響判刑，並問控方：「如果佢（辯方）話係意外嘅話，你接唔接受到？」控方堅持郭當時曾伸出左手。
+
+羅官續指，控罪中的「抗拒」並非指單一動作，法庭需考慮整體的一連串動作。若辯方求情時表明，郭沒有伸出左手致保安員跌倒，控方卻提出反對，屆時法庭亦要處理，變相更費時失事。控方聞言指：「咁我哋唔會再有陳詞。」
+
+羅官最終將紐頓聆訊定於下月15日進行，屆時將會播放6條現場片段，片長共半小時。
+
+> **何謂紐頓聆訊（Newton hearing）** ？   
+ 一般程序下，當被告認罪及同意案情後，便會正式被定罪。惟若果被告認罪後，不同意全部或部分案情，法庭便可召開紐頓聆訊聆聽控辯雙方的證據再作決定。若最終法庭不接納辯方提出的案情，或會縮減被告因認罪而獲得的三分一刑期扣減。
+
+
+本案於去年11月再訊時，辯方申請押後案件，以待「長毛」梁國雄搶文件案，就藐視罪是否不適用於檢控議員上訴至終院的判決，今年9梁被裁定敗訴。案發時郭不是立法會議員，故不需考慮裁決結果，今日可答辯。   
+   
+ 同案其餘7名被告均是時任立法會議員，分別被控干預、騷擾或妨礙立法會人員罪及藐視罪。案件原定今日再訊，但羅官表示數日前收到何謝韋律師事務所來信，指部分被告要求押後案件，其他被告亦不反對，因此法庭批准案件押後至明年2月4日再訊，各被告今日沒上庭。
+
+### 法案委員會衝突案　律師行來信要求押後至明年2月再訊
+
+此外，7名民主派前立法會議員涉嫌前年在立法會《逃犯條例》法案委員會上與建制派議員起衝突，妨礙議員開會，被控違反《立法會（權力及特權）條例》。
+
+案件原定今在西九龍法院再訊，但羅官同樣表示早前收到何謝韋律師事務所來信，指部分被告「想要多啲時間考慮吓佢哋嘅情況」，故申請押後至明年2月4日再訊，其他被告亦不反對。
+
+由於區諾軒（34歲）沒有法律代表，並且正在還柙中，法庭無法通知他有關事宜，故今繼續傳召他出庭應訊。其他被告則今日沒到庭。
+
+### 區諾軒臨別大喊：中咗新冠、得咗重症仲大件事
+
+區親自陳詞指，不反對押後案件。羅官最終將此案押後至明年2月4日再訊，並批准區保釋候訊，但由於他在民主派初選案中不准保釋，故需繼續還柙。
+
+區步入囚室前，向旁聽席的聲援市民揮手及90度鞠躬，並疑借用政府的齊打疫苗廣告，大喊：「保重自己！中咗新冠、得咗重症仲大件事啦！」
+
+案件編號：WKCC3842/20、ESCC2514/19

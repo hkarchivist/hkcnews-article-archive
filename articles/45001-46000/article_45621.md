@@ -1,0 +1,56 @@
+---
+title: "【10.7反蒙面法集會】警長稱採「行吓左行吓右」跟踪策略扮示威者　午休時躲起並疑違規法院內攝記者"
+date: "2021-09-20"
+last_updated: "2021-09-20 18:35:28"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "非法集結"
+  - "鄭念慈"
+  - "禁蒙面法"
+url: "https://web.archive.org/web/20211028180242/https://www.hkcnews.com/article/45621/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45634/%EF%BF%BD%EF%BF%BD%EF%BF%BD107%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45621/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45634/%EF%BF%BD%EF%BF%BD%EF%BF%BD107%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【10.7反蒙面法集會】警長稱採「行吓左行吓右」跟踪策略扮示威者　午休時躲起並疑違規法院內攝記者
+
+前年10月實施禁蒙面法後，全港多區發生警民衝突，有三名少女涉嫌在紅磡堵路，被控非法集結罪。案件今在九龍城裁判法院續審，當日喬裝跟蹤三名被告的警署警長提及當日採取「行吓左、行吓右」策略，扮作示威同類人，他堅稱視線沒受阻，但承認看不到面容特徵，連髮型及瀏海都「唔係太清楚」。作供期間，其手機響起《大丈夫》的鈴聲，惹旁聽席市民竊笑；午休期間他為避記者鏡頭，躲在法院二樓牆後逾半小時，其間疑無視不得在法院大樓攝影的規定，用手機拍記者。
+
+三名被告為依序為案發時未滿17歲、姓凌女生（18歲）和姓柯女生（18歲），及無業的何紫瑩（20歲），她們被控前年10月7日在紅磡民兆街近民泰街參與非法集結。
+
+<figure>
+<img src="https://web.archive.org/web/20211028180242im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/裁判法院-九龍城法院-20210920181304_475a_large.jpg" alt="">
+</figure>
+
+### 不認為一男望三少女會招懷疑
+
+警署警長17052盧卓康早前供稱，當晚他喬裝行至黃埔花園，現場有數百人聚集，當中有人掘磚堵路，其間三名被告將磚頭放在紅磡道上。盧今在盤問下表示，雖然三名被告堵路時身處示威者後排，但其視線沒受阻，其間他一直「行吓左、行吓右」，視線沒離開過三人。辯方質疑：「你行吓左又行吓右，一個男人望住三個少女，唔驚人覺得奇怪咩？」盧表示：「正正咁先唔覺得奇怪，如果企喺到反而仲奇怪」，並形容策略是「行嚟行去，扮係佢哋同類人囉」。
+
+盧又供稱，其中一名穿淺色上衣的被告用「黑色嘢」掩面，遮掩鼻以下位置，雖然他一度距離對方僅5至10呎 ，但看不清「黑色嘢」是什麼。辯方質疑現場燈光昏暗，惟盧說「未必係」，因他多數身處少女的後方觀察。他又指，觀察該名被告堵路時，曾看過她的正臉及側臉，但看不到她鼻以上的面容特徵，連髮型及瀏海也「唔係太清楚」，僅記得她留長髮、沒戴眼鏡。
+
+### 被告脫下蒙面物後警長只留意上半身
+
+盧續供稱，他一直跟蹤三名被告，並看到三人在民泰街脫下蒙面物品，其間他只留意她們的上半身，但看不到她們將蒙面物品放在何處、抑或只是拿著。
+
+<figure>
+<img src="https://web.archive.org/web/20211028180242im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/反送中案件-20210920181446_f9f5_large.jpg" alt="">
+<figcaption>被告何紫瑩</figcaption>
+</figure>
+
+辯方又質疑，盧供稱跟蹤三名被告途中轉了三個街角，那為何不一早將他們截停拘捕。盧回應指，正常情況下應及早截停疑犯，但當時正值2019年社會事件，情況並不正常，示威者人數是警方的倍數，他擔心勢孤力弱。辯方質疑他為何不立即要求同袍增援，他則指當時防暴隊正在紅磡道掃蕩。根據盧早前的證供，他跟蹤三名被告至德民街時，才通知上司及同袍拘捕她們。
+
+### 庭上響《大丈夫》鈴聲惹竊笑聲
+
+此外，盧作供期間一度響起手機鈴聲，庭上迴盪起關正傑主唱、黃霑填詞的名曲《大丈夫》：「大丈夫一生要經過，困難磨練共多少⋯」旁聽席隨即傳出竊笑聲，盧則忙亂地關掉鈴聲，並尷尬地向裁判官鄭念慈致歉稱：「唔好意思，法官閣下。」
+
+午休期間，盧為了躲避記者鏡頭，在法院大樓二樓徘徊逾半小時，並一度躲在牆後，疑用手機拍攝記者。其間有軍裝警員特意走出大門外巡邏，惟看見記者後又折返法院大樓。根據司法機構的規定，除非獲特別許可，否則法院大樓不可攝影。現場所見，九龍城法院大樓各處均張貼了「不准攝影」標誌，包括盧逗留的二樓。
+
+案件編號：KCCC1130/21
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028180242/https://www.hkcnews.com/aboutus/#subscribe)

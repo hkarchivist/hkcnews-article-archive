@@ -1,0 +1,73 @@
+---
+title: "【獨立紀錄片‧上】《佔領立法會》失落金馬獎　導演憶七一：個個都鬧緊有內鬼，示威者相信嘅係乜？"
+date: "2020-11-22"
+last_updated: "2020-11-22 02:39:44"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "金馬獎"
+  - "紀錄片"
+  - "紀綠片"
+  - "佔領立法會"
+url: "https://web.archive.org/web/20211026093922/https://hkcnews.com/article/35811/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35818/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35811/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35818/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【獨立紀錄片‧上】《佔領立法會》失落金馬獎　導演憶七一：個個都鬧緊有內鬼，示威者相信嘅係乜？
+
+**由香港紀錄片工作者製作的《佔領立法會》與台灣金馬獎擦身而過。「當個個都鬧緊示威者的時候，示威者相信的是甚麼？」導演記得當日很多輿論說，衝擊立法會的人是內鬼，但他在現場感受很大，因為擁有那份激昂的人不會是內鬼，示威者敲問的是「仲可以做啲咩？」**
+
+**由下午到晚上，撞擊一整天都未闖入立法會，當時他心裏有一絲想過：「（示威者）還要堅持下去？為乜呢？」或者那一刻，可不可以成功佔領立法會，對示威者來說已經不重要，而是他們要做一件覺得正確的事，而這件事從未成功過。**
+
+**外圍的人、對他們下判斷的人，就是沒有看到這一部分。「我很想梳理他們的討論，你再去判斷。」「是否我們走得太慢？是否我們無理解他們的聲音？是否很快就掩蓋了他們的聲音？」——這就是《佔領立法會》，香港社運史重要一頁。**
+
+<figure>
+<img src="https://web.archive.org/web/20211026093922im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/佔領立法會-20201121194400_1786_large.jpg" alt="">
+<figcaption>《佔領立法會》與台灣金馬獎擦身而過。影意志圖片</figcaption>
+</figure>
+
+### 下判斷的人　無看到的部分
+
+紀錄片《佔領立法會》完整紀錄去年七月一日由早至晚，示威者由討論、行動、撤離到清場的珍貴歷史片段，群眾討論行動的爭辯、衝擊立法會時與議員的拉鋸，「尊貴的議員，麻煩你讓一讓」、「你教我可以怎樣做？」道出示威者當刻最無力的吶喊。在金馬獎前一日黃昏，記者跟有份參與製作的導演談過，他在紀錄片中沒有留下名字，接受訪問也不具名，因為還想繼續拍下去，或者就好似這場運動一樣，很多人也是寂寂無名。
+
+七一之後，導演有很深感受。
+
+當日由下午一時許開始，示威者嘗試撞入立法會，重覆的機械的不斷撞，一直撞到四五時，期間有人不斷喊話「不要啊」、「要以理服人」，但他們就是不理繼續撞。「做了幾個鐘，換了幾班人，以為撞破原來又入不到，將激動付諸行動，但行動變得漫長，其實很累人。」當時他心裏也會想：「仲要堅持下去？為乜呢？」
+
+天黑後，還在撞，他們就是很執著：「要衝入去」。導演坦言，初時以為《逃犯條例》最終都會通過，因為以往菜園村等太多太多事件，即使遇到示威，還是敵不過制度暴力，大家只能盡力反對，但問題是：「盡到咩程度的力？有些代價是大家都不會想付出。」但當日他從示威者的眼神，看見的是堅持和決心，最終入不入到去，或者已經不要緊。
+
+當日有很多輿論，甚至他的前輩朋友都說，打爆玻璃、入面又沒有警察，斷言有內鬼、有陰謀。但他在現場並不認同，因為擁有這種情緒的人不會是內鬼，他們控訴的是：「無嘢可以做，仲可以做啲咩？」
+
+「當個個都鬧緊佢，佢相信的是甚麼？佢的意志是甚麼？」可不可以成功佔領立法會，或者對示威者來說已經不重要，而是他們要做一件覺得正確的事，而這件事過往從未成功過。外圍的人、下判斷的人，就是沒有看到這一部分。
+
+撞與不撞，衝與不衝，內鬼與手足，日間到晚上，最終香港人在香港回歸中國大陸第22年的日子佔領立法會。那一刻，導演說：「我・好・乸・激・動。」
+
+七一之後，他最想做的第一件事，是梳理示威者之間的討論，簡單地敘事、時序和脈落：如何促成佔領立法會。
+
+<figure>
+<img src="https://web.archive.org/web/20211026093922im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/立法會-七一衝擊立法會-20190702182100_3aff_large.jpg" alt="">
+<figcaption>眾新聞資料圖片</figcaption>
+</figure>
+
+### 是否我們走得太慢？
+
+回想起來，導演自言，原來2014年的自己很「和理非」，當年雨傘運動，他也走到現場拍攝，最初有人佔據龍和道時，他會叫示威者回來。佔路的先行者，一個又一個被旁人勸退、拉走，最終龍和道上只剩下一人，那人說「就算淨番我一個人，都要霸住條路」。這是很少數、很微弱的聲音，但很堅持。
+
+79日過後，最終運動還是滯留了。
+
+> **其實我很同情，是否我們走得太慢？是否我們沒有理解他們的聲音？是否很快就掩蓋了他們的聲音？**
+
+
+他的紀錄片，很想聚焦前線的討論，行動是如何促成？
+
+金馬獎，對香港人來說很重要，因為台灣是我們的朋友和戰線，很想他們明白香港、七一發生甚麼事。不過，他沒想過《佔領立法會》入圍金馬獎，一心更盼望《理大圍城》入圍，因為「理大說的深很多，運動當中經歷的情緒掙扎、信念瓦解，這種痛，我們應該要去理解。」
+
+[【獨立紀錄片・下】《理大圍城》拍下信念瓦解傷痛　導演：了解前線，必先卸下浪漫化一面](https://web.archive.org/web/20211026093922/https://bit.ly/390P6W1)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026093922/https://hkcnews.com/aboutus/#subscribe)

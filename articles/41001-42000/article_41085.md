@@ -1,0 +1,71 @@
+---
+title: "【728上環暴動案】審訊中段辯方申請換官　半數被告代表大狀質疑法官陳仲衡偏頗"
+date: "2021-05-07"
+last_updated: "2021-05-13 23:18:34"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "暴動"
+  - "陳仲衡"
+  - "728上環衝突"
+url: "https://web.archive.org/web/20211027121135/https://hkcnews.com/article/41085/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41331/%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41085/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41331/%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【728上環暴動案】審訊中段辯方申請換官　半數被告代表大狀質疑法官陳仲衡偏頗
+
+728上環暴動案部分被告正向法庭申請法官避席，簡言之即申請換官，理由為法官陳仲衡「表面偏頗」。申請方大律師陳詞指，陳官（一）過早公開地否定辯方的抗辯理由、（二）對辯方大律師的嚴厲批評，包括對專業操守的攻擊、（三）不時挖苦及嘲諷辯方大律師，「會令一名思想公正的知情旁觀者（a fair-minded and informed observer）有合理的顧慮認為法官是偏頗的」。
+
+陳官今午表示，將於下周一（10日）作出裁決。他又著急地在庭上就申請方陳詞中所舉的例子作澄清，指自己曾經將辯方大律師盤問時所講的「好似」聽錯為「好刺耳」，以致當時作出了「反應」。陳官解釋：「好似個『似』字入咗我耳，聽咗做『刺耳』」、「『似』字個音長咗少少，就聽咗『刺耳』」。
+
+<figure>
+<img src="https://web.archive.org/web/20211027121135im_/https://hkcnews.com/news_新聞/hk-discuss/2018/11/法官-陳仲衡-公眾妨擾罪-20181119231253_d165_large.jpg" alt="">
+<figcaption>本案主審法官為區域法院法官陳仲衡。蘋果日報照片</figcaption>
+</figure>
+
+本案共有24名被告，其中一人於去年5月已認罪，餘下23人正經歷審訊，由區域法院法官陳仲衡主審。現年57歲的陳官過去亦曾審理「佔中九子案」、「7.14沙田斷指案」。本案預計審期為60天，今天已經是第52日。
+
+本周三（5日）其中12名被告申請換官，代表大狀包括關文渭、石書銘。申請方由第一被告的代表、大律師關文渭陳詞表示，明白法庭有責任對與案件無關、不能呈堂、重複、不合適地冗長的問題，作出適當的干預，然而陳官很多時候在辯方盤問的首數分鐘內已作出干預，未有透過合理時間，理解辯方問題的意義、擬建立的論點或方向。
+
+申請方的陳詞又指，陳官就著本案其中一個重要的元素「暴動」，明示/暗示不是有爭議空間的議題，屬先入為主。申請方在陳詞中，直接引述陳官在審訊第3天曾說過：「 **如果連暴動都有，有無暴動都有爭議既話，控方需要證明既時候，呢個係另，控方有另一種處理方法……** 」申請方認為「連有無暴動」、「都有爭議」的字眼，顯示了陳官不認為這是有爭議空間的議題。
+
+申請方續引用1998年Chan Kwan Kan案上訴庭就法官干預的說法，指法官的責任是聆聽及公正考慮辯護理由，法官干預的效果，就會是向辯方潑冷水。申請方指，法官不應在辯方盤問時不必要地矮化辯護理由或打斷盤問，盤問者有權選擇他自己的盤問方式。
+
+<figure>
+<img src="https://web.archive.org/web/20211027121135im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/728上環衝突-催淚彈-20190912044816_21f2_large.jpg" alt="">
+<figcaption>2019年7月28日，有44人在上環被捕後被控以暴動罪。美聯社</figcaption>
+</figure>
+
+申請方形容「辯方大律師面對一個不但嚴峻而且尷尬的情況」，回顧審訊紀錄，直到第47日審訊為止，控方所佔的審訊時間達65.2%；辯方16隊律師團隊卻僅佔34.8%，當中包括問題數量、播放影片數量及時間的差異。
+
+申請方舉例說，控方獲准向證人重複播放片段，但辯方要求播放時卻遭拒，陳官稱所有片段已成為證物，法庭可以自行觀看，辯方只能跟從指示。陳詞中另一例子，則是控方邀請法庭留意片段/證物/地圖上的事物，往往獲准；辯方擬帶出案發地點的地理狀況時，卻被陳官指浪費法庭時間。申請方認為「這些對控辯雙方極端地不同的態度和立場，除了影響辯方（盤問）外，亦難免令一名思想公正的知情旁觀者覺得法官厚此薄彼。」
+
+在庭上審訊期間，陳官又厲聲批評辯方「拖（延）」、「浪費時間」，申請方認為被指「蓄意拖長審訊」是嚴重指控，是對身為大律師的專業的指控。
+
+據記者旁聽觀察，陳官於審訊第42日亦曾質疑辯方大狀曾藹琪「浪費時間」。當時代表第14被告的曾藹琪正盤問控方證人、警長陳盼達，剛問到7月1日當天是否有牽涉遊行的工作，證人反問是7月1日哪一部分，曾指「可以答咗我先」，陳官這時介入：「有咩關係，你答咗我先。」結果證人需要避席，曾藹琪要向陳官解釋盤問方向及表示須鋪排，對話節錄如下（非法庭正式記錄）：
+
+辯方大狀曾藹琪：「可能你已經認為唔重要，我認為係有關。」   
+ 陳官：「你要用咁嘅說話嚟『擠我』。」「你用你嘅時間。」   
+ 辯方大狀曾藹琪：「我會盡快。」   
+ 陳官：「唔使盡快，你要問幾耐，隨你，唔好以為我制止緊你。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027121135im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/郭棟明-關文渭-728上環衝突-20210507172659_d2d8_large.jpg" alt="">
+<figcaption>（左）辯方大律師關文渭；（右）控方資深大律師郭棟明。</figcaption>
+</figure>
+
+控方代表、律政司委聘資深大律師郭棟明反對申請，昨日（6日）向法庭提交了書面陳詞。控方認為案件管理是法官的重要職能，而陳官大部分的介入/干預都是恰當、有理有據的。控方又不同意辯方指陳官過早地否定辯方的抗辯理由，認為「辯方自行揣測法官的立場，不構成合理的避席理由。 」
+
+至於申請方指法官嚴厲批評辯方大律師，控方認為陳官沒有針對辯方大律師的專業操守作不恰當「評擊」（抨擊），並形容：「不少例子是辯方過份及主觀解讀。誠如上文所言， 法官該些介入或干預是恰當及有基礎。 」控方亦不同意辯方比較審訊時間的方式，指刑事審訊中，控方有責任證明每項罪行元素，辯方可只就其中一個元素提出合理懷疑。
+
+控方並認為，陳官沒有用任何言語攻擊任何一位大律師的專業操守，不認同申請方提出的Falcon及Lashley案例可與本案相比。控方指，質疑大律師浪費時間，與「蓄意誤導法庭」是兩碼子的事，與專業操守談不上關係。
+
+辯方今午再就控方陳詞作書面回應，陳官接獲該陳詞後，即就其中一點作出澄清，指自己曾錯誤將「好似」聽作「好刺耳」，形容是「音」的問題：「係個音嘅，似字，唔知點解個耳字出埋，所以（當時）有即時反應。」此外別無澄清，表示下周一早上10時開庭作出裁決。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027121135/https://hkcnews.com/aboutus/#subscribe)

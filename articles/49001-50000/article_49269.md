@@ -1,0 +1,68 @@
+---
+title: "民研選舉調查不分析無效票趨勢　鍾劍華認受壓：真係有啲嘢搞我哋"
+date: "2021-12-17"
+last_updated: "2021-12-18 01:37:10"
+author: "記者盧珮瑤"
+category: "眾聞"
+tags:
+  - "立法會選舉"
+  - "鍾劍華"
+  - "香港民研"
+url: "https://web.archive.org/web/20220519042533/https://hkcnews.com/article/49269/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49269/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民研選舉調查不分析無效票趨勢　鍾劍華認受壓：真係有啲嘢搞我哋
+
+立法會換屆選舉於本周日(19日)舉行，無效票數目成為全城焦點。香港民意研究所今(17日)公佈最新選舉調查，發現不足一半受訪選民有意欲投票。在調查中，民研公佈各選區勝算機會較高的候選人，不過在「無效票」一欄就未有透露數字和分析。香港民意研究所副行政總裁鍾劍華指，近日接連有涉嫌煽惑他人投白票的拘捕行動，並透露民意研究所亦是被調查對象之一，「又真係有啲嘢搞我哋啦，我唔怕講㗎喇」，因此希望在選舉過後，才為無效票結果做分析。
+
+<figure>
+<img src="https://web.archive.org/web/20220519042533im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/香港民研-20211217193148_d7db_large.jpg" alt="">
+<figcaption>香港民意研究所今公佈最新的選舉調查，中間為香港民意研究所副行政總裁鍾劍華。何家達攝。</figcaption>
+</figure>
+
+民研公佈最新選舉調查顯示，即使大選在即，選民的投票意欲仍然奇低。民研於選舉前最後一星期、即本月9日至14日，以電話訪問形式，隨機抽樣訪問891位受訪者。結果顯示，表明「肯定會」或「多數會」投票的受訪者只有48%，比上一次於本月初完成的調查，下跌4%。而「多數唔會」及「肯定唔會」投票的受訪者則高達接近四成，有39%，比上次調查上升3%。   
+   
+ 浸大政治及國際關係學系副教授陳家洛分析指，民研由上月到今個月進行3次選舉調查，雖然投票已「進入直路」，但表明會投票的人數仍維持低水平，「一貫都係維持喺三成左右」。他指，近日多名建制派人士均預期投票率會比以往低，可見政府及建制派正在做「期望管理」，「即係唔止我哋係咁睇，政府都係咁睇」。鍾劍華亦指，表明不會投票的選民比過往幾屆多，「競選活動、宣傳品嗰啲都入唔到屋，就算入咗屋都無效果」。   
+   
+ **難以感動非建制派支持者投票   
+** 受訪者當中，超過一半（52%）認為地區直選中，沒有候選人值得支持，反之認為有的只有約三成（31%）。依據群組調查，84%的民主派支持者都指沒有候選人值得支持，而62%的非民主派支持者則認為有。   
+   
+ 陳家洛解釋，非建制派候選人難以感動到民主派選民投票。他留意到選舉論壇中，各區的非建制派候選人均變成建制派的「出氣袋」，「以往政府有咩衰嘢都話晒係佢哋錯，表現好被動，但最慘係捱打得嚟又唔係好博到大家同情」。他認為，選舉制度變更亦是主因，在90個議席中，現時選民只能投出20個地區直選議席，「以往一票係可以影響成個議席，而家選民唔係好知投票意義係咩」。
+
+<figure>
+<img src="https://web.archive.org/web/20220519042533im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/香港民研-20211217193205_26b9_large.jpg" alt="">
+<figcaption>浸大政治及國際關係學系副教授陳家洛指，自己有看選舉論壇，發現非建制派候選人往往被建制派「當沙包」。何家達攝。</figcaption>
+</figure>
+
+**政府鋪天蓋地宣傳幫倒忙　兩成半選民：減低投票意欲   
+** 近日港府為催票鋪天蓋地宣傳，又動員大量官員呼籲市民投票，如財政司司長陳茂波今日在工展會呼籲投票、多個局長一同拍片宣傳等。不過，民研調查顯示，有多達六成二的受訪者認為，特區政府官員呼籲投票對投票意欲沒有影響，亦有兩成半指會「減低投票意欲」。   
+   
+ 陳家洛指，能動員選民投票的從來只有候選人，「但而家佢哋個性上、政策上都拎唔到同選民嘅接觸點」，加上候選人中新面孔眾多，選民未必熟悉，「啲候選人到而家仲介紹緊自己」。   
+   
+ 陳續指，政府的宣傳活動亦顯示她非常「心急」，「有啲局長直情扮候選人㖭，就係徐英偉局長，做咩呢，關你咩事呢？扮候選人舉起手指代表咩呢？藥石亂投嘅結果，就係好難將焦點放返喺候選人身上」。   
+   
+ **選情分析　建制派贏面較大   
+** 綜合民研電話及群組調查結果，以下為各區勝算機會較高候選人，當中全屬建制派。   
+   
+ 香港島東：沒有勝算較高候選人
+
+香港島西：葉劉淑儀（新民黨）
+
+九龍東：鄧家彪（工聯會）
+
+九龍西：鄭泳舜（民建聯）
+
+九龍中：李慧琼（民建聯）
+
+新界東南：李世榮（民建聯、新界社團聯會）
+
+新界北：劉國勳（民建聯）
+
+新界西北：周浩鼎（民建聯、新界社團聯會）、田北辰（實政圓桌）
+
+新界西南：沒有勝算較高候選人
+
+新界東北：陳克勤（民建聯、新界社團聯會）
+
+（完整參選名單，見選舉事務處網頁https://www.elections.gov.hk/legco2021/chi/index.html）

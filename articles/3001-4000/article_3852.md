@@ -1,0 +1,50 @@
+---
+title: "民陣借維園辦七一遊行被拒　康文署批場慶回歸"
+date: "2017-05-10"
+last_updated: "2017-05-11 15:25:09"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "康文署"
+  - "康樂及文化事務署"
+  - "康文處"
+  - "康樂文化事務處"
+  - "lcsd"
+  - "Leisure and Cultural Services Department"
+  - "民 陣"
+  - "民間人權陣線"
+  - "七一遊行"
+url: "https://web.archive.org/web/20211207173732/https://www.hkcnews.com/article/3852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-3871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/3852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-3871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民陣借維園辦七一遊行被拒　康文署批場慶回歸
+
+<figure>
+<img src="https://web.archive.org/web/20211207173732im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/05/七一遊行-20170510221546_1f2d_large.jpg" alt="">
+<figcaption>維園足球場是往年七一遊行的起步點。網上圖片</figcaption>
+</figure>
+
+今年是回歸20週年，有報道指中國國家主席習近平可能在7月1日回歸紀念日期間訪港。民間人權陣線今年7月1日，將如往年一樣舉辦七一大遊行，並一如以往向康文署申請借用維多利亞公園作為集合起步點。不過，民陣周二收到維園職員通知，指今年會將維園借給由政府高官及建制派巨頭組成的「香港各界慶典委員會」，由6月底至7月舉辦慶回歸展覽，未能再優先借給民陣辦七一遊行。民陣批評政府是為了迎接領導人訪港而「洗太平地」，認為當局有政治考慮。
+
+民陣召集人區諾軒表示，周三已改為申請使用近銅鑼灣的維園噴水池和草地起步，但康文署沒透露何時有申請結果。他又說，行政署至今未批准使用政總東翼外的公民廣場作為遊行終點。民陣要先申請到遊行起點及終點，才可以取得警方的不反對通知書。
+
+區諾軒說，過去數月申請借用維園的程序，與往年相若，先在去年12月，向維園查詢2017年7月1日的場地借用，但維園方面表示，只會處理3個月前的申請，民陣於是在4月3日，向當局提交場地借用申請表。周二下午5時，民陣收到維園職員通知，指由於維園場地屬免費借用，今年民陣並非其「優先考慮」借出維園的團體，故拒絕其申請。
+
+康文署回應指，3月15日收到香港各界慶典委員會（慶委會）申請，於6月下旬至7月初在維園6個足球場，舉辦慶祝香港回歸祖國20周年系列活動「創科驅動 成就夢想」科學科技展覽會。康文署是在4月3日收到民間人權陣線的電郵，以「鴨脷洲社區職工會」(職工會)名義，申請於本年6月30日及7月1日借用維園6個足球場、中央草坪及音樂亭，舉行「2017七一大遊行」活動。
+
+康文署指，一向按既定的指引，因應每個申請個案的情況作考慮及審批，亦會就申請諮詢相關部門。一般而言，如有不同機構申請在同一時間同一場地舉辦活動，康文署會按優先次序考慮預訂申請，並且盡量作出協調。
+
+康文署表示：「考慮到慶委會是一個慈善團體，而其申請因於用場前3個月提出所以可獲優先預訂，康文署會按既定指引審批慶委會的申請。因此，康文署未能同時接受職工會的申請，於6月30日及7月1日使用維園6個足球場舉辦活動。康文署於是致電聯絡職工會，告知上述情況，並指出如職工會選擇在維園中央草坪及音樂亭舉辦活動，署方會因應當日活動的人流、交通情況及公眾秩序等，再次考慮有關申請，並會徵詢其他相關政府部門的意見。康文署至今並未收到該會的再次申請，但會與該會繼續保持溝通。」   
+   
+ 康文署指，過往有先例，兩個作出申請的團體在經協調後，成功租用維園設施同時舉辦活動。由2003年至今，曾數次接受兩個團體分別使用6個足球場及中央草坪在維園同時舉辦不同的活動。康文署會因應每個申請個案的情況，包括當日活動的人流、交通情況、公眾安全及秩序等，作考慮及審批。
+
+香港各界慶典委員會於2006年10月成立， [網頁](https://web.archive.org/web/20211207173732/http://www.hkcacelebration.hk/) 介紹：「目的是組織香港各界人士，籌辦各項慶祝節日的典禮活動，促進社會各界積極參與，弘揚及提高國家民族意識，建立和諧社會。 」該會榮譽贊助人是特首梁振英及中聯辦主任張曉明；榮譽會長包括林鄭月娥、范徐麗泰、梁愛詩；名譽會長包括民政事務局長劉江華（負責管理康文署）及多名人大政協。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207173732/https://www.hkcnews.com/aboutus/#subscribe)

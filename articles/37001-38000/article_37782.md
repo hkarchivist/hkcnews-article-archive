@@ -1,0 +1,82 @@
+---
+title: "【讀書移民】台灣成年輕人熱門選擇：比起英國更易融入當地、落地生根"
+date: "2021-02-03"
+last_updated: "2021-02-03 22:05:39"
+author: "記者黎卓欣"
+category: "眾聞"
+tags:
+  - "移民台灣"
+  - "台灣移民"
+  - "移居台灣"
+url: "https://web.archive.org/web/20220810020818/https://hkcnews.com/article/37782/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37782/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【讀書移民】台灣成年輕人熱門選擇：比起英國更易融入當地、落地生根
+
+**「身邊嘅同學好似日日都唔見咁幾個，都幾sad。有次一齊上完堂，夜晚就有同學俾人拉咗。」就讀政治與行政學系的Ben苦笑說。他最近報讀了台灣三間大學共四個碩士課程，希望能被其中一間取錄，完成學業後留台工作。**   
+   
+ **Ben不覺自己是為了移民才到台灣，反而是早有讀碩士的打算，巧合地碰上社會運動，才萌生長居當地念頭。他笑言自己未知將來在台灣職業為何，但暫時最想做的工作是書店員工：「做獨立書店嘅員工，每日有得睇書，係最浪漫嘅想像。」**
+
+**2019年11月，「中大保衛戰」打得激烈，隔了幾千公里，身處英國交流的他只能觀看直播、重複在社交網站分享新聞，如今回想不覺對香港的事有所抽離，倒覺無力感更大：「差唔多一個禮拜冇上過堂，淨係喺度睇直播。」** **有人憧憬離開華人社會，但Ben最介意的，是日後能否真的以當地人的身份和心態，落地生根：「始終英文唔係我母語，我會質疑係生活上或者文化上，係咪真係可以完全融入到 ？人哋嘅歷史並唔包括我，或者係我對英國嘅affinity唔係想像中咁大。」**
+
+<figure>
+<img src="https://web.archive.org/web/20220810020818im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/移民故事-移民台灣-20210128233050_1951_large.jpg" alt="">
+<figcaption>就讀政治與行政學系的Ben希望在台完成學業後，能留台工作。黎卓欣攝</figcaption>
+</figure>
+
+微捲的黑髮，架著幼框眼鏡，灰色毛衣內穿了件藍色紅條相間的襯衣，燙得筆直的褲下，藏著剛到腳眼的藍棉襪，四年級的Ben 捧著電腦從圖書館步出，背後是一群穿著鮮橙色衛衣、運動褲，正在「dem beat」的新生。
+
+Ben的畢業論文題目是政治地理學，對於這個研究領域的興趣，源自早前修讀的課堂。「上過空間政治學，講述生活上唔同空間嘅使用，平時我冇注意到原來城市樣樣嘢都好政治化。當時sort of 考察咁，去咗一個大埔賣有機菜嘅農墟，了解嗰班農民點樣集結力量，最後有個sustainable嘅地方做local economy 。我本身都住大埔，覺得可以喺另一個角度了解個社區，幾好玩。」
+
+四年前，Ben從港大政治學與法學系退學，轉到中大讀政治與行政，他笑言當時對畢業後的工作或去路，還未有確實想像。「最初IB成績都唔錯，45滿分有43分，咁就『睇餸食飯』，見GLaw啱啱好夠就報咗。入到去發現，原來得3成係教政治，第一個學期考完試就quit咗U(HKU)。」對於兒子的決定，父母一向抱開明態度，也沒干預太多。
+
+如今23歲，Ben身邊有人做議員、有人做政治助理、但更多的是從事與政治學無關的工作。「啱啱入嚟讀都可能會諗吓，AO都好似幾穩定喎！嗰陣時做AO都仲係無人會屌（依家冇同學想做？）可能都有，但佢都唔會敢話俾人聽囉，哈哈！後來自己讀讀吓，又覺得做研究都幾好呀。」
+
+Ben不覺自己是為了移民才到台灣，反而是早有讀碩士的打算，巧合地碰上社會運動，才萌生長居的念頭。「我去台灣 sort of 同我孖生家姐有關係，佢讀建築系、又好鍾意台灣，好早已經plan 咗要去台灣讀碩士。經過呢年我又覺得都可能想去嗰邊發展，咁不如一齊。」兩姐弟到了異地有個照應，父母則會留在香港。
+
+### 料台灣現實與想像有差距
+
+港人愛到台灣旅遊，Ben也是其中之一，到訪台灣不下十次，但大多抱以遊客飲飲食食的心態，少有去了解當地的社會、政治問題。問他最喜愛台灣的哪一面，不暇思索便交出一堆答案。
+
+> **台灣人好有人情味，民宿嘅老闆同員工都好友善，會主動同你傾計、關心你。同埋我覺得自己係比較慢板嘅人，香港嘅急促令我好辛苦。加上喺香港好難揾到出路，但去到台灣，覺得可以真係生活而唔係生存。**
+
+但問他最不喜歡台灣的哪一點，Ben倒是思前想後，才緩緩吐出：「可能係有少少官僚，好多嘢都要一板一眼、按程序去做。」他指的其實是呈交碩士入學申請的繁複手續，除了基本的個人資料、成績單，還要附上三年的預期學習進度報告。自問怕麻煩的Ben不禁微言：「好煩呀！網上交完，聽日又要去經貿辦交文件！」
+
+他坦言，早料現實定會與期望有點差距：「生活上一定有好多難題，有老師去完台灣工作返嚟，都話台灣有啲工作場所好父權、好著重輩分關係，香港人會唔習慣。」
+
+港人在台灣的大學畢業後，月薪須不少於38000元新台幣(約10500港元)，才能獲准於台灣居留。居留第五年的月薪須有約42000元新台幣(約11600港元)，方可申請定居。這些年打過幾份兼職，做過補習社、藝術展場務，也做過幾個月兼職記者，Ben笑言自己未知將來職業為何，但暫時最想做的工作是書店員工：「做獨立書店嘅員工，每日有得睇書，係最浪漫嘅想像。」
+
+他說自己很喜歡看書，近日在搜集論文資料時，最深刻的書是邱永漢的《香港》，講述一位為了避開政治禍害而偷渡來港的台灣青年的故事。「咁樣對照返香港依家嘅情況，都幾有趣。」
+
+<figure>
+<img src="https://web.archive.org/web/20220810020818im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/書-台灣移民-20210202194617_23cd_large.jpg" alt="">
+<figcaption>邱永漢的《香港》，講述一位為了避開政治禍害而偷渡來港的台灣青年的故事。黎卓欣攝</figcaption>
+</figure>
+
+### 去年曾英國交流：離開香港無力感更大
+
+訪問當天Ben穿了雙英倫風的啡皮鞋，上面有許多花痕，記者好奇是否買了一段時間。「唔係呀，上年喺英國exchange嗰時買嘅。咁樣先夠Vintage嘛！」19年9月，Ben到英國交流，11月「中大保衛戰」打得激烈，隔了幾千公里，只能觀看直播、重複在社交網站分享新聞，如今回想起不覺對香港的事有所抽離，倒覺無力感更大：「11月嘅時候中大打到開花，我都差唔多一個禮拜冇上過堂，淨係喺度睇直播。嗰時可能都有去吓『Stand With HK』嘅遊行，當然事後諗翻，呢啲幫到啲咩？其實幫唔到，都不是甚麼啦，成本太低。」
+
+<figure>
+<img src="https://web.archive.org/web/20220810020818im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/移民英國-fight%20for%20freedom%20stand%20with%20hk-20210202194205_12cd_large.jpg" alt="">
+<figcaption>2019年尾，Ben到英國交流，曾於倫敦參與聲援香港的遊行。受訪者提供</figcaption>
+</figure>
+
+一年的交流被疫情倉卒打斷，Ben期間曾遇到一位到英國長居工作的港人，與他分享經驗：「佢話如果喺嗰邊讀書再就業，比較上難，因為嗰邊類似嘅行業，尤其教育事業已差唔多飽和。如果真係要響嗰邊揾工，都係business方面比較多。」
+
+不過，Ben說自己對在英國長居其實並無太多想像：「我同家姐都唔會對去英國有太大憧憬，唔會想係英國生活幾十年，始終文化上唔習慣，對英國冇一種美好嘅投射，反而對台灣有種美好嘅投射。因為去台灣移民.....我自己覺得啦，對香港人嚟講某程度都係一種想像嚟嘅。」
+
+是否在英國有不好的經歷？他打趣說：「食物囉，英國係劣食天堂嘛。」之後他又搖頭：「講笑，嗰時只係留咗半年，以一個過客嘅身份。無話真係特別遇到啲咩唔好嘅事。」其實，Ben最介意的，是日後能否真的以當地人的身份和心態，落地生根。
+
+> **始終英文唔係我母語，我會質疑係生活上，或者文化上係咪真係可以完全融入到 ？人哋嘅歷史並唔包括我，或者係我對英國嘅affinity唔係想像中咁大。**
+
+話雖如此，拖到報名的限期，還是報讀了英國的大學作「Plan B」：「今次報第一志願係台大地理，跟住係台大城鄉同師大地理。因為唔係報政治相關嘅學系，加上僑生收生數量唔多，都唔係話太大嘅乘數可以入到，要搵吓其他後路。」最後入到英國大學又會否留下來？艱難的抉擇，Ben還未想思考：「唔知呀，到時再算，可能去探索吓先！」
+
+出身小康，Ben說學費和移民門檻未必是他最大的考量：「學費係一回事，但第時長居啲洗費無可能一世靠父母。我諗每個人都喺到揾較舒服的生存方式，而台灣就係我覺得比較舒服。」
+
+### 最唔捨得中大同百老匯電影中心
+
+中學從九龍華仁轉到國際學校，大學從港大轉到中大、荃灣搬到大埔。Ben笑言自己習慣了離別，與友好各散東西，況且兩地相近，能隨時回來探望親友。訪問這天Ben沒有課堂，但仍回到校園「陪朋友上課」。自嘲並不是書院活動的活躍分子，不過在中大所建立的圈子，雖小但關係親密，已彌足珍貴。
+
+「如果畀我揀離開香港最唔捨得嘅地方，會係中大同埋百老匯電影中心。」捨不得中大的人與物尚且能理解，但電影在台灣也能觀看，選擇可能更多，為何會有不捨之情？「我最鍾意喺油麻地行去電影中心嗰段路，尤其係黃昏加埋街燈，覺得個氛圍好正。」

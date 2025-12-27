@@ -1,0 +1,54 @@
+---
+title: "填補三千億財赤　開放「地花」快捷實際"
+date: "2021-02-04"
+last_updated: "2021-02-04 13:57:07"
+author: "巫堃泰"
+category: "眾說"
+tags:
+  - "陳茂波"
+  - "發展局局長"
+  - "Secretary for Development"
+  - "地花"
+  - "東涌東填海"
+url: "https://web.archive.org/web/20210925010709/https://www.hkcnews.com/article/37838/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37841/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37838/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37841/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 填補三千億財赤　開放「地花」快捷實際
+
+財政司司長陳茂波早前會見社會不同代表，為本月底的預算案進行諮詢。有會計師樓預計本年度財赤將超過3000億，難怪見過司長的人都說，他要獨自面對香港特區成立以來最大財赤而十分頭痛。
+
+說是「獨自面對」，未必是誇大。過去一年，派錢一萬、保就業等刺激經濟措施，都被林鄭跟陳肇始的荒誕防疫政策化為烏有。尖沙咀在晚上淪為死城，旺角一帶的空舖及臨時舖創新高；加上《港區國安法》生效的複合效應，外資巨企不是轉向在家工作模式就是完全撤出香港，令甲級寫字樓樓面呎價屢屢探底。當國金二期的非固定辦公室（Hot Desk）都可以3000元一個月承租時，你便知道香港的稅收將會有多嚴峻。
+
+可笑的是，一些現在以「參與管治」為目標的親北京政團，旗下局長做做防疫也怨聲載道。那些政黨的區議員仍然在要求派錢或擴大長者乘車優惠。假若由他們完全執政，香港的財政紀律會敗壞到甚麼地步，實在是難以想像。
+
+加稅或開徵新稅項，在經濟衰退下當然不受歡迎。要縮減庫房赤字，便要參考英國治港留下來的「財赤止痛劑」：填海造地。90年代的玫瑰園計劃，核心當然是興建赤鱲角機場。北京曾說計劃是英國掠奪香港庫房，大聲反對。但是，英國港府便以西九龍大規模填海，以賣地及物業相關稅收增加收入彌補興建新機場的開支，更為香港庫房留下儲備。填海範圍從美孚新邨對出的到現在的西九文化區，連現在的高鐵西九龍站，都是在舊佐敦道碼頭海面，為香港留下豐厚的土地儲備及潛在賣地收入。
+
+<figure>
+<img src="https://web.archive.org/web/20210925010709im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/東涌東填海-東涌新市鎮-20210204133206_49de_large.jpg" alt="">
+<figcaption>東涌東填海計劃預計2023年完成，將可提供土地興建4.9萬個住宅單位。土木工程拓展署署照片</figcaption>
+</figure>
+
+填海造地需要時間及相當行政程序，在現有的政策及法例下要以「熟地」方式賣地，難以短期內為庫房減赤。不過，既然賣樓有「樓花」，政府為何不能賣「地花」？光是東涌東填海，便有130公頃土地預計於兩年內完成。假設政府將30公頃土地作「地花」預售，以過去兩年住宅地平均地價每平方米60.7萬計算，「地花」潛在收入可達1821億；即使以8折折讓，亦可為庫房短時間內進帳1457億。
+
+用東涌東填海地作「地花」的好處是，該填海地段快將完成，同時亦已走過部份城市規劃程序。比起甚麼不設實際的明日大嶼、舟山島或萬山群島發展，能夠在短時間內提供住宅供應，亦能透過賣地為庫房「止血」。而「地花」政策亦不單只限於填海地，一些政府有意搬遷的土地如沙田濾水廠，亦可以以「地花」形式先行售出土地開發權。連同屯門內河碼頭搬遷至龍鼓灘等，相信「地花」政策能夠短期滅赤，亦為特區政府不在增加發債下創造穩定收入來源。
+
+「地花」的最大阻力，莫過於是公務員需要修改法例，將現時的賣地模式大幅調整。假若公務員隊伍難以推行，政府亦可參考迪士尼樂園發展模式，以政府合資公司「先注資、後填海」方式發展「地花」。
+
+即使政見如何南轅北轍，兩股勢力為了2022年初的選舉鬥得天昏地暗。眼見庫房漸告空虛，任何有識之士都應該為守住香港的財務紀律及港元的穩健獻計。「地花」政策旨在拋磚引玉，總比那些光喊派錢的建議來得實際。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925010709/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 巫堃泰](https://web.archive.org/web/20210925010709im_/https://www.hkcnews.com/uploads/avatars/default.jpg)
+
+**博客 | 巫堃泰**
+
+【巫堃泰・巫聊】屯門區議會民選議員（2020-2023），香港大學法學（人權法） 碩士，香港機場發展關注網絡發言人。

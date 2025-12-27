@@ -1,0 +1,60 @@
+---
+title: "放下怨恨，也是一個人的事"
+date: "2021-11-22"
+last_updated: "2021-11-22 03:59:47"
+author: "Ophelie C"
+category: "眾說"
+tags:
+  - "慈悲觀"
+url: "https://web.archive.org/web/20220127021618/https://www.hkcnews.com/article/47969/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47971/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47969/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47971/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 放下怨恨，也是一個人的事
+
+<figure>
+<img src="https://web.archive.org/web/20220127021618im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/怨恨-慈悲觀-20211122025648_40b9_large.png" alt="">
+<figcaption>《死亡筆記》動畫。互聯網圖片</figcaption>
+</figure>
+
+上回說 [〈愛情（可以）是一個人的事〉](https://web.archive.org/web/20220127021618/https://bit.ly/3wJNn1b) ，就是因為在禪修中嘗過內心善意洋溢的喜悅，明瞭愛可以自足，不假外求。根據同樣的邏輯，其實放下怨恨也是一個人的事——你不需要待到怨恨對象道歉、悔過才能放下，因為放下只是為了「放過自己」，跟對方沒關係。   
+   
+ 說明這一點之前，先來懺悔一下。小時候我深信自己擁有某種詛咒的力量——誰傷害了我，誰就會有「現眼報」。後來這演變成一種判官心態，很喜歡判定誰最後有「報應」，滿以為自己拿了《死亡筆記》似的下詛咒，自覺在伸張正義。但心懷敵意，無論是不是站在公義的一方都是累，義憤也始終是憤怒，最可怕的是，它不容許你放鬆、放下。
+
+### 因果自負　放下不等於放過縱容
+
+也不想重提舊事了，說起來太慚愧，大抵就是遇到一個行事作風很自我的高層，他損害了很多人的利益，當中包括我，我千方百計想要報復，內心充斥怨恨和詛咒，那時候真的不肯放下，唯恐放下了就等於放過了一個壞人，那我豈不是變成幫兇？但結果怨恨和不忿造成的龐大壓力觸發了長期病，雖然後來怨恨對象開始倒楣，但我丁點痛快的感覺也沒有，然後發現：因果有其法則，他的作風自會令他身陷險地，假以時日自會因為自己的所作所為承受苦果，這與我詛不詛咒、放不放下根本沒關係，我卻因為自己的怨恨而賠上健康。   
+   
+ 記得第一次接觸慈悲觀（Loving Kindness and Compassion Meditation），課堂上念誦的《慈經》對我影響甚深，經文一句「不應出於忿怒及仇恨而詛咒希望他人痛苦」說入心坎。一向自命判官誓要「做壞事」的人得到報應，看來我的確是稱職的判官，有能力看到誰遲早有後果，形成詛咒成功的假象。但等待因果成熟的時間太長，中間的怨恨、不忿和苦候都是惡念，結果自己也受報應。   
+   
+ 而當我第一次跟着老師的指引練習慈悲觀，在「觀想」中祝福他人，就有極難忘的體驗。對我來說，祝福他人比祝福自己容易多了，練習時臉上很快就掛着微笑，沒料就在老師帶領想像「朋友、同事跟自己一樣，放鬆、開心」時，竟在腦海的畫面中瞥見那位怨恨對象放鬆、開心的微笑！
+
+### 討厭的人快樂　我也可以很快樂
+
+平時大家看到怨恨對象在微笑會有怎樣的感覺？對，可以有甚麼感覺呢？就是很不爽吧！但也不知道是甚麼原因，當時我內心居然有種很平和、由衷放下的感覺，嘴角的微笑更加燦爛，然而我仍然記得自己很討厭他，所以，那一刻的感覺很詭異。   
+   
+ 這次體驗非常震撼，我恍然原來看到他幸福快樂的笑容，那份喜悅仍然可以感染我，還彷彿看到跟他和平共處的可能——當我們都「放鬆、開心」，放下惡鬥和怨恨，各自享受各自的幸福快樂，不再陷於你死我活式的猜疑和明爭暗鬥，原來感覺這麼自由輕鬆。這一念之間，我又像置身天堂了。   
+   
+ 所以我說，放下怨恨也是一個人的事。它在我的一念間發生，與現實的那個人沒關係。現實中我始終沒有跟他說過要和解等等這麼肉麻的說話，他也沒有因此免受自己種下的惡果；只是那次練習後，我再也無法怨恨他，這個人怎麼樣再也沒有挑動我的情緒。後來聽說他真的倒楣透頂，我已經沒有半點幸災樂禍，甚至有丁點同情，覺得那苦果好像又有點太超過。   
+   
+ 回望這段經歷，自會深明一切怨恨都是徒勞，我還跟他一樣的因果自負——那個因壓力而起的病，始終沒有隨着我放下而康復。它彷彿時刻在提醒我：下一次，不要再讓內心充斥怨恨了！
+
+***
+
+PS 筆者獲邀義務參與禪修老師12月份開辦的慈悲觀課程，分享修習心得，課程資料如下：   
+   
+ **《慈悲觀初級班》**   
+ **時間：2021年12月份的四個週日下午；2022年1月16日 （共修日）**   
+ **上課方式：荃灣 [鹿湖文教中心](https://web.archive.org/web/20220127021618/https://www.facebook.com/deerlake219/) 現場上課 或Cisco Webex 網路課堂**   
+ **講授：覺韜法師（港大哲學博士）**   
+ **費用：港幣300元（可申請退費）**   
+ **[報名詳情連結](https://web.archive.org/web/20220127021618/https://www.facebook.com/deerlake219/photos/a.129318055894717/255825679910620/?type=3)**   
+
+
+---
+
+![博客 | Ophelie C](https://web.archive.org/web/20220127021618im_/https://www.hkcnews.com/uploads/avatars/16026fb0-e235-4449-a80d-541717ca814f.png?1604395618)
+
+**博客 | Ophelie C**
+
+【Ophelie C・睇我心情】80後傳媒工作者，情緒「自療」的過來人。見識過情緒深淵後修習正念，慢慢學懂看清自己心情，從此看到不一樣的現實。及後成為導師冀分享正念的力量——任世間風雨飄搖，它也能帶領每個人回到內心的避風港，以新角度平靜看世界。facebook: https://www.fb.com/MettaOphelieC/

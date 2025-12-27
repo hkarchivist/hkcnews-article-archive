@@ -1,0 +1,57 @@
+---
+title: "【台灣大選】蔡英文破紀錄逾817萬票連任總統　民進黨國會過半議席跌7席"
+date: "2020-01-12"
+last_updated: "2020-01-12 05:00:03"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "蔡英文"
+  - "tsai ing wen"
+  - "韓國瑜"
+  - "台灣2020總統選舉"
+url: "https://web.archive.org/web/20210729091956/https://www.hkcnews.com/article/26058/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26063/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD817%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/26058/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26063/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD817%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【台灣大選】蔡英文破紀錄逾817萬票連任總統　民進黨國會過半議席跌7席
+
+台灣2020大選結果塵埃落定，總投票人數約1446萬人，投票率74.9%，成功連任的蔡英文總統取得8,170,231票，創1996年台灣總統直選以來最高得票數，得票率為57.13%，相比起上屆得票約689萬，得票數上升了18%，得票率則稍為微升1個百分點。在立委選舉方面，雖然民進黨繼續成功取得國會過半數，但卻較上屆少7席；而國民黨則有所進帳，較上屆多3席。
+
+<figure>
+<img src="https://web.archive.org/web/20210729091956im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/台灣2020總統選舉-蔡英文-20200112031509_1a6c_large.jpg" alt="">
+<figcaption>蔡英文以817萬多票，創1996年台灣總統直選以來最高得票數，有支持者舉起「八百萬票」的紙牌。周滿鏗攝</figcaption>
+</figure>
+
+蔡英文在國際記者會上發言時提到，日後將會加強國家安全的作為，守護主權，又指過去面對中國的文攻武嚇，保持不挑釁、不冒進的態度，讓兩岸之間沒有釀成嚴重的衝突。面對中國提出「一國兩制台灣方案」，蔡英文說，台灣別無選擇，將會持續強化民主防衛機制，並且建立足以保衛台海安全的國防力量。蔡最後提出四個基礎「和平、對等、民主、對話」，作為兩岸重啟良性互動、長久穩定發展的關鍵。
+
+蔡所指的四個基礎，分別是對岸必須放棄對台灣的武力威脅、雙方都互不否認彼此存在的事實、台灣的前途要由兩千三百萬人決定，以及是雙方能坐下來談未來關係的發展。蔡英文期望北京當局可以理解，作為民選政府，台灣不會屈服於威脅恫嚇，她指出，這場選舉的結果就是最清楚的答案。
+
+之後再被記者問到如何看待中國在國際方面孤立台灣，尤其是與美國以及其他盟友的關係，蔡回應說，台灣在過去三年與很多理念相同夥伴，在國際議題上有合作關係。包括聯合國對朝鮮的共同行動。也有利用台灣的經驗和專業知識為全球健康做出了很多貢獻。
+
+蔡英文說，台灣將會持續所有理念相近的國際夥伴緊密合作，包括與美國、歐盟、印度太平洋地區等，在不同方面提供協助、分享經驗和合作。
+
+有記者問蔡英文，是否認同今次大選是是親中、親美路線之爭，蔡僅表示，這是選擇有自由民主，還是沒有自由民主的國家。而選舉結果表示台灣人支持他們現行的政策。
+
+<figure>
+<img src="https://web.archive.org/web/20210729091956im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/台灣2020總統選舉-蔡英文-20200112031412_256a_large.jpg" alt="">
+<figcaption>蔡英文在國際記者會完結後，會見支持者並發表勝選宣言。周滿鏗攝</figcaption>
+</figure>
+
+另外在113席的立委選舉方面，民進黨亦成功在國會取得過半數議席，一共取得61席，包括區域立委獲得46席、原住民2席、不分區立委13席，總數較上屆少7席；而國民黨則有進帳，奪38席，較上屆多3席。
+
+小黨方面，由現任台北市長柯文哲等人發起的台灣民眾黨，首次參選取得5席不分區立委，成為立法院第三大黨；時代力量由上屆的5席減至3席；上屆未參選的台灣基進取得1席。
+
+<figure>
+<img src="https://web.archive.org/web/20210729091956im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/韓國瑜-台灣2020總統選舉-國民黨-20200111220229_29e9_large.jpg" alt="">
+<figcaption>韓國瑜在高雄競選總部向支持者鞠躬道歉，身旁是妻子李桂芬、副總統候選人張善政和韓的女兒韓冰（左）。美聯社</figcaption>
+</figure>
+
+取得5,522,119票的國民黨總統候選人、高雄市長韓國瑜，晚上在妻子和女兒陪同下在高雄見支持者。他首先恭喜蔡英文連任並附上祝福。他承認個人努力不夠，辜負各方對他的期待，將會虛心接受、繼續努力。韓續說，下周一將會繼續回到市府上班。另外，國民黨主席吳敦義表示，會為敗選負責，向中常會提出辭去黨主席一職。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729091956/https://www.hkcnews.com/aboutus/#subscribe)

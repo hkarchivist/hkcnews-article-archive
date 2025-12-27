@@ -1,0 +1,125 @@
+---
+title: "高鐵一地兩檢司法覆核敗訴　高院：人大決定如同釋法，受法庭尊重"
+date: "2018-12-13"
+last_updated: "2018-12-14 23:44:17"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "高鐵"
+  - "高铁"
+  - "人大常委"
+  - "一地兩檢"
+url: "https://web.archive.org/web/20211203010045/https://www.hkcnews.com/article/17174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/17174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 高鐵一地兩檢司法覆核敗訴　高院：人大決定如同釋法，受法庭尊重
+
+由民族陣綫發言人梁頌恆、社民連成員梁國雄、「長洲覆核王」郭卓堅、社工呂智恆提出的「一地兩檢」司法覆核，被高等法院裁定敗訴。
+
+法官周家明在今日（13日）頒布的 [裁決書](https://web.archive.org/web/20211203010045/https://legalref.judiciary.hk/lrs/common/search/search_result_detail_frame.jsp?DIS=119019&QS=%2B&TP=JU) 指，人大常委會有憲制義務監督《憲法》的實施，其決定在中國法律下的地位明確，至於人大決定在香港法律下是否具有法律地位，他認為本案不必處理。不過，他接納政府專家證供，包括人大決定對香港法院具約束力的說法，又指出人大決定實質上是釋法，亦具有釋法的功能，故香港法院宜予以尊重。考慮到人大決定，他認為 [《廣深港高鐵（一地兩檢）條例》](https://web.archive.org/web/20211203010045/https://www.elegislation.gov.hk/hk/cap632!en-zh-Hant-HK?INDEX_CS=N&xpid=ID_1529568907164_001) 與 [《基本法》](https://web.archive.org/web/20211203010045/https://www.basiclaw.gov.hk/tc/basiclawtext/index.html) 相符。
+
+<figure>
+<img src="https://web.archive.org/web/20211203010045im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/建制派-一地兩檢-20180227214107_a401_large.jpg" alt="">
+<figcaption>高鐵西九龍站被劃出一個屬內地司法管轄區的內地口岸。聯合採訪圖片</figcaption>
+</figure>
+
+### **人大決定在內地法律地位明確**
+
+周官在裁決書形容，就中國法律而言，人大決定的法律地位是明確的（clear）。他接納政府一方引用、由北京大學法學院教授王磊提供的專家證供，包括：
+
+**1. [《中國憲法》](https://web.archive.org/web/20211203010045/http://www.npc.gov.cn/npc/xinwen/2018-03/22/content_2052489.htm) 第67條授予全國人大常委員會權力，監督憲法的實施，有關權力涵蓋《中國憲法》第31條、按照「一國兩制」原則成立的香港特別行政區。在《中國憲法》下，人大有權決定特定事宜是否合乎「一國兩制」原則及《基本法》；**
+
+**2. 人大常委會有權監督《憲法》的實施，並決定有關安排是否合憲；**
+
+**3. 其監督權可以作出「決定」的形式行使，而人大就一地兩檢安排所作的決定亦屬此類；**
+
+**4. 人大決定在內地具法律效力，內地法院受該決定約束；**
+
+**5. 人大決定在香港亦具約束力，包括香港法院，因為人大常委會行使國家的意志，有權監督《憲法》的實施，亦為主權體的一部分，授權香港特別行政區的成立及其政府體系。**
+
+根據 [北京大學法學院網頁](https://web.archive.org/web/20211203010045/http://www.law.pku.edu.cn/sz/zzjs/tz/1942.htm) ，王磊為中國憲法學會副會長、北京市憲法學會副會長、北京市人大常委會立法諮詢專家，研究領域包括憲法與行政法、港澳台法律。王磊曾於1999年9月和12月，分別在北京人民大會堂及香港會展中心，為香港法律界人士講授《憲法》。
+
+周官歸納申請人呂智恆一方引用、由專門研究內地法律的香港大學法律學院教授傅華伶提供的專家證供為：
+
+1. 人大常委會以作出決定的形式去化解一地兩檢安排合法性問題，是不合適的；
+
+2. 人大常委會應該根據 [《基本法》第158條](https://web.archive.org/web/20211203010045/https://www.basiclaw.gov.hk/tc/basiclawtext/chapter_8.html) ，透過釋法化解相關問題。
+
+#### 周官回應傅華伶的觀點指，人大常委會以作出決定的形式是否合適、有沒有其他方式處理並不重要，重點在於人大常委會是否有權這樣做，而他接納王磊的專家證供，認為人大常委會在中國憲法下有此權力。
+
+### **人大決定不受《基本法》限制**
+
+裁決書提到，傅華伶認為《基本法》具有排他性，人大常務委員會有權通過《基本法》的機制，監督《基本法》的實施，但不能在《基本法》的框架之外，制定對香港有法律約束力的規定；人大在制定《基本法》和決定在香港實施一國兩制時，自願選擇以自我限制的方式，為香港制定一種有別於人大制度的憲制，以實踐《憲法》第31 條中提及的特別行政區之概念；《憲法》與《基本法》同時規定了人大常委會的法律解釋權，但《憲法》規定的立法解釋和《基本法》規定的立法解釋之間有重要區別，《憲法》規定的立法解釋權是全面的、無限制的。《基本法》確立的解釋權，在人大常委會和香港終審法院之間有功能上的合作分工。《基本法》第158 條第2和第3款對香港法院的授權是有其獨特的憲法意義，是對第1款的制度約束，也是《憲法》第67 條第4 款的修訂。
+
+> **[《憲法》](https://web.archive.org/web/20211203010045/http://www.npc.gov.cn/npc/xinwen/2018-03/22/content_2052489.htm) 第67 條第4 款：**   
+ 全國人民代表大會常務委員會行使下列職權：   
+ （四）解釋法律
+
+> **[《基本法》第158條](https://web.archive.org/web/20211203010045/https://www.basiclaw.gov.hk/tc/basiclawtext/chapter_8.html) ：**   
+ 本法的解釋權屬於全國人民代表大會常務委員會。   
+   
+ 全國人民代表大會常務委員會授權香港特別行政區法院在審理案件時對本法關於香港特別行政區自治範圍內的條款自行解釋。   
+   
+ 香港特別行政區法院在審理案件時對本法的其他條款也可解釋。但如香港特別行政區法院在審理案件時需要對本法關於中央人民政府管理的事務或中央和香港特別行政區關係的條款進行解釋，而該條款的解釋又影響到案件的判決，在對該案件作出不可上訴的終局判決前，應由香港特別行政區終審法院請全國人民代表大會常務委員會對有關條款作出解釋。如全國人民代表大會常務委員會作出解釋，香港特別行政區法院在引用該條款時，應以全國人民代表大會常務委員會的解釋為準。但在此以前作出的判決不受影響。   
+   
+ 全國人民代表大會常務委員會在對本法進行解釋前，徵詢其所屬的香港特別行政區基本法委員會的意見。
+
+<figure>
+<img src="https://web.archive.org/web/20211203010045im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/一地兩檢-李飛-20171227235253_1ca1_large.jpg" alt="">
+<figcaption>去年12月27日，人大常委會通過在西九龍站實施「一地兩檢」合作安排的草案，完成「三步走」程序中的第二步。人大常委會副秘書長李飛當日形容，人大對處理重大法律問題所作出的決定是「一言九鼎」。人大網圖片</figcaption>
+</figure>
+
+周官不接受傅華伶的觀點。他解釋，終審法院已不下一次確立人大常委會在《憲法》第67 條第4 款下解釋《基本法》的權力，而《基本法》第158 條第1 款下的解釋權是獨立（free-standing），不受第2、3款任何形式的限制（not restricted or qualified in any way by Article 158（2） and （3）），相關案例包括 [莊豐源案](https://web.archive.org/web/20211203010045/https://legalref.judiciary.hk/lrs/common/ju/ju_body.jsp?DIS=22558) 、 [游蕙禎宣誓案](https://web.archive.org/web/20211203010045/https://legalref.judiciary.hk/lrs/common/ju/ju_frame.jsp?DIS=111137) 等。周官亦認為，傅華伶指人大自願放棄其權力或相關權力受《基本法》限制或排除，說法並不正確。
+
+### **香港法院無權判斷人大決定是否有效**
+
+至於人大決定在香港法律之下是否具有法律地位，周官指出，其目標是解答《廣深港高鐵（一地兩檢）條例》是否與《基本法》不一致這核心問題，他不必走出終審法院就人大決定在香港法律之下是否具有法律地位的理解模式。
+
+周官認為，無論人大決定在香港法律下的明確地位及法律效力如何，至少應被視為《基本法》頒布後形成的材料（post-enactment materials），在 [莊豐源案](https://web.archive.org/web/20211203010045/ttps://legalref.judiciary.hk/lrs/common/ju/ju_body.jsp?DIS=22558) 中，終審法院並沒有排除這些材料為《基本法》可能容許或與制訂《基本法》相關（did not exclude as being potentially admissible or relevant for the purpose of construing the Basic Law），這點並沒有歧義。
+
+周官又引述 [梁麗幗挑戰人大八三一決定的司法覆核案](https://web.archive.org/web/20211203010045/https://legalref.judiciary.hk/lrs/common/search/search_result_detail_frame.jsp?DIS=98809&QS=%2B&TP=JU) 指，他認為在香港法律下，香港法院並沒有權力去判斷人大決定是否有效，法官區慶祥在該案判詞指，「（香港）法院沒有司法管轄權（檢視八三一決定）」（the court simply has no jurisdiction to do so）。
+
+### **一地兩檢條例符合《基本法》**
+
+在今次司法覆核案，《基本法》第18條、第19條、第80條等，都是爭議所在。不過，周官認為沒有必要分析《基本法》條文的意思及效用。他在裁案書指出， [《廣深港高鐵（一地兩檢）條例》](https://web.archive.org/web/20211203010045/https://www.elegislation.gov.hk/hk/cap632!en-zh-Hant-HK?INDEX_CS=N&xpid=ID_1529568907164_001) 是否與《基本法》不相符的問題，不應以字面或機械性處理，而他認為應該問的問題是，當合理解讀（fair reading）《基本法》，並考慮到其處境及目標，究竟一地兩檢安排，涉及創造一個屬內地司法管轄區的口岸，是否擬被禁止或排除？
+
+周官指出，《基本法》的目標是使「一國兩制」原則下的「兩制」部分有效，在97後維持香港的獨特體系。他並不認為在香港境內設立屬內地司法管轄區的口岸與《基本法》的目標不相符。他續指，一地兩檢安排是《基本法》在1990年頒布時不可能被考慮到的，如果將《基本法》解讀為禁止一地兩檢，他認為那就是將《基本法》視作「活工具」（living instrument）的失敗。
+
+周官亦認同代表政府一方的資深大律師余若海指，設立內地口岸、進行出入境管制，本身就是香港享有高度自治的體現，並承認中、港有兩個不同、獨立的體系。他指出，一地兩檢安排對香港整體利益有利，在考慮做法是否被《基本法》禁止時，亦應予以考慮。
+
+### **人大決定實質上如同釋法**
+
+周官指，人大決定應被視作《基本法》頒布後形成的外在材料（post-enactment extrinsic materials），在本案的部分情況下具高說服力的價值（having high persuasive value），原因包括：
+
+1. 人大常委會有憲制義務監督《憲法》的實施，亦包括《基本法》的實施；
+
+#### 2. 呂智恆一方的專家證人、港大法律學院教授傅華伶亦接受，人大決定雖然形式上（in form）不是釋法，但實質上（in substance）是釋法，並且具有釋法的功能（has the function of an interpretation of the Basic Law）。人大常委會對於《基本法》有最終解釋權，如不視其決定為有份量並予以尊重，是有違常理；
+
+3. 《廣深港高鐵（一地兩檢）條例》與《基本法》是否相符的問題，關乎中央及香港特區政府的關係，故此《基本法》相關條款需被解釋，以回答該問題是否《基本法》第158條第3款所指「排除條款」範圍。如案件到達終審法院，即視乎是否符合 [吳嘉玲案](https://web.archive.org/web/20211203010045/https://legalref.judiciary.hk/lrs/common/ju/ju_frame.jsp?DIS=29377) 中「有需要條件」，而提交人大常委會解釋。該解釋便會對香港法院有約束力。
+
+代表呂智恆的資深大律師李柱銘，以及代表梁頌恆及梁國雄的資深大律師潘熙均提出，人大常委會作出決定前未有諮詢基本法委員會，如根據《基本法》第158條第4款的正式釋法程序徵詢基本法委員會意見，人大常委會可能會改變主意，因此法庭不應該表面地考慮人大決定。不過，周官認為人大決定是經過小心考慮而作出，要相信人大常委會諮詢基本法委員會後會得出不同的結論是不切實際的。考慮到人大決定，他認為一地兩檢條例與《基本法》相符。
+
+<figure>
+<img src="https://web.archive.org/web/20211203010045im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/長毛-一地兩檢-郭卓堅-20181213191729_1927_large.jpg" alt="">
+<figcaption>社民連成員梁國雄（左）與「長洲覆核王」郭卓堅（中）在庭外見傳媒。梁國雄指裁決反映香港法院揣摩人大決定，是香港司法的倒退。何君健攝</figcaption>
+</figure>
+
+梁頌恆、梁國雄、郭卓堅、呂智恆的司法覆核申請全部被駁回。周官認為，本案涉及重大、廣泛或具有公共重要性的議題，申請人並非為個人利益，故裁定眾申請人毋須支付訟費。此外，周官認同代表立法會主席梁君彥的資深大律師莫樹聯指，立法會主席不應被列作本案的答辯人，頒令梁頌恆支付立法會主席一方的訟費。梁頌恆在本案獲批法授，其訟費最終根據 [《法律援助規例》](https://web.archive.org/web/20211203010045/https://www.elegislation.gov.hk/hk/cap91A!en-zh-Hant-HK?INDEX_CS=N) 評定。
+
+梁國雄、郭卓堅、呂智恆到庭領取裁決，梁頌恆未有現身。梁國雄在庭外回應裁決，指裁決反映香港法院揣摩人大決定，即使決定並不清晰，法院仍視之為「聖旨」，「睇到龍飛鳳舞嘅藥單就執藥」，對香港的司法是一種倒退。梁、郭、呂均表明會上訴。梁頌恆接受眾新聞查詢時指，他正研究判詞，及後再決定會否上訴。
+
+  
+
+
+
+{{< video src="https://web.archive.org/web/20211203010045if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F324230941515058%2F&show_text=0&width=476" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203010045/https://www.hkcnews.com/aboutus/#subscribe)

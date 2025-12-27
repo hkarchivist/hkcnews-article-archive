@@ -1,0 +1,53 @@
+---
+title: "「一哥」失言　建制低智　誰亢奮失控？"
+date: "2021-02-03"
+last_updated: "2021-02-04 03:08:30"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "鄧炳強"
+url: "https://web.archive.org/web/20210725134945/https://www.hkcnews.com/article/37827/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37827/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「一哥」失言　建制低智　誰亢奮失控？
+
+
+{{< video src="https://web.archive.org/web/20210725134945if_/https://www.youtube.com/embed/eK3arBAGtIE" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210725134945/https://bit.ly/2Cj8v4t)
+
+警務處長「一哥」鄧炳強周二（2日）出席立法會會議匯報去年罪案及治安情况，新民黨容海恩問警方有無掌握資料顯示社會運動及暴動案，與毒品案有聯繫，鄧炳強回應說沒有證據，但稱過去示威現場的氣氛，示威者心理亢奮程度，「可能同食咗毒品都類似」。容海恩提問「無厘頭」、毫無証據，與低智相似，鄧炳強形容示威者亢奮，再抹黑為「可能」吸毒，堂堂議會，弱問亂答，散播假訊息。
+
+反修例大小規模示威集會公開進行，參與者情緒高漲，屬正常現象，但期間並未有個案證實，有示威者濫藥。「一哥」形容為「亢奮」，暗指失去理智，說法並不公平，再扯上吸毒，言論不負責任，對過百萬參與示威遊行港人帶侮辱性。
+
+日前，中聯辦主任駱惠寧探望慰問警隊，提到「香港警隊已經由城市治安警察，發展成為一支維護香港穩定和國家安全的堅強可靠、值得信賴的執法力量。」中央駐港代表親自打氣，是否與「一哥」周二表現亢奮有關？他對著鏡頭說：「作為警察係更加需要知道知法犯法。」及後可能冷靜下來、或收到溫馨提示，主動澄清是口誤，改稱警員更應「知法守法」。
+
+
+{{< video src="https://web.archive.org/web/20210725134945if_/https://www.youtube.com/embed/loULxrv-XFM" >}}
+
+
+鄧炳強在會上沒有具體解釋示威者「亢奮」情況，媒體卻有大量片段，不少市民亦親眼目睹現場警員心理亢奮言行，言語和肢體挑釁市民常見，有騎電單車警員表現「花式」駕駛；「圍攻理大」現場，警員以大聲公「曬命」，自己嘆「海底澇」，示威者捱「生命麵包」；有警員將孕婦、少女推倒地上，有阿Sir把記者身份証直播出街，應該就是他口中說的「知法犯法」，類似警員精緒失控例子多如天上星星，誰心理亢奮， 不是很清楚嗎？
+
+鄧炳強受中央嘉許，港區國安法提供極高殺傷力、震懾力武器，有無限資源購置裝備，用駱惠寧的說法，已非昔日的城市治安警察，更接近內地武警，負擔政治、維穩任命，國家給予重任、賦予大權，出現亢奮現象，自然也不認為社會上有甚麼白色恐怖、恐懼，一概否認。
+
+任何人只要稍張開眼睛和耳朵，都能感覺到警暴肆虐、國安法被「武器化」，社會瀰漫恐怖、恐懼氣氛。港人再起動，以腳投票。周日開始，持有英國國民海外護照港人可申請新簽証，5+ 1年後申請入籍英國，不少是感到不安全，害怕失去自由，擔心銀包內有寫上「光復香港，時代革命」 等字眼物件也可能觸犯國安法，不是白色恐怖是甚麼？
+
+自去年中國安法實施以來，警方一共拘捕97人，至今只檢控8人，已展開檢控程序的個案，是否應檢控也有很大爭議，不少人感到以國安法濫捕濫告情況嚴重，雖然不一定感到對自己有直接威脅，但恐怖氣氛濃罩，無人可躲避，只有權力亢奮者看不見、聽不到、沒有感覺，是否與吸毒類似？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725134945/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210725134945im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

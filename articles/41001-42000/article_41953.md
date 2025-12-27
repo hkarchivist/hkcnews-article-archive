@@ -1,0 +1,50 @@
+---
+title: "國安處長蔡展鵬曾光顧之按摩店　三女一男今被控管理賣淫場所　警三度放蛇、蔡非證人"
+date: "2021-06-02"
+last_updated: "2021-09-01 16:41:29"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蔡展鵬"
+  - "警務處國安處"
+url: "https://web.archive.org/web/20210919164602/https://hkcnews.com/article/41953/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41967/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41953/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41967/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 國安處長蔡展鵬曾光顧之按摩店　三女一男今被控管理賣淫場所　警三度放蛇、蔡非證人
+
+警務處高級助理處長兼國安處處長蔡展鵬今年3月光顧無牌按摩店，被到場查牌的同袍發現。當日警方行動共拘捕6人，其中4人今日到東區裁判法院提堂，被正式落案起訴管理賣淫場所及管理無牌按摩院。據了解，警方自去年10月先後三次「放蛇」，技師為臥底警員提供全身按摩後，表示可提供手淫服務，收費介乎500至800，臥底警員只接受了按摩服務。
+
+警方有組織罪案及三合會調查科（俗稱O記）上月中旬表示，在掃蕩行動中發現蔡展鵬，但調查後認為蔡沒有不道德或違法違規行為。調查結果已交給律政司，等候進一步指示，O記當時並指蔡目前休假，是警隊安排。眾新聞向警方再查詢蔡是否仍然休假中，對方著記者參考O記當時說法。
+
+據了解，控方將於本案傳召10名證人，全部屬警員，並不包括蔡展鵬。
+
+<figure>
+<img src="https://web.archive.org/web/20210919164602im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/警務處國安處-蔡展鵬-20210602153317_1b9d_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+今早三男一女到東區裁判法院應訊，包括兩名女按摩師、一名無業越南籍女子、一名無業男子，被控管理賣淫場所、管理沒有有效經營牌照的按摩院。四人暫時毋須答辯，案件押後至7月21日再訊，期間可保釋。
+
+據悉，警方於去年10月已經到灣仔勝意大樓1樓A室的「VIET SPA」放蛇，臥底警接受全身按摩後，技師表示可以提供手淫服務，收費介乎500至800元。臥底警沒有接受手淫服務，付了500元全身按摩費用即離去。11月亦都有一次放蛇行動，情節相近。今年3月，警方第三度放蛇，這次技師表示手淫服務收費介乎500至600元。本案第三被告向臥底警提供全身按摩後，警方入內掃蕩。
+
+傳媒後來於上個月揭發，警方第三度放蛇並掃蕩期間發現了蔡展鵬。O記對蔡展開調查，上月中旬表示調查後認為蔡沒有不道德或違法違規行為。
+
+<figure>
+<img src="https://web.archive.org/web/20210919164602im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/Carrie%20Lam-蔡展鵬-公共服務獎-20210512191901_223a_large.jpg" alt="">
+<figcaption>特首林鄭月娥今年2月包括蔡展鵬在內多名警務人員，頒發行政長官公共服務獎狀。政府新聞處圖片</figcaption>
+</figure>
+
+蔡展鵬去年7月成為首任國家安全處處長，被視為未來警務處處長大熱。現年50歲的蔡展鵬1995年加入警隊，主要負責保安情報及行動工作，由督察做起，2009年升任警司，2014年晉升高級警司，在保安部擔任指揮官，負責保安事務情報、調查等工作；2017年6月晉升保安部副主管及總警司；2019年再升為助理處長，主管保安部。
+
+蔡作風低調，過去極少在傳媒報道出現。去年7月1日警方國安處成立，蔡展鵬再升為警務處高級助理處長，執掌國安處，也是警隊內負責國家安全工作的「第二把手」，仕途一帆風順。
+
+美國財政部年初制裁6名中港官員，以回應香港警方初選大搜捕，蔡展鵬亦在制裁名單之中。特首林鄭月娥今年2月向7名被制裁的現任和前任高級警務人員，頒發行政長官公共服務獎狀，蔡展鵬亦有獲頒獎。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919164602/https://hkcnews.com/aboutus/#subscribe)

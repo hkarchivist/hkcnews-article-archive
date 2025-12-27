@@ -1,0 +1,69 @@
+---
+title: "【728上環暴動】形容被告非壞人望法庭酌情量刑　辯方：法律改變已令暴動絕跡，無需用重刑阻嚇再犯"
+date: "2021-12-04"
+last_updated: "2021-12-04 17:05:49"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "728上環衝突"
+url: "https://web.archive.org/web/20220525100421/https://hkcnews.com/article/48557/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48563/%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48557/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48563/%EF%BF%BD%EF%BF%BD%EF%BF%BD728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【728上環暴動】形容被告非壞人望法庭酌情量刑　辯方：法律改變已令暴動絕跡，無需用重刑阻嚇再犯
+
+前年7.28上環暴動案，44人被控參與暴動，早前分三案處理。本案為第二宗開審案件，24人被控暴動等罪，21人在認罪或受審後被裁定暴動等罪罪成，今（4日）於西九法院大樓進行求情陳詞。有代表律師稱，希望法庭考慮本案並非「一班人想出嚟搞事」，如非社會事件，「佢哋不會坐喺犯人欄面對長刑期」，重申他們不是壞人，有律師更說：「佢哋不單止不是壞人，仲要係好好人，好學生、好員工、好家人。」律師另指，香港法律去年有重大改變，未必需要再透過判刑去阻嚇他人犯案。案件押後至明年1月8日判刑。
+
+開庭前，各被告隔著犯人欄內會見律師。本案早前被裁定無罪的其中兩名女生今早到庭旁聽，其中一人與犯人欄內的未婚夫互相隔著口罩飛吻，又展示她戴在右手的戒指。不少被告看見旁聽席上親友時表現雀躍，不斷揮手及比心，親友們站起來揮手回應，有人拭淚；另有被告用梳子整理前額瀏海，逗旁聽席上的女友人。
+
+<figure>
+<img src="https://web.archive.org/web/20220525100421im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/728上環衝突-20211204124931_18b5_large.jpg" alt="">
+<figcaption>今早大批被告親屬到西九法院大樓外排隊進庭旁聽。（何家達攝）</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220525100421im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/728上環衝突-暴動罪-20211204135918_1b18_large.jpg" alt="">
+<figcaption>西九龍裁判法院外今早派出大批警員駐守。（何家達攝）</figcaption>
+</figure>
+
+各辯方法律代表應法官陳仲衡要求，於早前呈遞法庭的書面求情陳詞中重點列出內容，故今未有在庭上逐一講務各被告的背景及求情信。
+
+### 法律改變已令暴動絕跡　毋須透過判刑阻嚇他人
+
+辯方代表之一、大律師關文渭陳詞指，明白法庭判刑要具阻嚇性，要透過阻嚇被告是無可厚非，不過香港法律去年經歷重大改變後，公眾集會已寥寥可數，非法集結及暴動亦絕跡，顯示法例本來已對他人有阻嚇性，毋須再透過判刑來反映。
+
+關大律師代表第1被告就量刑求情，指同意本案比較案例嚴重，參加人數較多及時間較長，但暴力程度則較輕微，例如沒涉及使用危險工具如汽油彈等，故建議4年半監禁為量刑起點。
+
+此外，關大律師及多名辯方大律師求情均指，希望法庭考慮被告年輕，能行使酌情權，予以輕判。代表第15被告大律師亦指，就被告襲警罪，希望法庭採納較輕的6個月監禁為量刑起點，並將大部分刑期跟暴動罪同期執行。
+
+<figure>
+<img src="https://web.archive.org/web/20220525100421im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/728上環衝突-催淚彈-20190912044816_21f2_large.jpg" alt="">
+<figcaption>前年7.28，西區警署至皇后街一帶有人聚集，演變成警民衝突</figcaption>
+</figure>
+
+### 非「一班人想出嚟搞事」　法庭應考慮事件由社會矛盾引起
+
+代表第4及第22被告的辯方大律師石書銘指，不論本案是否較同類案例嚴重，無可否認的是2019年一連串發生的暴力事件，並非「一班人想出嚟搞事」，而是在香港前所未有、特殊的背景下發生。社會當時出現巨大震撼，市民以不同方式應對，但仍未能處理及解決社會矛盾，進而出現暴力事件。石大狀懇請法庭考慮「點解當時有咁嘅情況出現」，若非社會事件，各被告是「不會出現喺法庭嘅人，亦不會坐喺犯人欄內，面對數以年計的刑期」他重申：「佢哋並不是壞人，並不是本質壞」。
+
+石大狀同意，自法律改變後，法庭已無需用重刑去阻嚇其他人犯案，同樣也不用以重刑阻嚇本案被告再犯，「佢哋唔係嗰啲出出入入監獄要阻嚇佢哋再犯嗰啲人」。
+
+### 望法庭讓被告有機會「翻過這一頁」
+
+就量刑建議4至6年監禁，指被告已汲取教訓，準備好為自己的行為負責，希望法庭輕判，令被告有機會「翻過這一頁」，實踐抱負，回歸社會，被告因本案出獄後亦「不會再喺監獄出現」。他希望法庭接納本案全部被告並非壞人，並應考慮為何當時的事件導致各被告犯下本案。
+
+就第4被告非法管有無線電通訊器，石大律師指被告出身單親家庭，與母親相依為命，被告原負擔家庭開支，沒有積蓄，甚至幫哥哥交學費；如法庭就控罪判罰款，將變成由其家人承擔，故希望法庭判以同期執行的監禁刑罰。
+
+### 官：精神狀態非減刑因素
+
+有律師希望法庭考慮他所代表的第三被告因案件而令影響精神狀態，但法官陳仲衡明言精神狀態不可構成減刑因素，自言已盡力令審訊時間縮短，「如果身體有問題應該尋求治療」。
+
+各被告被指於2019年 7 月 28 日，在西邊街和皇后街之間近德輔道西一帶，與其他人參與暴動。被告徐慶鈞另被控管有一套無線電收發機；莫卓輝另被控襲擊總督察鄧智兆，即前警務處處長鄧竟成之子。
+
+第17被告簡健煌早於2020年5月認罪後一直還柙至今；第1至第16、第19、第22至第24被告審訊後被判暴動罪成，依次為張智麟（21 歲）、學生陳梓康（28 歲）、學生鍾泓洋（20 歲）、理髮師徐慶鈞（20 歲）、陳希雋（24 歲）、學生崔耀明（21 歲）、售貨員林少峰（24 歲）、技術員蔡澤新（40 歲）、學生楊智昇（20 歲）、文員林勝如（19 歲）、學生黃頌恩（22 歲）、文員黃錦珊（20 歲）、學生李少康（21 歲）、周錦濤（18 歲）、文員莫卓煇（33 歲）、黃飛鴻（19 歲）、簡健煌（24 歲）、文員譚詩妙（23 歲）、文員譚伊婷（25 歲）、陸映慧（27 歲）、學生黃柏賢（21 歲）。其中徐慶鈞管有無線電及莫卓輝襲警亦罪名成立。（註：職業及年齡為案發時報稱資料）
+
+<figure>
+<img src="https://web.archive.org/web/20220525100421im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/728上環衝突-暴動-20211113153931_1008_large.png" alt="">
+<figcaption>法官陳仲衡早前等候終院有關暴動罪共同犯案的決定後作出裁決。</figcaption>
+</figure>
+
+案件編號：DCCC871/19

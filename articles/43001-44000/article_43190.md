@@ -1,0 +1,55 @@
+---
+title: "獨立記者自資出版被印刷商拒絕：唔係唔肯印，係唔敢印"
+date: "2021-07-12"
+last_updated: "2021-07-12 13:56:37"
+author: "記者黎卓欣"
+category: "眾聞"
+tags:
+  - "香港記者"
+  - "灣仔書展"
+  - "出版業"
+url: "https://web.archive.org/web/20210925002144/https://www.hkcnews.com/article/43190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43281/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43281/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 獨立記者自資出版被印刷商拒絕：唔係唔肯印，係唔敢印
+
+**港版國安法生效後的首個書展，將於後日即周三(14日）開幕，有出版社表示今年會收起時政書籍，但會繼續售賣有關本地文化的書本。獨立記者M(化名）向眾新聞表示，他有份撰寫的新書，本來預計於書展發售，並趕在書展前完成校對工作，唯大部份書商均表示避免在場內出售「涉及政治」的書籍，最後或需另覓方法對外發售。**
+
+**M前年亦曾自資出版有關社運的書籍，後來再接觸印刷商，希望能印刷再版，惟被對方直接拒絕：「就算刪除晒有機會犯國安法嘅內容，佢哋都話唔會再做呢方面嘅印刷，唔係唔肯印，而係唔敢印。」**
+
+**另外，《誌傳媒》今年出版訪談集《開玩笑的夏天》，新書現時在網站預售。《誌傳媒》創辦人關震海說，不少印刷商已拒絕印刷有關2019年反修例運動的相片：「2019年運動嘅相片係好難印，好難過到印刷商，佢哋可能會問可唔可以抽走。」他指自己對本地印刷出版的未來比較悲觀：「可能印埋今年都未必再有得印。」**
+
+<figure>
+<img src="https://web.archive.org/web/20210925002144im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/書展-20210708181459_2358_large.png" alt="">
+<figcaption>今年書展將於7月14日至20日舉行，有出版社表示今年會收起時政書籍。 貿發局網站</figcaption>
+</figure>
+
+獨立記者M(化名）前年開始，先後應兩間出版社邀請，撰寫多本記錄香港社運的訪談集，亦曾另與其他前線記者自資出版。今年，其中一間出版社再邀請他，為舊書的再版撰寫三篇訪問，「當時係諗住可以趕喺書展出版，可以approach到最多嘅人」。
+
+他指，新書其實已刪減部份可能觸犯法律的內容，但最後由於書展場內絕大部分書商，都避免出售有關政治的書籍，故新書最後未必能在書展發售。「書展嘅書商盡量都唔想『太政治化』，我唔知所謂政治，係《民族論》嗰種叫政治，定係連關於社會嘅書都唔可以，但據我所知係有啲難度。」
+
+本來撰寫的內容被抽走，他說是無可奈何：「如果你話未有國安法，我當然唔想抽走。用出版社名義出文，都要保障番出版社同受訪者安全，迫於無奈都係要有啲篩選。」
+
+M前年曾自資出版有關社運的書籍，後來再接觸印刷商，希望能印刷再版，惟被對方直接拒絕： **「就算刪除晒有機會犯國安法嘅內容，佢哋都話唔會再做呢方面嘅印刷，唔係唔肯印，而係唔敢印。」**
+
+他亦有向另一間出版社供文，新書成功出版後，方能收到稿費：「一日出版唔到，一日啲文都係胎死腹中。」稿費其實並不多，但他形容是有種「disincentive to work」，亦擔心將來出版越趨困難，獨立記者更難生存：「 好似做咗好多嘢但無回報，加上心血結晶、或者受訪者嘅故事，寫完都出唔到街，係好可惜。」
+
+<figure>
+<img src="https://web.archive.org/web/20210925002144im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/書-書展-20210708181130_17c1_large.jpg" alt="">
+<figcaption>誌傳媒今年出版的訪談集《開玩笑的夏天》。網上商店圖片</figcaption>
+</figure>
+
+誌傳媒今年出版訪談集《開玩笑的夏天》，訪問了26名不同家庭、身份的人，描寫中港矛盾之間的縫隙，新書現暫於在網站預售。創辦人關震海說，由於新書是由《誌》直接負責出版，故過程未有阻滯，但透露有關社運的照片，現在已難以印刷：「2019年運動嘅相係好難印，好難過到印刷商，佢哋可能會問可唔可以抽走。」
+
+「印刷我係比較悲觀，可能印埋今年。你話有冇禁區呢？係有禁區，2019年係禁區，關於2019年，你可以講你嘅意見，但訪問就難啲，相片已經唔得，唔可以有遊行示威、名嗰啲嘢 。」
+
+對於記者或供稿人的文字，他說自己盡量不想刪減或修改，將來若過不到印刷商那關，會考慮在外國印刷：「如果香港搵唔到任何印刷廠幫我印、數碼印刷都唔得，我咪走去外國到印囉，我唔會因為印刷唔畀印而去刪減嗰件事。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925002144/https://www.hkcnews.com/aboutus/#subscribe)

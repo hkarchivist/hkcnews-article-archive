@@ -1,0 +1,62 @@
+---
+title: "立會投票日全港免費搭車　運房局：不會有政府資助"
+date: "2021-12-10"
+last_updated: "2021-12-10 23:14:44"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "選戰"
+  - "選舉"
+  - "投票"
+  - "election"
+  - "2021立法會選舉"
+  - "公共交通"
+url: "https://web.archive.org/web/20220924185950/https://www.hkcnews.com/article/48889/2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48932/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48889/2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48932/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 立會投票日全港免費搭車　運房局：不會有政府資助
+
+政府多管齊下催谷立法會選舉投票率，上至特首下至局長都呼籲投票。政府還首次在投票日安排全港免費搭車日，包括：港鐵、專營巴士及電車，以配合市民當日投票，但不包括機場路線及渡輪。與此同時，政府特別印製小冊子至市民呼籲投票，問責局長罕有直接致函相關界別選民催票。（ [見另稿](https://web.archive.org/web/20220924185950/https://hkcnews.com/article/48928/%E5%AE%8C%E5%96%84%E9%A6%99%E6%B8%AF%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6-%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-2021%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-48928/%E6%94%BF%E5%BA%9C%E7%89%B9%E5%88%A5%E5%8D%B0%E8%A3%BD%E5%B0%8F%E5%86%8A%E5%AD%90-%E5%B1%80%E9%95%B7%E8%87%B4%E5%87%BD%E5%8A%9F%E8%83%BD%E7%95%8C%E5%88%A5%E9%81%B8%E6%B0%91%E5%82%AC%E7%A5%A8) ）   
+   
+ 運輸及房屋局回覆眾新聞查詢表示，是次一次性的乘車優惠所涉及的金額視乎當天客次而定， 將不會有政府資助，專營巴士營辦商可利用現行「回饋乘客安排」 的結餘提供乘車優惠。發言人又指，免費乘車優惠安排，是政府與公共交通營辦商磋商後作出的。
+
+據了解，港府上周二（11月30日）與運輸機構開會，提出在選舉日免費搭車的構思，有營運商席間曾提出其他車費優惠，最終在今周二落實免費的決定，並在今日公布詳情。
+
+政府發出的新聞稿未有交代開支由哪一方承擔，但在文末有提及「政府感謝各公共交通營辦商及其員工在當天作出特別安排，為市民提供免費乘車優惠。」據了解，開支由運輸機構承擔。
+
+眾新聞向有份提供免費優惠的運輸機構查詢，預計當日的開支及所負擔費用的比例為何。港鐵發言人表示，免費搭車安排的費用由港鐵承擔，但乘客人流受不同因素影響，暫時無法估算相關開支。眾新聞翻查港鐵中期報告，2021年上半年各支線、輕鐵及巴士（不計機場快線及其他跨境鐵路）營業額為52億6800萬元，即平均每日營業額約2910多萬元，上半年隧道費支出為1億3470萬，即平均每日費用約74萬。
+
+其他營運商其後發新聞稿交代提供免費服務的路線，但沒有正面交代相關開支。按九巴母公司 [2021年載通國際中期業績公布](https://web.archive.org/web/20220924185950/https://www1.hkexnews.hk/listedco/listconews/sehk/2021/0819/2021081900914_c.pdf) ，上半年專營公共巴士服務車費收入為31億3300萬元，平均每日營業額約1731萬。
+
+綜合政府及各運輸機構在新聞稿中交代免費搭車日的安排：
+
+（一）港鐵
+
+適用於本地服務，包括輕鐵服務及港鐵巴士路線，但不包括機場快線。乘客進出港鐵站、輕鐵站或登上港鐵巴士時無需拍卡或付車費。但因港鐵車程不會收費，故與指定綠色專線小巴及街渡的轉乘優惠和港鐵泊車轉乘計劃當日並不適用。
+
+（二）專營巴士
+
+適用於九龍巴士（一九三三）有限公司（九巴）、新世界第一巴士服務有限公司（新巴）、城巴有限公司、龍運巴士有限公司及新大嶼山巴士（1973）有限公司的專營巴士路線，但不包括機場巴士「A」及「NA」線、來往各口岸「B」線、觀光巴士「H」線、通宵巴士「N」線、長途巴士新型服務「P」線及若干行走嶼南的路線。   
+   
+ 九巴、龍巴：乘客上車後毋須繳付車資。   
+   
+ 新巴、城巴：乘客上車時仍需要使用八達通拍卡；日常使用現金的乘客需揚聲，以便車長使用相關系統手動紀錄客流量。
+
+新大嶼山巴士：乘客登車時需使用八達通咭拍卡，以作統計人流，但不會扣除任何車資。
+
+（三）電車
+
+適用於所有電車路線。
+
+立法會換屆選舉將於12月19日舉行。地區選民在登記地址附近票站投票。只有千幾個選委，需要到灣仔會展中心設立的選委會界別票站投票。教育局已將投票日翌日定為學校假期，以配合相關投票工作。
+
+<figure>
+<img src="https://web.archive.org/web/20220924185950im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/election-20211210134214_12d4_large.jpg" alt="">
+<figcaption>街頭巷尾隨處可見政府宣傳廣告。何家達攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220924185950im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/巴士-20211210133317_6eba_large.jpg" alt="">
+<figcaption>巴士公司為市民在投票日提供免費搭車。何家達攝</figcaption>
+</figure>

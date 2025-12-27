@@ -1,0 +1,85 @@
+---
+title: "【紅線織成網】由梁天琦到唐英傑　「光復香港 時代革命」5年後的今天被定罪"
+date: "2021-07-27"
+last_updated: "2021-07-28 02:11:26"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "梁天琦"
+  - "Edward Leung"
+  - "Leung Tin-kei"
+  - "Edward Leung Tin-kei"
+  - "光復香港，時代革命"
+  - "唐英傑"
+url: "https://web.archive.org/web/20210919160707/https://hkcnews.com/article/43752/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43758/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43752/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43758/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【紅線織成網】由梁天琦到唐英傑　「光復香港 時代革命」5年後的今天被定罪
+
+國安法首案昨（27日）裁決，被告唐英傑煽動他人分裂國家、恐怖活動罪名成立。關鍵的八個字「光復香港 時代革命」，於2016年由梁天琦提出，到2019年響遍香港，也在今日成了入罪的證據。
+
+法庭認為，在唐英傑選定的這個日子、地點、展示方式，自然及合理的解讀就是將香港從中國分裂出去，並且煽動他人進行分裂行為。唐英傑自去年7月1日被捕後一直被還柙，今年6月底展開為期15天的審訊，昨天面對裁決，將於本周四（29日）求情。
+
+<figure>
+<img src="https://web.archive.org/web/20210919160707im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/唐英傑-20210219170659_1fed_large.jpg" alt="">
+<figcaption>照片攝於去年7月唐英傑首度提堂；今天橙帶鐵馬圍城，已不能再拍攝到還柙者的模樣。美聯社資料圖片</figcaption>
+</figure>
+
+「光復香港 時代革命」八個字，於2016年初由前本土民主前線發言人梁天琦提出，是梁參選新界東立法會補選的選舉口號。唐英傑案審訊期間，辯方專家證人李詠怡作供提到，梁天琦最初的選舉口號不是「光時」：「2016年1月，梁天琦見記者時宣布的口號是『知行合一，世代革新』」，李詠怡形容那是沉悶、像是學校裏用的口號，不夠搶眼易記，這也是為甚麼後來梁天琦團隊要討論新口號。
+
+2016年2月8日爆發旺角衝突（又稱「魚蛋革命」），梁天琦此後提出口號「光復香港 時代革命」，並寫入選舉單張。這份單張今天卻被控方專家證人劉智鵬用作支持「光時」具港獨意思這個論點。梁天琦當年在補選單議席單票制選舉中未能取勝，但一舉拿下6萬餘票，本土派的聲音不再被忽視。
+
+<figure>
+<img src="https://web.archive.org/web/20210919160707im_/https://hkcnews.com/news_新聞/hk-discuss/2018/04/暴動罪-RICCI-梁天琦-20180425161427_82ba_large.jpg" alt="">
+<figcaption>選舉事務署當年拒絕為參選的梁天琦寄出55萬份選舉郵件，稱是因「自治」、「自主」等字眼問題。資料圖片</figcaption>
+</figure>
+
+2016年立法會換屆選舉，立法會議員DQ風波之後，社會陷入沉寂，直到2019年2月，政府因為一宗在台殺人案而提出修例，才引發軒然大波。2019年6月9日的103萬人遊行未能擋下草案如期二讀，事態越演越烈，矛頭開始指向警暴。
+
+唐英傑案中控辯雙方的專家證人均同意，2019年7月21日起，「光復香港　時代革命」開始被廣泛使用。不同的是，控方專家證人認為源自當日中聯辦外的示威；辯方專家證人則指，此前已經有零星網上討論，7.21白衣人襲擊事件後才變得廣泛使用。
+
+而不用專家爭議的是「光時」口號在後來的示威場合經常被用到。2019年10月初的一天，服刑中的梁天琦與同案的被告盧建民、黃家駒由囚車送到高等法院，法庭就上訴申請聽取雙方陳詞。前來聲援的群眾隔著囚車高叫「光時」，梁天琦後來透過律師團隊表示他都聽得見。
+
+<figure>
+<img src="https://web.archive.org/web/20210919160707im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/高等法院-梁天琦-旺角騷亂-20191009124423_23b4_large.jpg" alt="">
+<figcaption>梁天琦去年10月與盧建民、黃家駒出庭，前來聲援的群眾其間不斷高喊「光時」口號。美聯社資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210919160707im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/逃犯條例-中聯辦-國徽-20190722030331_a320_large.jpg" alt="">
+<figcaption>2019年7月21日市民遊行去到中聯辦外示威，國徽被掟漆彈。美聯社資料圖片</figcaption>
+</figure>
+
+事實上，2019年7.21中聯辦外的示威、國徽被掟漆彈，於兩星期後被國務院港澳辦主任張曉明在記者會上稱為「鼓吹港獨」，喊「光時」口號、包圍和衝擊中聯辦等，是嚴重挑戰「一國兩制」原則底線的行為。
+
+踏入2020年，疫情爆發間接令運動戛然而止。同年6月30日深夜，港區國安法出爐，警方翌日已帶備紫旗出動。國安法在港實施首天，警方以涉嫌違反國安法拘捕10人，當中包括唐英傑。港府並在7月2日發聲明指：「『光復香港　時代革命』口號在今時今日，是有港獨、或將香港特區從中華人民共和國分離出去、改變特區的法律地位、或顛覆國家政權的含意。」
+
+然而，不用待唐英傑案審結，各個界別的生態已起變化：去年9月，一名香島中學學生因為在網上課堂換上有「光時」旗的頭像，被記兩個大過、停課一周；去年11月，中大學生會舉行「中大保衛戰」一周年展覽，迫於校方壓力，在多項展品遮蓋「光時」口號；去年12月，石牆花創辦人邵家臻表示，懲教署要求必須撕走《元朗黑夜》等三本書的部分頁數，當中包括有「光時」旗的圖片，才能將書送入監獄。
+
+紅線浮現，衍生各種二次創作，譬如將口號改成粵語拼音縮寫「GFHG SDGM」、用與字形相似的幾何圖形取代文字，或將字句改成「光顧香港　時代廣場」等。
+
+<figure>
+<img src="https://web.archive.org/web/20210919160707im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/光復香港，時代革命-十一銅鑼灣-20201002005318_2115_large.jpg" alt="">
+<figcaption>「光復香港 時代革命」被視為禁忌後出現的創作，上圖攝於去年10月1日。資料圖片</figcaption>
+</figure>
+
+自我審查更席捲出版界。國安法風聲自去年6月傳出後，山道出版社先後遭7間印刷廠拒絕印刷《致自由》一書，書中收錄反修例運動參與者的經歷，有印刷廠認為參與印刷「太危險」。當唐英傑等人因攜有「光時」旗被捕後，出版社亦即時開會商量修改書中內容，包括所有涉及「光時」的相片和文字。
+
+去年7月，理大編委總編輯陳威諾表示，國安法實施後，印刷商因為害怕觸犯國安法，拒絕為他們加印內有「光時」圖片的圖輯。今年7月書展，次文化堂明言未有出售出現「光時」字眼的書籍，稱要謹慎地審閱每本書才能擺賣。
+
+更甚者，「光時」儼如禁語，連講出口都有所顧忌。去年11月一宗襲警案審訊中，涉案警員庭上被問及「光時」旗幟上的字句，他即表現遲疑，指相關字句「有機會觸及國安法」，迴避說出整句光時口號：「光復香港，時代……跟住係『革命』兩個字」。今年1月，一名Foodpanda外賣員遭截查，有警員取出其銀包內的「光時」卡片，多次要求外賣員讀出字句，但外賣員堅拒，更稱「你唔好再陰我啦，我唔會講，講咗就犯法，我唔講，隨身物品唔會犯法」。
+
+因「光時」而被控的亦不只唐英傑，還包括「快必」譚得志、「美國隊長2.0」馬俊文，二人均被指曾叫喊「光時」口號，前者被控發表煽動文字，後者被控煽動他人分裂國家。快必案本周四續審，料將受今天的裁決影響。
+
+另外，今年6月，警方分別以涉嫌作出具煽動意圖作為和發表煽動文字，拘捕在單位鐵閘貼上「光時」貼紙、揮春，和在單位晾衫架懸掛「光時」旗的市民，二人暫未被控。
+
+「光復香港，時代革命。」由2016年到今天，不過5年時間，喊出同一句話的意義經已不再一樣，後果亦迥異。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919160707/https://hkcnews.com/aboutus/#subscribe)

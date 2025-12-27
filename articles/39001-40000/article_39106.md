@@ -1,0 +1,95 @@
+---
+title: "LSG製造不公"
+date: "2021-03-11"
+last_updated: "2021-03-26 12:45:06"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "社工總工會"
+  - "社福機構"
+  - "整筆撥款"
+url: "https://web.archive.org/web/20210924100213/https://www.hkcnews.com/article/39106/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39687/lsg%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39106/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39687/lsg%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# LSG製造不公
+
+<figure>
+<img src="https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/整筆撥款-社福機構-20210311000220_1165_large.png" alt="">
+</figure>
+
+【撰文：社總許麗明】
+
+政府自2000年推行整筆撥款（Lump Sum Grant, LSG）制度以來，無論是政府作為撥款者，或社會服務機構作為服務營辦者，在公營服務的本質下，兩者角色都是「兩頭唔到岸」。此制度下社福機構以自負盈虧，「用者自付」的概念運作，引入大量的project based、且以一兩年的一次性計劃推行服務，導致社福同工不斷寫計劃書，申請一年起兩年止的project，除了影響社福機構的長遠計劃，也未能持續支援有需要的人。社署網頁早已用「顧客」來形容服務使用者，反映社會服務被商業化的事實。
+
+<figure>
+<img src="https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/社福機構-整筆撥款-20210310153439_a5d1_large.png" alt="">
+<figcaption>社署網頁用「顧客」來形容服務使用者。社署網頁截圖</figcaption>
+</figure>
+
+### 人手、人工全落後
+
+社會服務商業化的問題已經20年了，有社福同工大歎：社署缺乏監管讓機構高層縮減人手，剝削前線員工，令員工士氣減低或社工流失。例如，有機構為節省金錢或增加人手，會把原需要聘學位社工的職位以非學位社工取代，便可以增聘多一個，或縮減社工人手改以兼職人手。事實上，這種現象屢見不鮮。
+
+社福同工其中一個工作目標是為弱勢、被剝削、被壓逼的人努力，讓他們改善情況，脫離困境。然而，我們卻面對一大堆問題：同工不同酬、肥上瘦下、人手編制不合時、回應社會的服務需要落伍等。
+
+以下解釋一下關於政府撥款的情況，讓大家了解社福機構受政府資助服務的營運資金並非「自負盈虧」，也不是以利潤回報率去發展業務的商業機構，所以不會因估算未來的盈利不足而裁員。意思是，當社福機構能達到社署要求的服務指標營運而出現了資金不足的情況，政府是需要承擔責任的。（以下例子不適用於非政府資助的服務）
+
+### 社署要「負返個責任」
+
+雖然整筆撥款制度推行後，社福界的薪酬與公務員薪酬架構已脫勾，但是政府撥款額也是根據公務員薪酬架構支薪計算，即按照每個編制內員工職級的中薪點薪酬以撥款。舉一個例子，由2020年4月1日起，政府以3間地區中心及3間網絡站的規模發放款項給社區復康網絡，每年為$2,217,343流動資金（見下表）。整筆撥款的靈活在於社福機構不一定按以下的人手數目聘請員工，也沒有薪酬架構。事實上，由於不是所有員工都領取中薪點，按道理款額必定能高於每年的營運費，而且有盈餘，盈餘可以撥入儲備，每年最多可儲撥款額的25%。
+
+<figure>
+<img src="https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/社工-社福機構-薪酬-20210310154657_1717_large.png" alt="">
+<figcaption>社區復康網絡全年流動資金表。資料由作者提供</figcaption>
+</figure>
+
+由於人手編制的不合時宜，以上編制只屬建議。因此，社福機構往往會自行重新編配人手，因而出現上文同工指出的：「學位社工的職位以非學位社工取代便可以增聘多一個」、「縮減社工人手改以兼職人手」等情況。更惡劣的情況則會在非政府資助的服務出現。
+
+削減人手或薪酬偏低的情況，引致社工的經驗承傳出現斷層，導致影響直接服務的質素。所以社福同工正在參與聯署，要求社署「負返個責任」。聯署內容摘要以下：
+
+一班社福工會人及關注組同工，在報告未有定案前，聯署要求撥亂反正，包括以下的原則：
+
+**1) 對服務使用者公道，原本人手編制跟不上社會發展需要；**   
+ **2) 對同工公道，應該跟MPS及認可轉職時的年資；**   
+ **3) 對機構公道，在合理資源下集中精力做好服務。**
+
+具體要求是：
+
+**1) 社署應設立「包底」機制：既然顧問報告指以中薪點撥款基準足夠，如機構因跟足MPS支薪而出現財赤，社署應建立包底機制，讓機構申請補回相關差額。**   
+ **2) 盡快完成人手編制檢討：社署應於兩年內完成人手不足之服務的編制檢討。**   
+ **3) 定期檢討制度：社署應建立恆常檢討機制，定期檢視社會服務回應社會需要。**
+
+總結：
+
+社會服務制度的不公義是關乎公眾利益的，請大家與我們一起參與 [聯署](https://web.archive.org/web/20210924100213/https://forms.gle/JFDdjZfdGZbZ7J9Q6) 。
+
+回應「社工認同有需要倡導修訂政策及法律，以改善有關的社會情況，促進社會的公義及褔祉」（社工守則中的第二部份第50條）。
+
+<figure>
+<img src="https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/整筆撥款-羅致光-社福界-20210310153747_2a8e_large.jpg" alt="">
+<figcaption>原載於香港大學網頁的問卷調查結果已被移除。圖片由作者提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/社福規劃-社工總工會-社署-20210310153657_2a2a_large.png" alt="">
+<figcaption>沒有社福規劃難以適時回應社會大眾的需要。圖片由作者提供</figcaption>
+</figure>
+
+**作者簡介：** 許麗明，註冊社工。相信堅守社工專業守則可以為香港人帶來幸福。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924100213/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20210924100213im_/https://www.hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

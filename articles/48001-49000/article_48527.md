@@ -1,0 +1,34 @@
+---
+title: "內蒙男人到哈爾濱唱歌後確診感愧疚 網民不收貨斥其播毒"
+date: "2021-12-03"
+last_updated: "2021-12-06 19:15:40"
+author: "中國組記者廖樂欣"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "內蒙古"
+url: "https://web.archive.org/web/20220117163126/https://hkcnews.com/article/48527/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48527/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48527/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48527/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 內蒙男人到哈爾濱唱歌後確診感愧疚 網民不收貨斥其播毒
+
+<figure>
+<img src="https://web.archive.org/web/20220117163126im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/內蒙古-20211203163701_1869_large.jpg" alt="">
+<figcaption>涉事哈爾濱KTV。上游新聞</figcaption>
+</figure>
+
+內蒙古疫情爆發至3省5地，昨日全國新增80宗本土病例，其中內蒙滿洲里市有56宗，哈爾濱有10宗。哈爾濱確診病例與滿洲里的密切接觸者有關。一個滿洲里男人上月底到哈爾濱KTV唱歌，其後確診，他被批評將病毒傳入哈爾濱。
+
+上月26日一個滿洲里男人帶核酸檢測陰性報告，乘搭飛機到哈爾濱，當晚朋友請客帶他到KTV唱歌過夜，現場有8名陪唱人員，但喝醉的他說已經不太記得當晚情況：「我不知道哪是幹啥的，我是客人，也不是我花的錢，因為喝多了，我也記不住，跟我都沒有關係。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117163126im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/哈爾濱-20211203164038_9eac_large.jpg" alt="">
+<figcaption>哈爾濱部分地區展開全民檢測。上游新聞</figcaption>
+</figure>
+
+他說翌日聽到滿洲里疫情爆發，哈爾濱朋友開車將他送回滿洲里，自己之後確診。被指將病毒帶入哈爾濱的他，受到不少網民攻擊：「我是源頭，但我有什麼錯，但是對於造成這個影響，反正有點愧疚，但是這些東西，說實話不是我能左右的，罵就罵，人的權利，畢竟是這麼個事，他們的(病毒)是我帶過去的，沒辦法，接受吧。」
+
+不過網民並不接受他的道歉，罵他明知自己可能確診，還叫朋友開車送他回去，怎樣好意思說與他沒關係，又有人將積壓不滿發泄在他身上，稱哈爾濱在兩、三個月經歷數輪疫情，多虧他剛剛解封不久又再做核酸，做到喉嚨都破。不過都有人為他求情，認為他來的時候疫情未在當地爆發，沒有人想見到疫情失控。涉事KTV表示密切接觸者已接受隔離。
+
+檢視這波疫情源頭，滿洲里疫情防控指揮部說是由境外入境貨物攜帶病毒，通過人傳人、物傳人方式傳播擴散，目前全市需要接受居家隔離，有高校改用網上教學，當地超過26個學生確診，其中17個滿洲里確診師生去過當地的戲院，一個同樣到過戲院的工人其後確診。

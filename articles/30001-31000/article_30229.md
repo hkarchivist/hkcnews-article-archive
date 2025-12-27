@@ -1,0 +1,91 @@
+---
+title: "【多片，5.24遊行】民氣再現反國安法　港人續向世界怒吼"
+date: "2020-05-25"
+last_updated: "2020-05-25 01:59:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國歌法"
+  - "港版國安法"
+  - "524反惡歌法大遊行"
+url: "https://web.archive.org/web/20211127030740/https://www.hkcnews.com/article/30229/524%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30235/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD524%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30229/524%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30235/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD524%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【多片，5.24遊行】民氣再現反國安法　港人續向世界怒吼
+
+立法會大會周三恢讀二讀《國歌法》，加上人大宣布「港版國安法」，網民昨日發起「反惡歌法和國安法」遊行，在限聚令和未獲批不反對通知書下，不少市民仍然走上街頭，估計至少數千人逼爆銅鑼灣崇光百貨附近一帶的道路。但在遊行開始後不久，警方即在希慎廣場附近施放催淚彈，並出動水炮車和裝甲車驅散，街頭衝突處處，至少180人被捕，包括兩名區議員。
+
+因武漢肺炎疫情而暫停數個月的街頭抗爭，怒火在昨天再燃點。香港人再被壓迫，唯有奮力向世界呼喊。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/5qvmzTaao1U" >}}
+
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/P4lT0t8kMig" >}}
+
+
+因應網民號召在銅鑼灣及灣仔一帶遊行，警方日前已經表明會迅速果斷執法。但周日中午的銅鑼灣仍擠滿人群。人民力量譚得志「快必」在記利佐治街舉行抗疫講座，派發口罩，但警方中午將快必拘捕，指他涉嫌非法集結。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/y1Pebm8E0DQ" >}}
+
+
+下午1時，聚集的市民有增無減，逼爆東角道，警方一度舉起藍旗警告現場人士離開。人群開始湧出崇光百貨外的軒尼詩道，並向灣仔方向前進，有抗爭者換上黑色衣褲，走到前線，舉起雨傘。但遊行隊伍起步後不足十分鐘，走到波斯富街附近，警方已佈防阻止前進，及後施放多枚催淚彈驅散人群。
+
+當示威者被催淚彈逼得節節後退時，有人高叫：「返來啊，我哋無得再退啦」。這時候，人群未有馬上散去，反而如水般走進銅鑼灣、灣仔的內街，之後再重新聚集起來。在國安法的陰霾下，遊行人士叫起「香港獨立，唯一出路」的口號時最為響亮，也有人高舉「天滅中共」的海報，街頭又不時播放《願榮光歸香港》，人們都唱起來。過去半年的街頭看似冷卻，這一刻又再熾熱。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/G0k9kAk_nVc" >}}
+
+
+有示威者在灣仔多區街道，以磚頭、竹棚甚至榴槤殼設路障，亦有部分雜物起火。警方出動水炮車和銳武裝甲車，驅散在灣仔軒尼詩道聚集的群眾。有人在銅鑼灣破壞I.T服裝店的玻璃，將模特兒模型放在行人路上。
+
+網上有片段拍到一名警員在銅鑼灣一帶執法期間，曾經進入附近一間便利店取走一樽水後離開，過程中沒有付款。警方之後在facebook指，警方已經向店舖付清相關樽裝飲品的費用，沒有提及是否事後才付款。 [網媒PSHK上載影片](https://web.archive.org/web/20211127030740/https://www.facebook.com/photographicsocietyhk/videos/250393746275003/) 稱，警察公共關係科警員事後到便利店代為付款。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/jKvCLGvkV7o" >}}
+
+
+警方在崇光百貨外大包圍式截查多人，並以旅遊巴將他們接走，當中有身穿反光衣的義務急救員。沙田區區議員李志宏遭警方截查後被捕，之後中西區區議員葉錦龍同樣被警員制服拘捕。立法會議員許智峯此前正與葉錦龍在現場監察警方執法行動。葉錦龍被索帶鎖上雙手並帶走。
+
+有警員在堅拿道西被人高空投擲雜物，警員隨即以盾牌掩護同袍離開，同時後方有市民紛紛拍手叫好。之後有警員向路上的記者和市民噴射胡椒噴霧、多次發射胡椒球彈。有警員說：「唔好埋嚟啊，危險啊，丟嘢啊！」警方在Facebook表示，有暴徒突然向現場警務人員投擲大量磚頭、硬物及不明液體，有警署頭盔被擊中損毀。事件中，至少4名警方的傳媒聯絡隊人員受傷。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/kxsHd7MQx1E" >}}
+
+
+警方於晚上繼續在銅鑼灣灣仔一帶搜捕，採聲東擊西策略。晚上7時左右，據報警方在銅鑼灣停車場外的暗角拘捕9人，被捕者受傷留有血跡。整個夜裡，警方幾度在軒尼詩道推進，將市民趕上行人路，然後登上警車大規模撤離，餘下少部分警力駐守街口。市民向警方叫罵、播《願榮光歸香港》，警方再於另一處突擊出現，截停搜查或拘捕在場者。
+
+其中一次發生在晚上10時許，警方從鵝頸橋底撤離後不久，記者站在鵝頸橋底觀察，站在登龍街的一位街坊說：「記者呀！呢邊嚟緊！」遂見數名警員從登龍街跑出，同時另有大量警員從軒尼詩道跑來，但一陣追逐後，警員沒有制服任何人。後來卻有警員從行人路上拉著兩個人說：「呢兩個灰色嘅。」兩名男子被拉到橋底，警方築起防線。同時，警方又在堅拿道東一條巷口截查一名黑衫男生，三人在被搜身、搜袋後均獲釋。兩名灰衫男子向記者表示，二人在馬路邊聊天討論怎樣離開這裡，警員趕至，叫他們「上番行人路」，於是兩人站到行人路上，豈料另有警員搭他們膊頭表示要求截停搜查，最終搜查約10分鐘後獲釋。
+
+這夜的截查行動，到10時半左右結束，交通警員指揮工人用泥頭車將路上雜物移走，軒尼詩道重新通車。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/W8so8CjsQsI" >}}
+
+
+久違了的再上街，街頭裡不難碰見熟悉的面孔。入夜後，不知怎地見到許多中年人，50多歲的古小姐（化名）是其中一位，她曾於去年「理大圍城戰」步出校園時被捕，其後成功踢保。
+
+問她今日再上街的原因，她嘆一口氣說：「其實都係唔忍心班細路被佢（警員）又扑又拉。國安法，其實我覺得都冇乜可以掙扎，都係靠國際，但細路仔唔抵得、要出來嘅，我哋咪出嚟。」她表示，不敢說是保護青年，笑說：「唔好連累佢哋就得」，她只希望能喝止警員。她今午12點來到銅鑼灣，至晚上9時半接受訪問，中間只食過一個牛角包。
+
+「頭先突然間有架衝鋒車喺呢度停啊，我咪向後跑，跑到一半抽筋，哈哈哈。」然後她又再從時代廣場走出來，繼續站在警察防線的對面。
+
+這場延綿一年的運動，她感受最深的是與年青人關係的變化。她形容自己以前「好潑辣」、對小朋友好惡，記者問：「你不是做老師吧？」她答：「我唔係做老師，但我好乞人憎架，而家覺悟咗、眼界闊咗。」她形容：「無底線啦而家，咁樣打我哋啲細路。」她認為有人犯法，警察可以拘捕，但不能夠濫用私刑、違反警例。
+
+
+{{< video src="https://web.archive.org/web/20211127030740if_/https://www.youtube.com/embed/3RsCoK_CbHo" >}}
+
+
+政府晚上發聲明強烈譴責，指「在銅鑼灣及灣仔一帶非法集結及作出暴力違法行為，四處以雜物堵路、縱火、破壞商舖及社區設施，包括拆毀馬路鐵欄、擊毀交通燈、撬起路面渠蓋及掘起地面磚頭等，並襲擊意見不同的市民。部分暴徒闖入行車天橋干擾行駛中的汽車，更有人從大廈天台向地面投擲玻璃樽，並以大量磚頭襲擊警察和向他們淋潑不明液體，導致至少四名警員受傷送院。這些在去年下半年屢見不鮮的暴行，嚴重威脅公共安全，令人髮指。警方使用適當武力進行驅散及拘捕行動，是履行作為執法機關的職責。」
+
+政府發言人又指，有部分人士在現場揮動「港獨」旗幟，公然罔顧香港憲制秩序，損害香港社會整體和長遠利益。發言人指，在銅鑼灣及灣仔一帶的暴行，顯示「港獨」和「黑暴」分子仍然猖獗，印證了就國家安全立法的必要性和迫切性。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127030740/https://www.hkcnews.com/aboutus/#subscribe)

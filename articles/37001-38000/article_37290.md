@@ -1,0 +1,64 @@
+---
+title: "犯法就是犯法　郭偉強認衰就得？"
+date: "2021-01-15"
+last_updated: "2021-01-27 02:05:02"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "郭偉强"
+  - "立法會議員"
+url: "https://web.archive.org/web/20210925203949/https://www.hkcnews.com/article/37290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 犯法就是犯法　郭偉強認衰就得？
+
+
+{{< video src="https://web.archive.org/web/20210925203949if_/https://www.youtube.com/embed/4IA4AQTLQJ8" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210925203949/https://bit.ly/2Cj8v4t)
+
+> **不過我可以講呢，香港係一個依法辦事嘅地方，法治係我哋根基，咁所以呢，喺法律面前人人平等，並不存在有選擇性執法，或者選擇性檢控。**
+
+
+──去年11月特首林鄭月娥回應香港電台《鏗鏘集》編導蔡玉玲查車牌被控違反《道路交通條例》事件
+
+> **社會上任何人，無論你如何財雄勢大，無論你有幾大影響力，甚至能影響到媒體，你犯法就是犯法，我們就要拉你，總之我們有證據的話，無論幾時有證據都會檢控。**
+
+
+──去年3月警務處處長鄧炳強回應拘捕壹傳媒集團創辦人黎智英等人事件
+
+本周三（13日），立法會通過議案，多個事務委員會、法案委員會可以視像方式舉行會議。立法會房屋事務委員會周四首次以 zoom 開會，多名議員疑似身處車內，其中工聯會郭偉強的畫面更多次出現安全帶、倒後鏡吊飾等，並出現光暗變化，疑是邊駕駛車輛邊使用電子器材 zoom，有違規之嫌。
+
+
+{{< video src="https://web.archive.org/web/20210925203949if_/https://www.facebook.com/plugins/video.php?height=420&href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F727405321246546%2F&show_text=false&width=560" >}}
+
+
+郭偉強其後在 facebook 回應事件未有否認當時正在駕駛，僅稱「大家放心， 已盡快在適當位置停車繼續會議。」郭偉強又稱，「天氣寒冷，車上暖氣是我的避寒中心。 左撲右撲都是為社區服務，肖馬自然馬不停蹄？ 大家都要注意路上安全呀！」
+
+根據法例，司機在車輛行駛時不可使用手提式流動電話，或其他同類無線電通訊設備。如果確實需要使用，應該在車上裝設免提式裝置。根據《道路交通條例》第 38 條，任何人駕駛車輛時，若無適當謹慎及專注，或者未有合理顧及其他道路使用者，即屬不小心駕駛，最高可被判處監禁 6 個月。
+
+郭偉強間接承認一邊駕駛一邊開立法會會議，是否可視為「 無適當謹慎及專注」，違反《道路交通條例》第 38 條？片段已廣泛流傳，議員涉嫌公然犯法，警方未有正式說法。郭偉強昨日回應傳媒時以「車上暖氣是我的避寒中心」 的低級幽默辯駁，侮辱市民智慧，嬉皮笑臉，令人嘆為觀止！
+
+他認衰，向公眾致歉，表示會深刻反省自己的駕駛態度， 承諾日後會嚴格遵守道路交通規則，但被問到會否向警方自首，郭偉强說，如果有任何調查行動，他本人將會積極配合。「一哥」 說，「犯法就是犯法，我們就要拉你」，至少也要調查吧！假如有証據違法，是否一句sorry可免被檢控？
+
+郭偉強在5月的立法會內會會議，拉跌人民力量陳志全，陳志全向郭偉強提私人檢控。律政司介入，決定對郭偉強不提證供起訴，郭偉強粗暴行為有片段為證，律政司「 放生」，並無公開交代。
+
+假如再「放生」郭，難道他有免被拉、檢控金牌？林鄭說，「不存在有選擇性執法，或者選擇性檢控。」政府執法、 檢控雙重標準越來越明顯，政府不依法辦事，市民怎會信任、尊重政府？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925203949/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210925203949im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

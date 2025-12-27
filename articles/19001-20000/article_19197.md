@@ -1,0 +1,73 @@
+---
+title: "「食物安全」我們真的不行嗎？"
+date: "2019-03-25"
+last_updated: "2019-03-25 12:07:34"
+author: "孫樹坤"
+category: "眾說"
+tags:
+  - "食物安全"
+  - "魚菜共生"
+  - "閒置農地"
+url: "https://web.archive.org/web/20211027164250/https://hkcnews.com/article/19197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19319/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/19197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19319/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「食物安全」我們真的不行嗎？
+
+「搵食」其實是所有生物的本能，但如果搵到的食物竟然會危及性命，那真不知如何是好？今時今日平民百姓根本無法了解買到的食物是否安全，這個責任似乎已經完完全全地交到我們政府的手裹。但香港政府在保障我們的食物安全上下了些甚麼功夫？
+
+<figure>
+<img src="https://web.archive.org/web/20211027164250im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/食物安全-食環署-20190325111632_bafe_large.jpg" alt="">
+<figcaption>2017年申訴專員主動調查並批評食環署對進口蔬菜把關不力。孫樹坤攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211027164250im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/有機蔬菜-食物安全-20190325111046_2980_large.png" alt="">
+<figcaption>浸會大學有機資源中心調查發現，本地有機蔬菜樣本驗出除害劑含量超標。《蘋果日報》照片｜2018.03.25</figcaption>
+</figure>
+
+2017年7月申訴專員公署主動調查發現，食物及環境衞生署對進口蔬果監管不力，陸路關口抽檢鬆懈、海路進口更根本不作抽查。因此大家在街市買到一些價錢又平，看起來又靚的蔬菜時，真的不要開心得太早。香港目前用來耕種的農地只約有三百公頃，總面積比粉嶺高爾夫球場還要小，每年出產不足二萬噸蔬菜，只佔港人食用量（或自給率）的2%左右。因此我們是完全依賴進口。每天輸港的農產品數量之多，其實已達到難以有效地去進行抽檢的地步。面對這種局面，一些有錢人家就會僱用一些已經無田耕的農夫，去為他們打理私家田，以保證他們和家人可以安心地享用從田裹種出來的有機蔬菜；而一些中產家庭就會去租用一小塊有機農地當其假日農夫，盼望能自給自足，沒空又或不想付出體力的中產便傾向購買有政府認證的有機蔬菜，不過壞消息是，香港的有機蔬菜一樣缺乏有效的監管。而普羅大眾就只好若無其事地，繼續去街市買平菜好了。
+
+<figure>
+<img src="https://web.archive.org/web/20211027164250im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/農地-Hong%20Kong-有機耕種-20190325112152_f0a7_large.jpg" alt="">
+<figcaption>香港目前只有約三百公頃仍然用來種菜的農地，產能嚴重不足。孫樹坤攝</figcaption>
+</figure>
+
+而香港人喜歡吃的海鮮又如何？根據漁農自然護理署的資料，香港捕撈漁業於2018年的漁產量約為12.4 萬公噸；在2017年，水產養殖業的產量達3,665公噸。不過大家也不要開心得太快，根據香港01的一篇有關 [環保海鮮的報導](https://web.archive.org/web/20211027164250/https://www.hk01.com/%E5%91%A8%E5%A0%B1/260962/%E7%92%B0%E4%BF%9D%E6%B5%B7%E9%AE%AE-%E4%B8%80-%E6%B4%BB%E9%AD%9A%E9%80%B2%E5%8F%A3%E9%9B%B6%E7%9B%A3%E7%AE%A1-%E7%82%BA%E4%BD%95%E5%8D%81%E6%A2%9D%E9%83%BD%E6%B2%92%E4%B8%80%E6%A2%9D%E6%9C%AC%E5%9C%B0%E9%AD%9A) ，香港大學生物科學學院及太古海洋科學研究所薛綺雯教授（Professor Yvonne Sadovy）批評，活魚未受監管是法律上的灰色地帶。她更進一步指出，當局立法規管不足，執法不力，香港人往往不知道進口活魚、甚至冰鮮魚的來源，足以構成食物安全問題。
+
+另一方面，綠色和平早前發表了他們和香港教育大學教授霍年亨博士合作的 [海岸塑膠污染研究報告](https://web.archive.org/web/20211027164250/http://www.greenpeace.org/hk/press/releases/oceans/2019/03/rw-plastic-report/) ，發現與三年前的同類研究比較，香港水域的平均微塑膠濃度增幅超過十一倍。其實微塑膠早已經出現在全球的每一個角落，只是濃度仍未達至高危水平，但歐盟的科學忠告機制（ [Scientific Advice Mechanism](https://web.archive.org/web/20211027164250/https://ec.europa.eu/research/sam/index.cfm) ）於今年年初已經發出警告，如果以目前增長的速度來看，不出本世紀末微塑膠便會演變成為一個廣泛的危機。到時大家真的可能會食無魚了！
+
+面對這個食物安全陸續失守的局面，香港是否只可以坐以待斃？其實香港很適合推行魚菜共生，到今日為止魚菜共生是所有食物生產方法之中最為有機環保和安全的技術，系統中的魚苗、種籽、水、魚糧，以至整個種植的過程都在一個可受到全面控制的環境下進行，而且魚菜共生的產能又比傳統的耕種方法高許多，香港一公頃的農地每年只可生產約66噸的蔬菜，而一公頃的魚菜共生農場每年卻可生產474噸蔬菜和31噸魚！如果將三百公頃農地用作魚菜共生，那麼香港一年就可生產149,644公噸的蔬菜和近9247公噸的鮮魚，佔全港蔬菜自給率的15%，而且全部都是非常安全的食物，這個產量已是一般國家或地區的戰略性糧食自給率的水平。筆者對魚菜共生產能的估算是建基於筆者先後兩次親身在美國學習和考察魚菜共生時所接觸過的魚菜共生系統，而且只是用了這些系統提供者提出的產能下限來計算，根據筆者在奧克拉荷馬州的觀察，新改良的魚菜共生系統的產能其實更為優勝，因此筆者的推算已是十分之保守。
+
+<figure>
+<img src="https://web.archive.org/web/20211027164250im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/魚菜共生-NOAH-Vian%20City-20180724110403_2c99_large.png" alt="">
+<figcaption>筆者在2018年在美國奧克拉荷馬州考察NOAH 菜共農莊。 孫樹坤攝</figcaption>
+</figure>
+
+即使在美國魚菜共生真正受到重視都是近幾年的事情但發展的勢頭卻非常凌厲，從以下的兩段影片可以看到在2015年，即筆者第一次前赴美國學習魚菜共生時，當地的傳媒才開始正視到這耕種技術，但在往後的幾年間魚菜共生的技術愈趨成熟，投資的規模也愈來愈大，開始挑戰傳統農業和養殖業的地位，而他們提出來的主要賣點就是食物安全。
+
+
+{{< video src="https://web.archive.org/web/20211027164250if_/https://www.youtube.com/embed/pqjHT8MFSow" >}}
+
+
+
+{{< video src="https://web.archive.org/web/20211027164250if_/https://www.youtube.com/embed/_-O3dc0dFJM" >}}
+
+
+香港有三千七百多公頃閒置的農地，它們有些已不再適合用來進行傳統的土耕，但魚菜共生可以在任何地方進行，如果將全部閒置的農地都拿來用作魚菜共生，香港每年便可生產1,845,609公噸的蔬菜，和114,046公噸的鮮魚。到時候蔬菜的自給率便差不多達到自給自足，而食物安全便不再是一個奢望。筆者最後要強調的是，魚菜共生並不是只適合在美國進行，筆者在2018年中在美國的奧克拉荷馬州考察的時候就完全相信這種技術百分百可可以移殖來香港，因為當地的氣候和香港其實是非常的接近，（詳情可以參考筆者之前發表的 [〈魚菜西經〉](https://web.archive.org/web/20211027164250/https://bit.ly/2uJIeY2) 一文）。香港各大學的研發能力都很強，如果能及早引入魚菜共生技術，香港是有機會在食物安全上創出一個奇蹟。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027164250/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 孫樹坤](https://web.archive.org/web/20211027164250im_/https://hkcnews.com/uploads/avatars/5eb448a0-9daf-4890-bfef-85606a93c141.png?126752584)
+
+**博客 | 孫樹坤**
+
+【孫樹坤・木又寸】「木又寸」！？這是簡體字中的「樹」字，這種寫法早出自唐朝醉僧懷素之手，字形既生動活潑又包含了樹的本質，而且還有點「寸」。我的名字當中便有一個樹字，我的專欄便以它為名。我有二十多年攝影記者的工作經驗，2006年退下火線，目前在香港浸會大學碩士課程兼職教新聞攝影，和在香港科技大學兼職教攝影創作，另外我是香港國際攝影節的執委，和一個魚菜共生(Aquaponics)農場的場主，因此，這個專欄會以攝影和魚菜共生作為主打。歡迎聯絡：[email protected]

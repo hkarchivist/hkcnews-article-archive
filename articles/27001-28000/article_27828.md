@@ -1,0 +1,152 @@
+---
+title: "爭議中的溝通哲學　專訪中大副校長吳基培"
+date: "2020-03-13"
+last_updated: "2020-03-14 13:47:07"
+author: "大學線"
+category: "眾說"
+tags:
+  - "中文大學"
+  - "大學線"
+  - "吳基培"
+url: "https://web.archive.org/web/20210921021127/https://hkcnews.com/article/27828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27851/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/27828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27851/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 爭議中的溝通哲學　專訪中大副校長吳基培
+
+【記者：陳展熙｜編輯：姚穎彤｜攝影：陳展熙、姚穎彤】
+
+**「以前沒有這樣『瞓身』，更沒想過要戴上『豬嘴』。」**
+
+**回看去年11月中大二號橋衝突的直播，片段中不乏中大副校長吳基培的身影。當日他陪同校長段崇智到二橋談判，卻在沒有防具下初嚐催淚彈。吳基培曾手持擴音器勸喻警方和示威者「不要打」，希望示威者將現場交由校方處理，並表示經協調後警方會暫時撤退；惟警方撤退時繼續施放催淚彈，令他再受催淚彈波及。**
+
+**事件過去近兩個月，吳基培受訪時不願多談當時的情形，擔心對師生和學校造成更多傷害。中大是他母校，回巢執教26年，加入中大管理層也逾十年，他曾處理不少校內爭議，但他直言近大半年來的反修例運動絕對是任內最大的挑戰，因社會愈趨兩極，令他更難了解雙方想法，遑論從中調停。他慶幸校園設施修復進度良好，但最難修補的卻是「人心」。**
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/大學線-吳基培-中文大學-20200313143044_17e4_large.png" alt="">
+</figure>
+
+> **喂Dennis，你在這裏做甚麼？**   
+ **好久不見，最近過得好嗎？**
+
+
+訪問途中有同學主動上前打招呼，吳基培親切地問及同學的近況，學生直呼其名。吳基培笑言不知由何時開始，學生會幹事均稱他Dennis。「漸漸這樣叫也沒所謂了，外國人都是直接叫名。」Dennis如是說道。
+
+Dennis和中大的緣份始於36年前在中大修讀化學系學士，研究碩士畢業後到牛津攻讀博士及赴美工作。及至1994年，為了報中大老師知遇之恩，他毅然回到母校執起教鞭。轉眼在中大工作26年，Dennis當過理學院副院長、大學輔導長，現在為中大副校長及宿舍舍監，主力處理學生及校友事務。
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/吳基培-大學線-中文大學-20200313143011_23da_large.png" alt="">
+<figcaption>1988年，Dennis以一級榮譽的成續在中大化學系畢業。受訪者提供</figcaption>
+</figure>
+
+一路走來，Dennis曾處理不少具爭議性事件。2017年中大文化廣場出現港獨橫額，校方促學生會除下，惟學生會拒絕要求，指校方干涉學生會自主範圍、削弱言論及學術自由，引起爭議，過程中Dennis更被學生圍堵數小時。被圍堵固然不好受，但他堅信和同學坦誠溝通的重要，除了與學生代表開會，Dennis私下亦會以私人電話與學生聯絡，甚至會談到凌晨一點。
+
+### 反修例運動分歧大　協調成挑戰
+
+Dennis直言，去年起持續的反修例運動最具挑戰，承認自己壓力不少，11月的情緒起伏特別大，有時看新聞會因一下子接收太多資訊，擔心學生的安危而失眠。
+
+去年11月11日民間發起「全港三罷」，由於中大位於吐露港公路要衝，手扼新界北部及九龍市區的咽喉，有示威者在中大二號橋往吐露港公路擲物，藉此堵路，切斷東鐵線及公路交通，配合罷工行動。防暴警駐守二橋防止示威者走近，更向校園內發射子彈和催淚彈，發生激烈衝突。Dennis形容：
+
+> **「整件事突如其來……別說我當了十年輔導長，（中大）開校以來也沒有經歷過這樣的情況」。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/大學線-中文大學-吳基培-20200314133410_2c6a_large.png" alt="">
+<figcaption>中大二橋衝突期間，Dennis一直留在現場，不時打電話跟警方指揮官協調，望阻衝突發生。 中大校園電台傅恩濤攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/中文大學-吳基培-大學線-20200314133549_2656_large.png" alt="">
+<figcaption>初嚐催淚彈後，有示威者為Dennis戴上「豬嘴」 及眼罩。中大校園電台鄭梓峰攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/大學線-段崇智-吳基培-20200314133523_13f9_large.png" alt="">
+<figcaption>衝突當晚，Dennis陪同校長段崇智到二橋與示威者對話。中大校園電台歐嘉鴻攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/段崇智-吳基培-大學線-20200314133446_4e26_large.png" alt="">
+<figcaption>與示威者對話後，段崇智決定到警署協助被捕學生，而Dennis則留在中大調停。中大校園電台歐嘉鴻攝</figcaption>
+</figure>
+
+當天早上他一直看着直播，一邊打電話給學生和同事了解實況，一邊向管理層報告，最後更決定到現場調停，不斷在前線和後援中游走。當時他只希望可透過溝通控制場面，減少同學的被捕及受傷機會。
+
+回憶第一次吸入催淚氣體，Dennis指即使現場烽煙四起，也沒想過馬上離開，強調自己當日只想減少正面衝突和傷亡。他表示不害怕，但當天同在現場的中大學生會副會長葉子萱則認為Dennis面對很大壓力。
+
+葉子萱和Dennis相識近一年，主要因學生會工作接觸，形容他「平常西裝骨骨，說話『有紋有路』，會和你分析很多事情」，在衝突期間，例如在警方試圖進入校園，以及於撤退時同步放催淚彈時，經常聽到Dennis一句「咁搞唔掂喎（處理不到）」。她感受到Dennis緊張，亦發送短訊關心，收到回覆：「沒甚麼，我一會兒打算再下去（現場）」，令她深受感動，「感覺到他將這件事放在第一位」。
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/中文大學-吳基培-大學線-20200313143234_2553_large.png" alt="">
+<figcaption>葉子萱形容，Dennis是個「親民貼地」的副校。姚穎彤攝</figcaption>
+</figure>
+
+### 修復人心路遠　多代入角色
+
+中大衝突持續五天，由示威者撤離中大暫告一段落，惟衝突中部分校園設施及校巴遭破壞、警方在校園施放逾二千枚催淚彈、同學擔心校園環境受污染等，修復校園是個重大挑戰。Dennis認為校園硬件損耗不大，但更困難的是修復人心，「因這不是買一部新車便能解決（的事）」。
+
+他明白中大師生都感到無力，加上二橋衝突的衝擊，種種壓力影響同學的心理健康。去年校長段崇智與學生見面後成立迅速應變專責工作組，當中學生支援及心理健康分組由Dennis作召集人，望透過舉辦多元活動，助同學忘記過去悲痛，放眼將來。惟受新型冠狀病毒疫情影響，中大開學僅三星期已停課，原訂活動或要改用其他形式，如在網絡舉行。Dennis坦言，停課更添推行活動的難度，但中大現時仍會維持電話輔導服務，照顧有需要的學生。
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/大學線-中文大學-吳基培-20200313143101_2701_large.png" alt="">
+<figcaption>Dennis堅持與學生坦誠溝通，「很多時候你多說幾遍，很神奇的，學生亦會慢慢去理解你的難處。」陳展熙攝</figcaption>
+</figure>
+
+除修復心理狀態，人與人關係更要修補。黃藍之分，是整場運動最顯然易見的立場分歧，學生、教職員、校友等各持己見，校方頓成當中的調解員。身為副校，Dennis既要處理學生訴求，又要面對有校友質疑校方的處理手法，需向不同持分者解釋；處於兩極之間，他感慨地說：「（我）怎樣做都會被罵」，唯有凡事多代入不同角色分析，盡力平衡雙方意見。
+
+### 因疫情再度停課　逼於無奈
+
+除了去年起的反修例運動，新型冠狀病毒疫情持續，令中大開學三星期便宣告停課。Dennis指疫情變化大，校方自農曆新年前已不斷開會應對，如處理教職員延遲上班、停課後改以網上教學復課等，慨嘆說：「以為（新學期復課）可重新起步，平靜下來……後來停課是逼於無奈。」他續指，明白有同學更想親身上課，部分應用科目或未必能以網上教學取替，但考慮到疫情未知何時減退及同學安全，若不想學期繼續停頓，以網上教學復課是「沒辦法中的辦法」。但他指怎樣令師生熟習新教學模式，同時間讓大量學生使用同一平台上課的流量問題仍是挑戰。
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/中文大學-搓手液-吳基培-20200313143141_2320_large.png" alt="">
+<figcaption>為應對疫情，Dennis聯同中大化學系及大 學安全事務處職員製作酒精搓手液，優先分發給長者及失明人士。受訪者提供</figcaption>
+</figure>
+
+面對疫情，校園防疫物資短缺。新年假期結束之際，他留意到內地生和國際生陸續回校，惟宿舍內的酒精搓手液和口罩不足。防疫用品供應緊張，校方未能在市面採購，Dennis想到按世衛指引，用實驗室原材料自製搓手液，並拍短片分享。他笑言原意是「自己做頂住先」，後來看到網上呼籲跟身邊人分享口罩的帖文後深受感動，覺得「不可以只是我們有（搓手液用）」，決定將部分捐去其他機構。
+
+中大團隊第一批共製作逾200公升酒精搓手液，一半供應給中大書院、研究生宿舍及前線工作人員，如清潔工友和物流署員工，一半則分予校外機構，如安老院。Dennis指，希望可藉此傳達關懷分享的訊息，幫助有需要的人。
+
+  
+   
+ 為推廣「分享」意念，Dennis及團隊後來更把製作搓手液的過程拍成短片，上載至社交平台，吸引逾12,000人讚好。香港中文大學 facebook
+
+
+{{< video src="https://web.archive.org/web/20210921021127if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FCUHKofficial%2Fvideos%2F2533041490348226%2F&show_text=0&width=560" >}}
+
+
+### 盼成同行者　偶有退意難取捨
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/吳基培-中文大學-大學線-20200313143158_1348_large.png" alt="">
+<figcaption>Dennis希望，自己跟學生可成為「像朋友一般的同行者」。陳展熙攝</figcaption>
+</figure>
+
+Dennis身為副校長，完全沒有架子，和學生儼如朋友，他希望成為同學的「同行者」，以自身分享提點同學，助他們摸索人生方向。那以十分為滿分，他又給自己過去大半年的工作多少分呢？Dennis笑言：「你沒辦法取悅所有人，所以十分一定拿不到」，但指若以五分為合格線，估計自己應該有多於合格的分數。
+
+然而，學生會副會長葉子萱卻毫不猶疑地給Dennis15分，遠超滿分的十分。葉指，他第一次與學生會開會後，已經記得所有幹事的名字，更經常邀請幹事面對面交流。對比其他校方管理層開了數次會都記不住幹事的名字，Dennis讓她感受到他真心重視學生。加上中大衝突期間，Dennis曾親自到幹事會會室與各學生代表相討對策至凌晨二時，反映他願意放下身段，與同學一起解決當前困局，並非「離地」的管理層。
+
+事實上，Dennis仍為中大化學系教授，無奈當上輔導長及副校長後花了不少時間處理學生事務，耽誤其化學研究的進度。他坦承自己不時因壓力大而考慮退下來，重投研究；惟每次能幫助同學，得到他們的關心和支持，又因不捨而放棄退意：
+
+> **「那個狀態是在『做、不做、做、不做』間不斷轉……要付出很大代價去做，所以……」，Dennis嘆了口氣道：「唉，再努力想吧。」**
+
+
+<figure>
+<img src="https://web.archive.org/web/20210921021127im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/大學線-吳基培-中文大學-20200313142956_4559_large.png" alt="">
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921021127/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 大學線](https://web.archive.org/web/20210921021127im_/https://hkcnews.com/uploads/avatars/2b7a71c1-96fc-4782-a5b3-79db2f7a1cf4.jpg?1267356152)
+
+**博客 | 大學線**
+
+《大學線月刊》是香港中文大學新聞與傳播學院出版的中文學生實習刊物，內容以時事及校園生活為主。自1995年11月創刊，至今超過20年，除暑假外每月出版一次，由十一月至翌年五月兩學期共出版4-6期。本刊由本院不同級別的同學負責組織﹑策劃﹑執行和出版。除了網上版（http://ubeat.com.cuhk.edu.hk/），印刷版會放在各大學校園免費供師生取閱，同時也郵寄給各大學的主要教職員、全港中學校長、中學圖書館、公立圖書館、政府部門、新聞傳播機構及社會領袖等，並歡迎各界人士訂閱，請聯絡：[email protected]。

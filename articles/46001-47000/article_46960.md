@@ -1,0 +1,40 @@
+---
+title: "毅行者不獲豁免限聚　連續三年停辦　改以新模式舉辦"
+date: "2021-10-27"
+last_updated: "2021-10-28 05:12:35"
+author: "記者伍銘熙"
+category: "眾聞"
+tags:
+  - "毅行者"
+  - "樂施會"
+  - "限聚令"
+url: "https://web.archive.org/web/20211205085013/https://hkcnews.com/article/46960/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46960/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46960/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46960/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 毅行者不獲豁免限聚　連續三年停辦　改以新模式舉辦
+
+已停辦兩年的樂施毅行者，今年不獲政府批出「豁免群組聚集」申請，故連續三年停辦。樂施會今日在其Facebook專頁發帖文表示，對申請被拒感極為失望和無奈，將改以全新模式舉辦，指「希望參加者繼續抱持毅行的初心，以另一種形式在麥理浩徑上再次相見」。
+
+樂施會指，知悉近期部分並無提供飲食補給的大型體育活動獲政府豁免，可恢復以慣常的實體模式舉行。上周日（24日）舉行的香港馬拉松，獲批「豁免羣組聚集」申請，有逾1.5萬名跑手出席賽事，途中亦設有補給站向參賽者提供水、香蕉、運動飲品及能量小食；賽事亦於去年因疫情而停辦，今年則由原定年初延至十月才舉行。
+
+民政事務局回覆眾新聞查詢稱，該局並沒有收到有關樂施會就毅行者活動的後備方案資料，並解釋在疫情仍然持續期間，政府繼續以嚴謹的態度處理任何「豁免羣組聚集」的申請，並因應每一宗申請的不同情況和防疫措施慎重考慮，以防本地疫情惡化。該局指，由於樂施毅行者活動難以採取有效措施阻隔公眾及參加者互相接觸，存有潛在傳播疫情風險，故通知主辦機構有關活動不獲支持舉行。
+
+<figure>
+<img src="https://web.archive.org/web/20211205085013im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/毅行者-20211027180200_1c07_large.png" alt="">
+<figcaption>「樂施毅行者」原定於11月19至21日舉行實體活動，卻因疫情而取消。（樂施毅行者Facebook圖片）</figcaption>
+</figure>
+
+今屆的「樂施毅行者」主題為「毅行 ‧ 一直都在︰世界在變，依然並肩」，原定於11月19至21日舉行實體活動。樂施會指過去數月，已應當局要求及反饋，更新活動防疫細節，以符合舉辦大型體育活動之要求，包括大幅減少隊伍數目、不建議安排支援隊伍、於檢查站提供更多獨立包裝食品、規定參加者須接種兩劑疫苗及提交活動前48小時陰性檢測報告等，惟一直未收到政府的明確反對通知。
+
+直至活動舉行前三星期，樂施會始接獲政府書面通知，指由於毅行者位處麥理浩徑，難以完全阻隔公眾及參加者互相接觸的機會，加上涉及4,600名參加者及工作人員，連續3日跨區進行，有潛在傳播疫情風險，因此拒批「豁免羣組聚集」申請。樂施會對決定感極為失望和無奈，並指正全力啟動後備方案，暫定於11月22日至12月12日期間，舉辦全新模式的「樂施毅行者」。
+
+「樂施毅行者」已停辦兩年，2019年因反修例運動取消，2020年原本延期至今年1月舉行，惟最終因疫情再度取消。直至今年8月，樂施會宣布復辦毅行者，卻於近日收政府通知而決定再度停辦活動。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205085013/https://hkcnews.com/aboutus/#subscribe)

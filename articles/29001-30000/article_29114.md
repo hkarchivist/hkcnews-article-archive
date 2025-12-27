@@ -1,0 +1,45 @@
+---
+title: "在俄華人回國避疫　中國大使責此舉「令人不齒」　網民轟「問問你的良心吧，大使先生」"
+date: "2020-04-19"
+last_updated: "2020-04-19 12:20:52"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "俄羅斯"
+  - "俄羅斯聯邦"
+  - "中國人"
+  - "武漢肺炎"
+url: "https://web.archive.org/web/20211023232538/https://hkcnews.com/article/29114/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29117/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/29114/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29117/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 在俄華人回國避疫　中國大使責此舉「令人不齒」　網民轟「問問你的良心吧，大使先生」
+
+<figure>
+<img src="https://web.archive.org/web/20211023232538im_/https://hkcnews.com/news_新聞/hk-discuss/2020/04/張漢暉-中國駐俄羅斯大使-20200419120538_fd0d_large.png" alt="">
+<figcaption>中國駐俄羅斯大使張漢暉17日（周五）接受中央電視台訪問。網絡截圖</figcaption>
+</figure>
+
+武漢肺炎疫情近期在俄羅斯迅速擴散，不少在俄羅斯的中國公民，被俄方視為傳染源頭飽遭歧視；當他們要回中國時，中俄邊境已經封關。中國駐俄大使則斥責這些他所稱的「實際上是把病毒帶回國」的公民是「令人不齒」。大使的言論被網民猛轟沒有人性，「自己的國家不讓自己的人民回去，已經夠讓人齒冷的了，最讓人憤怒的是這位大使這段話」；「問問你的良心吧，大使先生」。
+
+中國駐俄羅斯大使張漢暉周五接受中央電視台訪問表示，在疫情完全結束前，中俄之間陸路口岸的旅客檢查功能絕不會再開啟。他說，滯留遠東的中國公民，就在當地接受隔離，同時要安排好自己的生活，準備生活到疫情結束。
+
+他說，此前有個別中國公民透過某種途徑闖關回到國內，實際上是把病毒帶回國，道義上是要受到譴責的。這些人為了逃脫責任，聲稱是「俄羅斯不讓我們待了」、「我們在那就是沒有活路了」、「我們實在是沒有辦法，我們被趕回來了」，他稱這種做法實在「令人不齒」。
+
+張漢暉並斥責這些中國公民「你吃着中俄合作的飯，砸了中俄關係的鍋，這是沒有道德底線的。」他說，中俄是真正的全面戰略合作伙伴，疫情發生以來，真正給中國支持的大國就是俄羅斯。
+
+法國廣播電台報道指，中俄兩國在疫情爆發後，早已中斷空中交通。大批滯留俄羅斯的中國公民，三月下旬起，只得先搭飛機到俄羅斯遠東城巿海參崴，然後轉搭汽車到中國黑龍江的綏芬入境，但中方關閉所有口岸入境，這批人進自己的國進不去，退無退路。有網民說，「國家見死不救，人家自個想辦法回去，還讓你不齒了，問問你的良心吧，大使先生」。
+
+有網民質問張漢暉，「胳膊肘往哪裏拐，人家不要你們的公民，你替人家辯護，還怪中國人砸中俄關係的鍋，俄羅斯是怎麼說的，說說給我們聽。」
+
+筆名「武陵客」的網民，寫了一篇〈中國駐俄羅斯大使的『帶病闖關』論，擊穿了人性底線〉文章，質問「一個正常人，面對俄羅斯暴發的疫情，想要逃離俄羅斯回到祖國的心情和行動都是可以理解的。而作為對本國公民負責任的大國和強國，本不應將他們拒之於國門之外。疫情暴發之初，歐美等國都是第一時間撤僑。我們不撤僑就算了，還要將他們污名化，到底是什麼騷操作？《戰狼》里可不是這麼演的。」
+
+文章並說，「中國駐俄大使不應發出這樣的言論，對本國公民還有沒有一點同情心？張大使眼中，只有中俄關係，而沒有本國公民，擊穿了國家與人性底線」，「另外試問張大使，滯留遠東的公民如何就地抗疫？如若已經染疫怎麼辦？又如何安排好自己的生活？其中艱難，大使可有設身處地想過？不要告訴我你們的幫助就是提供健康包，其他一切靠自己。如果是這樣，那就是把自己的同胞拒之於國門之外，讓他們在遠東自生自滅」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211023232538/https://hkcnews.com/aboutus/#subscribe)

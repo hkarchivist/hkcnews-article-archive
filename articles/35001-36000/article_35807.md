@@ -1,0 +1,105 @@
+---
+title: "略談德國的難民庇護審批過程（二）"
+date: "2020-12-02"
+last_updated: "2020-12-06 03:45:45"
+author: "石賈墨"
+category: "眾說"
+tags:
+  - "政治難民"
+  - "BAMF"
+  - "德國庇護"
+url: "https://web.archive.org/web/20210724193911/https://www.hkcnews.com/article/35807/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bamf-36085/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35807/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bamf-36085/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 略談德國的難民庇護審批過程（二）
+
+[略談德國的難民庇護審批過程（一）](https://web.archive.org/web/20210724193911/https://bit.ly/30ZGKZO)
+
+### 香港政治沉淪，令人痛心疾首
+
+有幸能夠在 [眾新聞撰寫專欄](https://web.archive.org/web/20210724193911/https://bit.ly/2zlX8sP) ，對於我來說真是一個難能可得的機會。除了每個月可以逼令自己稍稍停下來，思考一下自己對香港議題的研判，跟讀者分享自己的看法和感懷，也每每令我感受到香港政治淪亡速度之快，實在超乎想像。
+
+這種感概，雖然在過去的文章已有提及，但每一次落筆之際，無力感總會再次浮現。
+
+從強推國安法，DQ立法會選舉候選人，通緝海外港人，有計劃地令十二港人慘被送中，到現在直接從立法會中清除反對派議員，只是短短幾個月內的事。可能政治上的角力，香港議會戰線到底何去何從，大部分港人都無法左右，而身在海外的港人，自然就感到更加無助。
+
+可幸執筆之時，加拿大已推出「救生艇計劃」，放寬港人入境和申請移民的限制，其他西方國家亦已經陸續推出相關的政策。而第一個因為反送中運動而流亡德國的香港人（接受媒體訪問時化名Elaine），也終於完成了審批，成為德國聯邦移民及難民局（Bundesamt für Migration und Flüchtlinge，後簡稱爲BAMF）承認的政治難民。
+
+相關新聞： [【德國庇護】22歲涉暴動中大女生寄語港人：為最壞的打算，作最好的準備](https://web.archive.org/web/20210724193911/https://bit.ly/34g6Mdu)
+
+<figure>
+<img src="https://web.archive.org/web/20210724193911im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/國際救生艇-中大女生-德國庇護-20201021023027_7859_large.jpg" alt="">
+<figcaption>經歷11個月的難民營生活，中大女生Elaine於今年10月終於獲得德國庇護通知書。照片由Elaine提供</figcaption>
+</figure>
+
+以香港政治惡化的速度為基礎作預測，不幸要流亡的港人，估計亦只會有多無少。德國雖然暫時只有零星港人尋求庇護的個案，但難保一年半載之後，情況不會改變。如果可以讓更多讀者瞭解德國的難民政策，相信也不會是壞事。
+
+### 德國審批庇護個案的法律框架
+
+上一次， 我為大家介紹了申請德國庇護的流程和在申請程序中的一些限制。這一次我希望跟讀者分析一下德國相關機構審批申請時，背後的法律框架。
+
+**注意：本人並非合資格的法律人士，任何本文引述的資料，只供參考，可能存在錯誤，請勿將本文當作專業法律諮詢！**
+
+如果一個外國人在德國本土提出了庇護請求，BAMF便會進行一套既定的程序，去判定到底申請者應否獲得難民（Flüchtling）的身份和相關的保護形式（Schutzform）。而如果申請成功的話，法理上的根據，必定符合以下四個由法律所制定的框架之內。
+
+**第一個保護形式：認可庇護權利（Annerkennung der Asylberechtigung）**
+
+德國的基本法是這個國家最強力的法典。參考德國基本法（Grundgesetz）第十六條，第一點就已經開宗明義寫明：受政治迫害者享有受庇護的權利。(Politisch Verfolgte genießen Asylrecht.)
+
+一個民主國家的憲法或基本法，既然是由民選代表所修訂，多數只會為自己國家的國民而寫。所以這一條法例，是德國基本法入面唯一專為外國人而設的法例（德國人當然不可能在自己國家申請難民庇護）。
+
+其實在二零一五年難民潮爆發之前，德國已經有完整的難民庇護措施，成為不少難民「熱門」的目的地，所以我幾年前聽過香港人分享他見過的好多難民申請案例，初步被BAMF拒絕時，都會嘗試聘請律師提出上訴，到地方行政法院跟BAMF打官司。律師會辯解，指控BAMF無瞭解清楚申請者受到政治逼害的情況，把案件上升到基本法的程度，贏面會有所增加。
+
+所以，這條法例的重點是如何定義「政治迫害」( politische Verfolgung)。翻查BAMF的文件，原來政治逼害，並不一定侷限於「政治」。BAMF的定義是「基於政見，宗教信仰，不可改變的個人特徵，從屬某一社會群組而出現由政權所製造的社會性排斥」，只要「排斥」（Ausgrenzung）的程度會損害申請者的人權和法律權利，就會符合BAMF得到庇護權利的框架。
+
+**第二個保護形式：授予難民保護（Zuerkennung des Flüchtlingsschutzes）**
+
+除了基本法這個相對比較特別的法律框架之外，德國法律體系入面亦有一套完整的難民法(Asylgesetz) ，而該法第三條寫明：「有充分理由地懼怕因自己種族、宗教、國籍、政見或屬於某一社會羣體的身份而受到迫害」時，德國應該授予該外國人難民保護。
+
+不難發現，這一條法律所提供的保障基礎， 跟基本法第十六條十分相似。中大女生Elaine的案例，亦同時符合這兩個法律框架的應用範圍。那麼，兩條條例到底有什麼不同的地方？原來，難民法第三條所提供的保護範圍更加廣泛，如果威脅是來自政權以外的個人或團體的話（例如犯罪集團、跨國的政治組織或其成員），此條文在審批時亦適用。而且條例亦有仔細列明和定義迫害的形式，例如對被迫害人施加的身心暴力；來自行政、立法、執法機關的偏頗性措施；不成比例（unverhältnismä ßig）的判刑等。審批時，重點就會落在申請人所能提供的理據，能否令BAMF認為逼害確實存在。
+
+**第三個保護形式：授予輔助性保護 (Zuerkennung des Subsidiären Schutzes)**
+
+德國的難民法除了第三條有保障難民的條文之外，第四條亦有以人道理由而為外國人提供保護的條款。
+
+如果一個外國人在家鄉無法得到應有的保護，重回家鄉會令該人受到嚴重危害（ernsthafter Schaden）的話，難民法第四條就能夠為此庇護申請者提供輔助性保護（Subsidiärer Schutz）。
+
+BAMF的文件有列舉幾個「嚴重危害」的例子，包括被判處死刑，受酷刑或不人道的處罰，受到由武裝衝突所產生的暴力威脅等。從庇護權利的名稱可以猜測到，在這一個法律框架下，被迫害者「只會」得到人道保護，從國際公約的角度來看，得到輔助性保護，並不等同獲得真正「難民」的身份，所以德國政府不會為得到人道保護的外國人提供很多居留的權利。
+
+**第四個保護形式：確定遣返禁令（Feststellung Abschiebungsverbot）**
+
+如果以上所有的保護形式都不適用的話，並不代表一個外國人尋求庇護的希望便完全破滅。根據德國居留法（Aufenthaltsgesetz）第六十條，仍然有「容忍逗留」（Duldung）一途。針對獲得容忍逗留的外國人，德國的執法機構都不可以執行遣返的措施（Abschiebung sverbot）。
+
+如果遣返會構成對該外國人的生命重大而確實的危險的話（erhebliche konkrete Gefahr für Leib, Leben oder Freiheit），BAMF就會提供容忍逗留的權利。這種保障形式的重點多數放在健康問題上，例如該外國人身患重病，不能承受長時間的飛行，或根據身體情況只能在德國接受治療的話，此條例就適用。
+
+<figure>
+<img src="https://web.archive.org/web/20210724193911im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/德國聯邦移民難民局-BAMF-20201014060525_1119_large.jpg" alt="">
+<figcaption>德國聯邦移民及難民局受到法律規管，無論執政黨的取向如何，都難以動搖它的獨立角色。網絡照片</figcaption>
+</figure>
+
+### 結語
+
+通過這一篇文章，我希望可以以分析性的角度，為讀者介紹德國難民政策的法律框架。光去細讀條文，終究是空談，所以最後我還想跟大家分享一下我自己的感想。
+
+德國的法律架構是由德國人通過民主體制而間接建構的，德國政府的政治目的為何，都難以動搖BAMF和法院的獨立角色。無可否認，德國商界及政界親中傾向明顯，但老是說「德國奶共」，明顯是未能分清「德國政府」、「德國商界」、「德國輿論界」和「 德國人」的身份，為整個國家簡單地扣上帽子，甚至拋出「德國無用」的講法。在世界政局多變，加上美國大選搖擺的大政治氣候下，香港人就更加要理性思考，不要追捧不存在的救世主，也不應批評疑中派和反華派未成主流的國家，胡亂投射自己的情感到其他國家，這不是成熟的國際政治觀的表現。試想想，如果德國整個國家有政治取向，BAMF也要「奶共」的話，當初何不直接拒絕黃台仰和李東昇兩人申請？再加上Elaine的案例，我認為德國的難民保護政策，可以作爲「德國奶共論」 的最佳反證。
+
+另外，當我們理解到這個提供庇護的框架後，再以香港及中共政權對香港抗爭者的迫害行為作出比較，我們可以得出一個結論：濫捕濫告暴動罪，警暴所造成的人道危機，國安法的辛辣條款等等，很多香港人默默承受的政治苦楚，均符合BAMF提供難民保護時的法律根據。
+
+香港，曾幾何時是亞洲最自由，最先進的城市。今天，我們用德國的難民保障框架來看看這個五光十色的大都會。一片表面繁華之下，竟然站着一個又一個的「難民」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724193911/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 石賈墨](https://web.archive.org/web/20210724193911im_/https://www.hkcnews.com/uploads/avatars/27c6dc7c-1643-4eab-980c-080ef380a197.png?2052656323)
+
+**博客 | 石賈墨**
+
+【石賈墨・逸議漫漫】在德港人，居德近十年。遙望香港經歷若水之夏，在德國變成勇武，從工程師搖身一變成為全職德語補習導師。希望有一日可以建立一間黃色補習社，創出「香港人德意志黃色經濟圈」。聯絡作者：【網址】www.stegermatt.de/lebenslauf｜【Facebook】fb.me/Stegermatt

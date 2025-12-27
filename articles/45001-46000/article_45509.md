@@ -1,0 +1,89 @@
+---
+title: "四川瀘縣六級淺層地震　專家疑涉頁岩氣開採"
+date: "2021-09-16"
+last_updated: "2021-09-16 18:33:59"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "頁岩氣"
+  - "瀘縣地震"
+url: "https://web.archive.org/web/20211026233526/https://hkcnews.com/article/45509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45518/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45518/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 四川瀘縣六級淺層地震　專家疑涉頁岩氣開採
+
+<figure>
+<img src="https://web.archive.org/web/20211026233526im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/瀘縣地震-20210916171221_1b25_large.png" alt="">
+<figcaption>救援人員在瓦礫中救出受災村民。</figcaption>
+</figure>
+
+四川瀘縣今日(16日)清晨4時33分發生6.0級地震，震源深度10公里，屬於淺層地震。截至上午11時，地震造成3人死亡，3人重傷，85人輕傷，7.3多萬人緊急轉移疏散。內地地質學家范曉初步判斷，跟頁岩氣開發有很大關係。   
+   
+ **多幢建築物天花板倒塌、牆身現多條裂縫**   
+   
+ 地震發生的一刻，閉路電視拍攝到當地民居的客廳有物件由櫃掉下來，吊燈搖晃，「地震！」有半裸的住戶由睡夢中驚醒大叫通知同住的家人；多幢建築物的天花板掉下來，包括醫院，「福集縣醫院的天花板全部都跌下來，到處全都是。」有當時在醫院的人一邊拍下震後狼藉的畫面一邊描述，片段見到走廊只餘下兩三盞燈亮著，另一端昏暗。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233526im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/瀘縣地震-20210916171204_179c_large.png" alt="">
+<figcaption>地震發生的一刻，閉路電視拍攝到當地民居的客廳有物件由櫃掉下來。</figcaption>
+</figure>
+
+有建築物牆身有多條深而長的裂縫；瀘縣二中亦嚴重受損，外牆剝落、冷氣機搖搖欲墮，學生聯群結隊在危樓逃生；有超市的貨物散落一地；瀘州陳年窖酒業公司酒庫，有170多個瓷罐破裂，200多噸高濃度白酒泄漏，消防到場噴水稀釋，以免發生爆炸。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233526im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/瀘縣地震-20210916171236_2d98_large.png" alt="">
+<figcaption>瀘縣二中亦嚴重受損，外牆剝落、冷氣機搖搖欲墜。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211026233526im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/瀘縣地震-20210916171150_2c42_large.jpg" alt="">
+<figcaption>學生聯群結隊在危樓逃生。</figcaption>
+</figure>
+
+**村民走避不及被倒冧圍牆砸死**
+
+重災區之一福集鎮草壩村，村民代志友清晨煮早餐時被磚頭砸中頭部死亡，「砸到腦袋，腰也砸斷了，那麼大一塊石頭，他走到這裡(圍牆)就倒下來了，他要是靠這邊近一點都沒事。」他的妻子曾祥聰講述。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233526im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/瀘縣地震-20210916172017_2dfa_large.png" alt="">
+<figcaption>曾祥聰向記者講述丈夫遇難經過。</figcaption>
+</figure>
+
+同村的村民向記者展示家中剝落的水泥，不少民居的牆身都出現裂縫，「搖了三下，搖得好兇，搖了三下我醒了。」救援人員救出多名長者。
+
+成都及重慶等地都有震感，而在四川南充，有居民在地震發生前收到警報。四川地震台高級工程師張致偉指這次6.0級地震和13年前的汶川大地震關聯不大：
+
+> (汶川地震發生在)龍門山斷裂帶，其實它兩個構造背景是不一樣的，這個是屬於四川盆地內部的華鎣山斷裂帶，它兩個斷裂帶是有區別的，它們之間因為距離比較遠，屬於不同的構造，所以關聯性不是太大。
+
+
+而四川省地震局副局長杜斌相信，災區近期發生更大地震的可能性不大，「餘震仍將持續一段時間，搶險過程中應注意後續餘震的防範工作，震中附近地區抗震設防烈度為6至7度，後續地震造成建築物嚴重破壞的可能性不大。」
+
+**中大團隊證頁岩氣開採誘發前年地震**
+
+四川自貢市榮縣於2019年2月末，兩日內接連發生3次4級以上地震，造成最少兩人死亡。當地民眾歸咎2012年起，當地開採頁岩氣活動急劇增加所致，繼而 [上街示威](https://web.archive.org/web/20211026233526/https://www.rfa.org/cantonese/news/quake-02252019090853.html) ，並與警方發生衝突。當地政府為平息民憤，宣布停止開採。
+
+中大研究團隊上年發表 [報告](https://web.archive.org/web/20211026233526/https://www.iso.cuhk.edu.hk/chinese/publications/CUHKUPDates/article.aspx?articleid=3736) ，證實頁岩氣開採活動會誘發地震，指當日在榮縣震央附近發生兩次深度約為2.7公里前震，與當地正進行的壓裂活動深度吻合。
+
+**地質學家：政府沒有正視兩者關係**
+
+今次發生6級地震的瀘州瀘縣，同樣是頁岩氣高強度開採區域，會否因此導致地震？
+
+內地地質學家范曉初步評估指有關係，因地震位處四川盆地、華鎣山斷裂帶區域，而瀘縣的頁岩氣開發活動，鑽井深度達4千米，「這次6級地震和它那個瀘縣境内，頁岩氣開發在時間上有關係、空間上有關聯，初步判斷跟頁岩氣開發有很大關係」。但要下確切結論，他認為還需要做更多的數據分析和研究。
+
+頁岩氣的原理是通過鑽井，將水、沙、化學藥劑混合後，高壓注入到頁岩層，促使頁岩碎裂，把其中的天然氣釋放出來，整個開採過程會影響地下斷層活動。
+
+范曉前年發布過相關文章，分析四川盆地地震與頁岩氣開採的關係，但不久就被微信刪文。
+
+「(政府)不會說這個地震和頁岩氣有關，可能也擔心這樣說的話，會影響頁岩氣開發的情況。就是沒有正視，只當作天然地震。如果你正視這個問題，事先在頁岩氣開發區域進行防範，應該是可以減少這些方面的損失。」
+
+他認為政府應該正視頁岩氣開採對環境的影響及安全風險，並作政策上的調整。他預計瀘縣未來會繼續出現頻繁地震。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026233526/https://hkcnews.com/aboutus/#subscribe)

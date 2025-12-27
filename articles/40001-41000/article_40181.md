@@ -1,0 +1,43 @@
+---
+title: "In生意佬we trust"
+date: "2021-04-11"
+last_updated: "2021-04-11 21:58:14"
+author: "張潤衡"
+category: "眾說"
+tags:
+  - "李嘉誠"
+  - "李嘉誠基金會"
+url: "https://web.archive.org/web/20210921013115/https://hkcnews.com/article/40181/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40185/in%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwe-trust-"
+original_url: "https://hkcnews.com/article/40181/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40185/in%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwe-trust-"
+---
+
+# In生意佬we trust
+
+國安法生效後、中學通識科被胡亂大執、立法會被肢解、港台被整頓、香港法庭只能夠按政府指示裁決、演藝人要先擦鞋才有工開，這個香港還有吸引力？我覺得撐警和「反黑暴」的生意人施永青先生能夠以行動跟大家坦白，他的公司中原移民顧問（香港），致力協助客戶辦理英國、塞浦路斯、西班牙、台灣、希臘和美國等地移民申請。為顧客度身籌劃最周全的移民計劃⋯⋯
+
+<figure>
+<img src="https://web.archive.org/web/20210921013115im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/李嘉誠-李嘉誠基金會-20200917225737_1d86_large.jpg" alt="">
+<figcaption>照片來源：李嘉誠基金會</figcaption>
+</figure>
+
+筆者終於醒覺，要看未來走勢，指標人物一定是誠哥！近年，誠哥於英國的投資舉動非常活躍，有朋友告訴我，最近長實擬向李嘉誠基金會購入的英國基建資產性質上與Western Power Distribution相同，同為於英國提供公用服務的受規管資產。若同樣以1.73倍監管資產價值（RAV）計算，該三項長實擬向李嘉誠基金會購買之英國基建資產將相等於港幣250億元。是次長實低於「市價」（港幣170億元）收購三項同類英國受規管公用業務兼一項荷蘭基建，實為超值。
+
+In誠哥we trust！雖然誠哥好像已經退休，但你真的相信佢真係退了休？他的光環再次提醒我們，他的信心在那裏！看來我們也該真的覺醒，相信誠哥，把我們的人生投資在有「希望」的地方！
+
+其實，筆者真的不知道政府是無知，還是真的有心為香港倒米！在網上傳出的教育局情意及社交表現評估套件裡提到：公民應當為國家獻出生命；即使人民認為國家所做的不對，他們也應該支持國家⋯⋯一想到兒子要被迫接受這種教育時，筆者的第一反應是：「獻你老X！」果然生意佬的動作最可信賴！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921013115/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 張潤衡](https://web.archive.org/web/20210921013115im_/https://hkcnews.com/uploads/avatars/8c6e81a2-0b40-4e61-9aff-723f0ddd611f.png?1293476314)
+
+**博客 | 張潤衡**
+
+【張潤衡 · 彥雨字柔】我是社工、心理治療師、生命教育及家長教育工作者及作家、香港電台節目主持人，大學主修心理學，獲教育及社工雙碩士，及NLP高級導師、危機干預導師及催眠治療師資格。在不同報章雜誌裏寫了十幾年專欄，不寫不安樂，所以堅持在任何環境下都要繼續寫下去。

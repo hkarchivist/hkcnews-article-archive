@@ -1,0 +1,72 @@
+---
+title: "「安心」煲起訂閱又如何？"
+date: "2019-04-17"
+last_updated: "2019-04-18 23:43:03"
+author: "Ken Cheung"
+category: "眾說"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "訂閱制"
+  - "安心偷食"
+url: "https://web.archive.org/web/20221002131829/https://hkcnews.com/article/19924/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19968/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/19924/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19968/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「安心」煲起訂閱又如何？
+
+《蘋果日報》網站自4月1日推出訂閱制，讀者必須註冊成會員或以社交帳號登入，才可瀏覽內容。不少網民聲稱會守身如玉，絕對不會按下訂閱掣，結果不少人於2019年4月16日因為一條短片失守了，就是《蘋果》網站宣稱訂閱後的15天。
+
+<figure>
+<img src="https://web.archive.org/web/20221002131829im_/https://hkcnews.com/news_新聞/hk-discuss/2019/04/appledaily-安心偷食-20190417235227_2a98_large.jpg" alt="">
+<figcaption>《蘋果日報》網站設置內容登入屏蔽頁面，但為免影響收入，由廣告網絡提供以千次曝光及逐次點擊計算盈利的橫幅廣告位，則沒有被蔽屏。（《蘋果日報》網站截圖）</figcaption>
+</figure>
+
+**安心偷食爆起200萬訂閱戶**   
+
+
+這條短片，不是公職人員瀆職，不是槍戰，也不是有半價放題，而是藝人許志安及黃心穎涉嫌在的士徹夜纏綿之短片。話題爆發點太多：許志安被指算是好男人但出軌、其妻鄭秀文是虔誠教徒並即將舉行演唱會、偷食對象是黃心穎而其男友是極具觀眾緣的馬國明、黃心穎又被指貌似蔡一智、不少傳言繪影繪聲說的士司機是如何將片段交予傳媒等等。這幾點隨意交替伸長縮短已有幾條點擊數十萬的即時新聞了。《蘋果》更聲稱經此一役，會員已暴增至200萬人。但這類新聞並非長做長有，收了會員又如何令他們持續瀏覽又產生利潤呢？
+
+**訂閱制並非新事**
+
+其實訂閱制並非新鮮事，早於十多年前，香港自有互聯網開始，傳媒的影響力已大不如前。紙媒面對互聯網這個洪水猛獸，曾只把報章幾則報道的簡單版放上網，欲窺全豹就必須掏腰包購買報紙。及後又推出網上訂閱，要看深度內容就要付款。所謂深度內容，一般就是報紙即日鮮不會再跟進的新聞背後故事，例如雜誌的內容，畢竟十數元或多達二十元一冊賣紙，要免費放上網要很大的勇氣。加上以前網頁技術未發達，不少人共用帳號及密碼，導致訂閱增長數字不似預期。
+
+**多了廣告位　點擊收益沒水漲船高**
+
+社交媒體越來越強，傳媒的影響力大減，約幾年前有傳媒把心一橫將所有內容放上網。邏輯是以為內容越多就能製造更多廣告位，圖以增加收入，結果不少傳媒都有跟風。可惜社交媒體發展更快，容許品牌建立專頁，並提供廣告產品讓品牌增加粉絲及互動，可針對興趣找尋目標顧客，低至數十元都可以投放廣告，似乎比起數萬或數十萬元起錶的CPM投放更有跡可尋，令品牌將廣告預算轉而放到社交媒體上。而傳媒大幅增加的廣告位，點擊收益沒有水漲船高。有些傳媒盈利大不如前，例如《蘋果日報》又走回舊路，嘗試走回訂閱制。究竟香港人會否支持？
+
+雖則現在是免費訂閱，如讀者是透過社交媒體註冊登入，取得的資料不多，但門檻建立了，日後加設收費關卡作解鎖內容也是指日可待。不過，日後要你課金才可以看到「安心偷食」，你是否也會照樣畀錢？
+
+<figure>
+<img src="https://web.archive.org/web/20221002131829im_/https://hkcnews.com/news_新聞/hk-discuss/2019/04/品牌-宣傳-社交媒體-20190417235540_1e8d_large.jpg" alt="">
+<figcaption>不少品牌自行透過建立社交專頁做宣傳。（圖片由筆者提供）</figcaption>
+</figure>
+
+**一旦免費　永遠只能免費**
+
+尤記得早年團購方興未艾，惟一旦貴公司的產品曾於團購網以低價優惠出現，你想顧客於推廣過後願以原價購買你的產品，簡直是難過登天。網民會守株待兔，睇死你會再推出團購優惠。直至團購優惠質素越見低劣，泡沬爆破，團購式消費這種低質交易才得以壽終正寢。由此推論，一旦傳媒的內容曾免費放上網，你想網民訂閱後持續課金看內容，我想也不是易事。
+
+**網媒可開拓新產品**
+
+參照其他現有傳媒及網媒，新傳媒或PressLogic一類內容網站，現主力靠替廣告商轉載廣告內容到其社交網站為生，收入相信相對較穩定。01一系列的網站無可否認有極強的曝光，但以我之見付費內容質素比較欠佳而客戶好像不多，似乎志不在此，其公司主要目的應該仍在爭取內容在搜尋器上有更高排名。眾新聞或852郵報則靠訂閱費及Google廣告位維持經營，品牌合作以我所見比較少，但所謂訂閱費其實說成是贊助費更恰當，因為沒有架起門檻封鎖內容。傳媒可能要開拓新產品，也不一定要產生內容，才可另謀出路，諸如為企業進行大數據內容分析、資料搜集甚至是專案調查，也算是一門傳媒較公關公司更有優勢的生意。
+
+<figure>
+<img src="https://web.archive.org/web/20221002131829im_/https://hkcnews.com/news_新聞/hk-discuss/2019/04/Marketing%20Magazine-品牌-20190417235516_ec2b_large.jpg" alt="">
+<figcaption>Marketing Magazine月刊及每日快訊均是免費，惟各個大小獎項的頒獎禮的參賽費及入圍枱費，相信是該傳媒的收入主要來源。（Marketing Magazine圖片）</figcaption>
+</figure>
+
+**紙媒可搞線下活動增收入**
+
+紙媒及其網站仍較網媒有更高的公信力，紙媒不知可否利用這僅餘的公信力轉化為產品，以增加收入？品牌付費廣告短片及雜誌當然長做長有，還有電器試用會、產品巡禮，曝光套餐可一稿三投於報章、網站及社交專頁刊出。又或製作付費式的廣告頒獎典禮，品牌或廣告公司但凡入獎或入圍買枱，一般都是乖乖付款如儀。如此一來，普羅大眾免卻登入之苦，又可透過這些付費推廣活動增加內容及收入。
+
+---
+
+![博客 | Ken Cheung](https://web.archive.org/web/20221002131829im_/https://hkcnews.com/uploads/avatars/9daed1e6-497c-4809-8131-025e69378478.png?611851679)
+
+**博客 | Ken Cheung**
+
+【Ken Cheung・數碼廣告力場】筆者是資深社交媒體及數碼營銷專家。多年來曾為50多個品牌及企業策劃社交媒體及數碼平台策略，歷任多間4As及數碼營銷公司的社交媒體經理及主管，並研發全新大數據技術KREWatch分析、監控及改善數碼營銷流程，廣為各大商場、連鎖銷售、快速消費品客戶所用。筆者現為數碼媒體初創企業Krew Digital的數碼營銷總監。歡迎交流。電郵：[email protected]／網址：https://www.krewdigital.com/

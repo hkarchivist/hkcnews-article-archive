@@ -1,0 +1,63 @@
+---
+title: "在這殘酷的世紀，我歌頌過自由"
+date: "2021-12-23"
+last_updated: "2021-12-23 16:37:10"
+author: "不無"
+category: "眾說"
+tags:
+  - "六四"
+  - "六四事件"
+  - "64 事件"
+  - "天安门事件"
+  - "89事件"
+  - "8964"
+  - "香港大學"
+  - "HKU"
+  - "the university of hong kong"
+  - "Hong Kong University"
+  - "國殤之柱"
+url: "https://web.archive.org/web/20220518030443/https://hkcnews.com/article/49542/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49542/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 在這殘酷的世紀，我歌頌過自由
+
+月兒出走，黑夜肆虐，那坦克駛入大學，一片狼藉。他朝歸來，可要唱著悲歌？還是明月歸來，一切便會安好？
+
+本已暗淡的橙色油彩開始剝落，痛苦猙獰的臉凝視四周。雕塑層層堆疊，頂端的那個人張開口，看著遠處。幾條鋼索從黃克競樓和大學街牽到雕塑；如果你問對面的大樓經歷了什麼，便知道這固定的可笑脆弱。竟曾想永遠站在這裏守護這份遙遠的記憶。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030443im_/https://hkcnews.com/news_新聞/hk-discuss/2017/05/六四28周年-國殤之柱-20170504195105_68c4_large.jpg" alt="">
+</figure>
+
+國士殤魂。他們不屬於香港，總要回到廣場。他們看過坦克槍炮、血肉模糊，他們是要光明正大地看著中國的。用白布遮住他們的視線，便能成嗎？一塊遮天白布遮住了誰的眼睛，一場盛大的魔術表演，是變走了記憶，還是留下一段欲蓋彌彰的歷史？收起高大者的殤魂，便能掩飾自己的矮小？吊臂起舞，順道吊走的豈不太多！
+
+他們仍然張著嘴。白布禁地外，你可聽得他們的吶喊？
+
+猙獰的臉孔畢竟有柔軟的心。柱裏的人兒，當你們組成國殤，你們自己的吶喊竟在何處，最高的那個人，可能告訴我你看到什麼，將要說些什麼？國士身死寒易水，張開的口卻再來不及唱出他們的詩歌——這是那夜凌晨張口無言的猙獰。於是大柱之下人來人往，肅穆依然。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030443im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/港大學生會-國殤之柱-Hong%20Kong%20University-20211019153015_1b2e_large.jpg" alt="">
+</figure>
+
+或者說，國殤正有欲言無言的悲哀。這又恰好是一座欲言無言的城市，我們慢慢習慣將憤怒說成no feeling，我們在不斷擴大的禁地之外徘徊，進退之間欲哭無淚。我們像雕塑裡最高的那個人，欲要言說，卻無能言說。這豈不是另一場悲劇，國殤之柱豈不是將對岸的關懷，一字不差地搬來東方之珠；你凝視最高的人，卻不知最高的人也在用同樣的視線凝視著你。橙色詭異，我們誰又不是披著詭異，同這雕塑共演一齣無言戲。
+
+香港崩壞，於是你同國殤之柱連結，雕塑的內涵更豐富，它寄托著三十年前北方的一場屠殺，更是言說著此時此地的狂悲狂呼。但香港敗壞，大學裏的自由僅餘軀殼，雕塑卻愈沉重，或者當你在國殤之柱發現香港人的臉孔，它的命運便已註定。
+
+國殤之柱渾身悲情，甚至終於被移走，其自身也成為國傷的註腳。 但當時代容不下張嘴的暗喻，它便是在呼喚著發聲的勇氣；當國殤之柱被移去，我便要誦唱它的碑文：為了國家的前途，他們付出了生命，是為國殤。——2021年，將此柱移去，是香港有傷。
+
+劇終，我們仍然披著詭異的沉默，只是那一抹橙色永遠消失，無聲的吶喊消失於公眾視野，重新回歸我們的內心世界。——剩下什麼？這片空地，永遠有橙色的油漆得以拾遺，給人勇氣和希望。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030443im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/天安门事件-HKU-國殤之柱-20211223160945_1048_large.jpg" alt="">
+</figure>
+
+那天，在國殤之柱刻著「六四屠殺」和「老人豈能殺光年輕人」的那面基座上，有人用石子壓住一張紙，紙上寫有普希金的那首詩，旁邊還有一朵白花。另一天，有人在柱子前放了一個金盃，那大概是用紅旗下的中國夢刻成的，卻寫著「國無殤」。是的，五星旗下中國無靈魂，於是那些有靈魂的人便成了國殤，蠟燭便要燃着，白花便要不朽。
+
+---
+
+![博客 | 不無](https://web.archive.org/web/20220518030443im_/https://hkcnews.com/uploads/avatars/5a5f196f-c406-4495-8d66-980547058bda.png?55074706)
+
+**博客 | 不無**
+
+【不無・即使徒勞】大學生，愛讀中史，先是發現歷史改變不了現實的怪誕，然後發現香港的現實或者容不下歷史的全部。即使最後徒勞，也希望永遠不要無動於衷。有力無力，總是有很多大膽的話，希望來得及慢慢說。

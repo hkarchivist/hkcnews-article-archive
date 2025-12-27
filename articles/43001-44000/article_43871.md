@@ -1,0 +1,81 @@
+---
+title: "【擊敗中國對手】台灣羽毛球男雙李洋／王齊麟奪金　隊史首面、台灣東奧第二金入袋"
+date: "2021-07-31"
+last_updated: "2021-07-31 23:31:55"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "羽毛球"
+  - "金牌選手"
+  - "東京奧運"
+url: "https://web.archive.org/web/20210920171814/https://hkcnews.com/article/43871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43878/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43878/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【擊敗中國對手】台灣羽毛球男雙李洋／王齊麟奪金　隊史首面、台灣東奧第二金入袋
+
+台灣羽毛球「黃金男雙」、世界排名第3的李洋／王齊麟，本屆奧運連退世界第1、2及4好手，首次進軍奧運，就直闖金牌戰，今晚（31）對戰中國雙塔劉雨辰／李俊慧，最後以直落二奪下台灣奧運史首面羽毛球金牌。台灣總統蔡英文以「台灣來的聖筊」恭喜兩人；今天金牌戰獲勝，一如李洋賽前所言：「讓全世界看見大家看見我們麟洋奮戰的態度！讓大家看見我們台灣人的精神！」
+
+王齊麟賽後在臉書興奮分享：「請大家告訴我！這是真的嗎？我們麟洋讓世界看見台灣了！我們麟洋真的做到了！！！再次向全世界大聲的自我介紹：我是台灣羽球選手王齊麟。」
+
+賽後接受媒體訪問時，王齊麟說，東京奧運延後一年，對2019年才開始搭檔的兩人幫助很大；李洋則說：「最感謝的就是搭檔，我們彼此鼓勵，一步一步走來」，並稱願意為了比賽作出犧牲和努力，就是想要一圓奧運舞台的夢想。
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/金牌選手-羽毛球-東京奧運-20210731213420_21f7_large.jpg" alt="">
+<figcaption>台灣羽毛球「黃金男雙」李洋／王齊麟首次參加奧運，就勇奪金牌。美聯社</figcaption>
+</figure>
+
+麟洋今天出戰的中國對手李俊慧／劉雨辰，身高分別有195及193公分，被稱為「雙塔組合」；王齊麟賽前在臉書坦言，過去從未交手過，「老天爺真的很照顧我們，就是要一次把沒贏過的、和沒打過的，都在奧運場上讓我們一次打完！」李洋也在臉書稱，「迎戰中國雙塔李俊慧／劉雨辰，我們一定會珍惜這次東京奧運會上最後的一場球，享受在奧運賽場上發揮的機會。」
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/東京奧運-羽毛球-金牌選手-20210731210500_b65c_large.jpg" alt="">
+<figcaption>台灣羽毛球男雙「黃金組合」李洋（前）、王齊麟今晚在金牌戰以直落二擊退中國雙塔組合。美聯社</figcaption>
+</figure>
+
+今天比賽一開始，麟洋一開局雖落後，但一路急起直追，從追平到領先，最後以21比18先馳得點；第二局，麟洋一路維持領先優勢，先拉出一波11比5的勝差；因戰況激烈，王齊麟二度球拍斷線換拍，中國隊也出現關鍵失誤；最後李洋／王齊麟就以21比12拿下隊史首面奧運金牌。
+
+頒獎典禮上，李洋與王齊麟互相掛上金牌，並握手相互祝賀；現場觀戰的台灣隊本部人員也都興奮得記錄下這歷史性的一刻。
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/金牌選手-羽毛球-東京奧運-20210731211715_2761_large.jpg" alt="">
+<figcaption>台灣羽毛球男雙「黃金組合」李洋、王齊麟（右）今晚在金牌戰以直落二擊退中國雙塔組合後，舉出勝利手勢。美聯社</figcaption>
+</figure>
+
+兩人曾在小組賽首場落敗，之後狀況愈打愈好，曾自虧「從地獄爬回來」；兩人賽後經常出現一仰躺、一俯跪的畫面。今晚奪得金牌後， [台灣總統蔡英文也立即在臉書以「台灣來的『聖筊』](https://web.archive.org/web/20210920171814/https://www.facebook.com/tsaiingwen/posts/10157620725161065) ！」稱呼兩人，並恭喜麟洋配拿下台灣第一面羽球金牌！蔡英文剛又發帖稱「剛剛我忍不住打去東京，和『台灣聖筊』 通上電話，我替大家告訴齊麟和李洋⋯⋯今晚，全台灣都在看你們比賽，都為你們瘋狂！」
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/東京奧運-羽毛球-金牌選手-20210731224341_9e2e_large.jpg" alt="">
+<figcaption>為何稱「台灣聖筊」？「擲筊」為台灣求神問卜的儀式之一，通常用木頭或塑膠做成二片半月的形狀，若擲筊結果一正一反，就是「聖筊」，代表將會如願或有吉祥的結果。李洋、王齊麟兩人賽後經常出現一仰躺、一俯跪的畫面，像極「聖筊」。眾新聞製圖</figcaption>
+</figure>
+
+「麟洋配」目前世界排名第3，在分組賽先敗後勝，有如倒吃甘蔗，愈打愈好；先後擊敗世界第1印尼「小黃人組合」、世界第2的地主組合遠藤大由／渡邊勇大；昨天對上兩人偶像、世界前第1、現世界第4的印尼「奶爸組合」（Daddies）阿山／賽提亞旺（Mohammad AHSAN／Hendra SETIAWAN），同樣以直落二比數，順利闖進金牌戰。
+
+麟洋組合氣勢從16強一路延續到金牌戰，終於讓兩人順利奪下生涯首面金牌；這面金牌也是繼女子舉重選手郭婞淳奪下59公斤級金牌後，台灣第二面金牌入袋。
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/東京奧運-羽毛球-金牌選手-20210731210518_2bed_large.jpg" alt="">
+<figcaption>台灣羽毛球男雙「黃金組合」李洋、王齊麟（前）首次參加奧運，就奪下金牌。美聯社</figcaption>
+</figure>
+
+昨天擊敗「偶像」， [王齊麟今在臉書分享心情](https://web.archive.org/web/20210920171814/https://www.facebook.com/ChiLin0118/posts/217125557008093) ，「昨天我們麟洋以21：11/21：10贏了世界排名第二的印尼奶爸組合Mohammad AHSAN/Hendra SETIAWAN，他們是羽壇的傳奇，一直以來都是我們的偶像，也是令我們尊敬的對手，我們贏在我們年輕，只能想辦法用速度和力量來贏得勝利，但在技術上我們還有許多要向他們學習的地方！」
+
+[李洋則發帖稱](https://web.archive.org/web/20210920171814/https://www.facebook.com/leeyang0812/posts/233482258778364) ，「曾經，奧運對我是遙不可及的夢想！能站上這個舞台已經讓我充滿感激，我只想把每場球都盡力打好，不要留下任何遺憾！真的不敢想像今天我們真的要站上決賽場了！」並稱昨天「不朽傳奇」有高超技術，更有謙卑的態度，展現運動雲最佳風範，再次對這對「尊敬的對手」表達心中敬意。
+
+李洋說，「謝謝大家陪著我們走到最後，請大家再次為我們麟洋加油！讓大家看見我們麟洋奮戰的態度！讓大家看見我們台灣人的精神！」
+
+<figure>
+<img src="https://web.archive.org/web/20210920171814im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/劉雨辰／李俊慧-李洋／王齊麟-東京奧運-20210731230813_1e0e_large.jpg" alt="">
+<figcaption>本屆東京奧運，中國隊選手（圖左：劉雨辰／李俊慧）首次與台灣選手一同登上頒獎台。台灣選手李洋／王齊麟在羽毛球男雙奪金，ｃ頒獎時，現場升起「中華奧會」會旗、奏出「國旗歌」旋律。美聯社</figcaption>
+</figure>
+
+台灣羽毛球本屆成績優異，除李洋／王齊麟奪下金牌，「世界球后」戴資穎今晚也以直落二擊敗印度球后辛度，闖進金牌戰，至少還有一面銀牌將落袋；男單選手周天成雖輸給中國選手，但闖進八強，同樣追平上屆里約奧運最佳紀錄。
+
+台灣本屆奧運已進帳2金2銀3銅，獎牌數及總成績都已經超越雅典奧運的2金2銀1銅，成為史上最佳成績。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920171814/https://hkcnews.com/aboutus/#subscribe)

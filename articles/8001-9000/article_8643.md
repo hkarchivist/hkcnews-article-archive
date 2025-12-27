@@ -1,0 +1,70 @@
+---
+title: "分開處理投資需求與居住需要"
+date: "2017-12-04"
+last_updated: "2017-12-04 06:26:59"
+author: "眾城"
+category: "眾說"
+tags:
+  - "樓價"
+  - "樓市"
+  - "香港樓價"
+  - "香港樓市"
+  - "炒樓"
+url: "https://web.archive.org/web/20210925041822/https://www.hkcnews.com/article/8643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8645/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/8643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8645/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 分開處理投資需求與居住需要
+
+【撰文：姚松炎】
+
+有報導指一名從事清潔的母親，為了幫子女買樓，出資500多萬元積蓄代付首期。當然，廿四孝母親令人感動。以今時今日香港樓價已經貴到中產亦無法負擔，若能有父母幫一把，家庭溫暖，令人欣羨。然而，報導指原來該家庭已擁有兩層住宅物業，一伙自住，一伙出租，現再買多一伙給子女結婚之用；如此大富大貴，你可能更恨投錯胎。
+
+<figure>
+<img src="https://web.archive.org/web/20210925041822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/News-樓巿-樓市-20171204042609_1e3f_large.jpg" alt="">
+<figcaption>香港住宅密度冠全球。美聯社</figcaption>
+</figure>
+
+但大家細心想想，如果人人都以投資樓市作為人生目標，視為改善生活的不二法門，一家三口要買三間屋，香港豈不是要提供800萬個住宅單位？！比起現存的200多萬個單位，即是需要再多建500多萬間房屋，比長策會報告的目標多近10倍！這樣的投資需求，並非居住需要，實在永遠無法滿足，根本不可能透過增加土地供應來解決，更加不應以實體居住空間來滿足貪婪的投資需求。如果大家想從樓市賺錢，政府提供一個衍生工具市場給大家炒個夠就是了，不應以破壞大自然，犧牲下一代人福祉的方法來換取這一代人的富貴榮華。其實，父母為了子女的幸福，願意把最好的都給予子女，把畢生積蓄送給子女作首期上車，卻為了炒樓而甘願毀山滅林，破壞環境令子女將來需要面對全球暖化，惡劣天氣的災難，親手送子女上死路，實在矛盾而諷刺！
+
+尤其是現時的過熱樓市，樓價高企主因來自全球濫發銀根，負實質利率令熱錢流入，非本地資金尋找投資獲利機會，令樓市瘋狂。政府以開發珍貴和高生態價值的土地和填海來滿足這些無窮無盡的熱錢，等同抱薪救火，愈救愈死。事實上，在過去6年不停增加供應的情況下，樓價不但沒有下降，反而不斷破頂，客觀事實說明增加土地供應未能有效制止樓價上升。
+
+其實，投資需求既不需要、也不應該以實體供應來滿足，投資市場的衍生工具正正是用來處理投資需求，避免直接影響實體商品的生產供應和使用需求。譬如國際商品期貨、期權市場，包括黃金、石油、棉花等等，衍生工具市場的投資金額經常是實體市場的好幾倍，甚至好幾十倍，譬如Carollo (2012)指出，石油期貨的成交量是實體石油的成交量的27倍，反映衍生工具市場發揮分流投資需求和實體需求的作用。衍生工具市場之所以可以避免影響實體商品市場的供應，在於衍生工具市場的成交是不需要實體商品交收的，這正是期貨(Futures)與遠期合約(Forward Contracts)的分別，期貨市場的成交可以在到期日以價格差異作為賺蝕金額來埋單，而毋須把實體商品運送交收。此外，衍生工具的交易費用比實體商品的交易費用低得多，可免卻因品質差異、價格發現和合約風險而產生的專業費用，因此更能吸引投資者轉向衍生工具市場。政府亦可在實體商品市場加入打擊投機炒賣的罰則，包括徵收全數資產增值稅等，進一步把投資需求和使用需要分開。
+
+關於房屋投資的衍生工具市場，在過去二十年正在慢慢形成，正如經濟學諾貝爾得獎學者Robert Shiller指出，主因是房產學研究在過去20年開發出「重複成交房屋價格指數」(Repeat Sale Indices) **[1]** ，令樓價指數更能反映住宅市場的實況，使投資房屋價格指數期貨的表現與直接投資實貨房屋市場的表現相約。美國芝加哥商品交易市場亦正式在2006年推出Robert Shiller有份參與的美國首隻房價指數期貨 (S&P/Case-Shiller Home Price Indices Futures and Options)，市場參與度不俗，一般認為有效管理房產風險 **[2]** 。
+
+事實上，香港亦緊隨其後，在2007年曾有類似的房價指數期貨買賣，屬場外交易。所依賴的價格指數是我當時也有份參與的「香港大學房地產價格指數」 **[3]** 。2007年2月，亞洲首隻物業衍生產品由荷蘭銀行(ABN AMRO)與新鴻基金融集團攜手推出，以港大房產指數為基準，為發展商提供多一道風險管理平台，後來因為國際金融風暴，房產衍生產品市場亦暫時停止，而且試行一年，並未普及，小投資者也難以參與。政府前首席經濟顧問郭國全在2010年發現樓價又再度飊升，重提引入房地產指數期貨市場 **[4]** ，但並未引起迴響。
+
+<figure>
+<img src="https://web.archive.org/web/20210925041822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/樓巿-納米樓-樓市-20171204042706_17ad_large.jpg" alt="">
+<figcaption>香港樓市熾熱，連納米樓都被炒賣。美聯社資料照片</figcaption>
+</figure>
+
+因為房屋的投資需求沒有其他投資渠道，而熱錢又不停大量流入，負實質利率令資產價格飊升，因而造成今天連機構投資者和大戶都在房產實貨市場直接投資買賣，大財團買豪宅，甚至買地皮；小炒家買資助房屋、納米樓，甚至買劏房、貨櫃屋。人人想買樓發達，磚頭升得快過股票，加按又可套現，套現又可再炒。這些投資需求導致樓宇供應長期不足，林鄭特首亦認為市民普遍喜以買樓作投資，即使購買資助房屋亦以資產增值為目的，所以政府的房屋政策偏向出售資助房屋為主，以「回應」市民的投資需求。
+
+以香港有限的土地供應來滿足全球無窮熱錢的投資需求，再多四個香港都未夠。事實上，最近紐西蘭亦出現樓價難以負擔，而外國資金正是主因之一，紐西蘭政府在上月決定立法禁止外國人買樓，但其實外來資金已經向買地埋手，據報導去年外國投資者購買的紐西蘭土地多達4659平方公里，足足有4個香港的土地面積，按年增加近5倍 **[5]** ，客觀事實說明再多的土地供應也不能滿足外來投資需求。
+
+**參考**   
+
+
+[1] Salvatore Carollo (2012) [Understanding Oil Prices: A Guide to What Drives the Price of Oil in Today's Markets](https://web.archive.org/web/20210925041822/http://as.wiley.com/WileyCDA/WileyTitle/productCd-1119962722.html) , Wiley   
+ [2] Robert Shiller (2008) [Derivatives Markets for Home Prices,](https://web.archive.org/web/20210925041822/http://citeseerx.ist.psu.edu/viewdoc/download?doi=10.1.1.193.8319&rep=rep1&type=pdf) Working Paper #1648, Yale University.   
+ [3] Chau, K.W., Wong, S.K. and Yiu, C.Y. (2005) [Adjusting for Non-linear Age Effect in Repeat Sales Index](https://web.archive.org/web/20210925041822/https://link.springer.com/article/10.1007/s11146-005-1369-6) , Journal of Real Estate Finance and Economics, 37, 137-153.   
+ [4] 信報 (2010) [郭國全：引入房地產指數期貨市場](https://web.archive.org/web/20210925041822/http://www1.hkej.com//dailynews/article/id/509358/%E9%83%AD%E5%9C%8B%E5%85%A8%EF%BC%9A%E5%BC%95%E5%85%A5%E6%88%BF%E5%9C%B0%E7%94%A2%E6%8C%87%E6%95%B8%E6%9C%9F%E8%B2%A8%E5%B8%82%E5%A0%B4) ，4月14日   
+ [5] 鉅亨網新聞 (2017) [紐西蘭禁外國人買二手樓，專家：外資已改買地了](https://web.archive.org/web/20210925041822/https://news.cnyes.com/news/id/3952932) ，11月1日
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925041822/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾城](https://web.archive.org/web/20210925041822im_/https://www.hkcnews.com/uploads/avatars/bdb8244c-6e9a-4e22-b0c4-1ed2e47cb678.png?1223328722)
+
+**博客 | 眾城**
+
+【眾城專欄】城裏城外，眾人之事。我們是來自建築、測量、規劃及園境專業界別的朋友，希望藉此平台分享對我城所思所想，為著香港走向宜居城市尋找路向。

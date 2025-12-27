@@ -1,0 +1,89 @@
+---
+title: "校規崇拜謬誤3原因，與香港人反民主自由的關係"
+date: "2021-06-14"
+last_updated: "2021-06-14 16:41:09"
+author: "胡啟敢"
+category: "眾說"
+tags:
+  - "中學"
+  - "校規"
+url: "https://web.archive.org/web/20210920195005/https://www.hkcnews.com/article/42347/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42349/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42347/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42349/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 校規崇拜謬誤3原因，與香港人反民主自由的關係
+
+<figure>
+<img src="https://web.archive.org/web/20210920195005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/家長-校規-20210614161453_c5f4_large.jpg" alt="">
+</figure>
+
+儘管2019年流水運動啟蒙了不少無知市民對民主的認識，而721警黑勾結向市民施暴更加使部分淺藍變成淺黃，但是香港人的民主水平有沒有提高了？從香港人對校規的迷戀，啟敢不敢樂觀。
+
+### 校規崇拜代表香港人奴性極深
+
+啟敢於藍絲大本營親子王國一個討論帖，見到那些高學識、高收入的網民（有可能是教協會員或泛民中產）對校規獨裁的統治展現出的迷戀和中毒，不禁作嘔——深深覺得柏楊先生和魯迅先生指斥的奴性文化，強權就是公理，於接受西方文化薰陶逾百年的新香港（深圳南）仍然十分盛行，對校規的迷信就是一個例子。就算明日上帝敕令香港有普選，香港的民主仍然是垃圾民主。
+
+事件經過是事主作為家長表示學校校規十分嚴厲，必定要着整齊校服才可以回校，兒子的皮鞋被雨打濕，不聽事主勸告用風筒吹乾皮鞋，改穿拖鞋回校。結果有個玩弄法律的垃圾訓導見到立即有如鯊魚嗅血般，立即給兒子城下之盟的抉擇，一是依校規記一個小過（其實過錯與刑罰不相稱），一是一個月只能赤腳回校。事後奴性深的事主力挺訓導主任，並說該訓導女主任事後十分關心兒子的心理狀況。
+
+<figure>
+<img src="https://web.archive.org/web/20210920195005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/全國中學學生權益研究會-校規-台灣-20210614161353_2440_large.jpg" alt="">
+<figcaption>插圖來源：台灣全國中學學生權益研究會Facebook</figcaption>
+</figure>
+
+### 校規崇拜代表流水運動無法普及自由人權意識
+
+啟敢以為香港經過大型的民主運動，網民應該對於這樣明顯的不公，用惡法來玩弄一個無辜學生，將小小的過失無限上綱重罰，而非彈性處理，應該感到義憤。但是也許香港人的奴性深不可測，竟然有不少垃圾網民、垃圾中產、垃圾家長對這名訓導大加稱讚，並稱法律就是法律，出來社會就一定要服從規矩，現在學校小懲大戒就已經值得慶幸……種種大義凜然，一句話就是叫懂得變通的小朋友下跪做奴才，對校規三呼萬歲。
+
+以上親子王國網民種種的垃圾言論，證明他們的水平遠遠不及西方人，習近平聖上的中華復興夢可以完蛋。就簡單的政治學ABC來討論，根本這些無謂校規是名不正、言不順。
+
+### 校規崇拜的謬誤：柏林的消極自由
+
+首先，根據哲學家柏林的理論，若果政府要訂立法律限制一個人的自由或行為，原因就是因為這個人的行徑侵害了其他人的自由和權利，對其他人造成侵害。若非如此，政府任意訂立局限民眾自由的法例可謂暴政。請問一個學生因為皮鞋濕了，選擇穿拖鞋回校，有侵害了其他人的人權和自由嗎？是殺人放火、姦淫擄掠嗎？若果沒有，這些校規有甚麼用？純粹滿足訓導用校規凌辱學生的管治慾吧？
+
+<figure>
+<img src="https://web.archive.org/web/20210920195005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/校規-日本-20210614161409_8e19_large.jpg" alt="">
+<figcaption>網絡照片</figcaption>
+</figure>
+
+### 校規崇拜的謬誤：學校不是軍隊
+
+若果說因為要訓練學生適應社會的衣著或者群體生活，就犯了滑坡謬誤。首先，學校不是軍隊，軍隊因為要上戰場廝殺，需要高度的紀律和統一協作，因此規矩才要嚴格。但是學生不用上戰場，要用校規局限學生的頭髮長度、衣著根本是石中榨血、吹毛求疵、嚴重苛刻。至於說要訓練學生適應社會的衣著更加可笑，社會的潮流說變就變，學校的校規根本跟不上變化，這不是脫褲子放屁，多此一舉嗎？而且這個社會是多元社會，人人都有權選擇自己的衣著，為甚麼學校就有特權用校規對學生的衣著指指點點，一有違反就像上文的垃圾訓導乘機對學生百般羞辱？
+
+題外話，香港是一個雨季城市，弄濕一、兩對鞋而需要替換是正常之事，為甚麼成人或老師反而有特權可以隨意替換乾淨的鞋子上學上班，學生因為特殊原因選擇其他鞋上學就被指斥違反校規，要被奴才網民侮辱？這難道不是反映學校的施政僵化，需要檢討；反而責怪學生？這和回教國家一有強姦案就不分青紅皂白，譴責女受害者有分別嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20210920195005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/校規-台灣-20210614162718_16ce_large.jpg" alt="">
+<figcaption>台灣《蘋果日報》資料照片</figcaption>
+</figure>
+
+### 校規崇拜的謬誤：社會契約論
+
+加上，法律要有道德權威，根據社會契約論，是需要由人民經過制憲大會，或者民意機關立法才可以令人信服，但是香港全部學校的校規都是閉門造車、黑箱作業，訂立之時全走獨裁程序，沒有經過學生的討論和同意。請問這樣的校規有道德權威嗎？就是因為這些校規全部沒有民主基礎，有些學生組織於日本、台灣對此進行司法覆核，結果大量學校敗訴，法庭頒令需廢除侵害學生人權的校規，如髮禁和服禁。相反香港人見到校規，不管內容是白飯還是糞便，都甘之如飴地接受，這不是奴性所然，沒有國際觀嗎？
+
+最垃圾的就是那個訓導，所謂的選擇，根本就是羞辱學生，就像於大便味咖哩和咖哩味大便中二選其一。若果學生選擇一個月赤腳，你這個訓導真的會容許嗎？根本就是一些恃著自己有權就用盡的卑鄙小人，可謂教畜。
+
+不過，最讓啟敢最失望的，就是教協。教協半個世紀以來都提倡民主自由，但是他們的會員於學校用獨裁專制的校規將學生洗腦成擁護無理法律的奴才（有些變成了藍絲），卻不發一言，視若無睹。民主自由於香港有這樣多人反對，恐怕和中學的校規洗腦不無關係。
+
+**聯絡作者：**
+
+[Facebook專頁](https://web.archive.org/web/20210920195005/https://www.facebook.com/boyang.university)   
+ [IG專頁](https://web.archive.org/web/20210920195005/https://www.instagram.com/wukaikam/)   
+ [MeWe專頁](https://web.archive.org/web/20210920195005/https://mewe.com/p/wukaikam)
+
+你不需要相信我，要緊記：文章好，舉手之勞，請到 [我的網站](https://web.archive.org/web/20210920195005/https://www.boyangu.com/sc/education/校規-中學-藍絲/) ，在最下面的「讚賞公民計劃」點like（按5次like是免費的），我就能賺取微薄收入，繼續寫更多文章給大家，也要分享這篇文章給其他朋友，謝謝！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920195005/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 胡啟敢](https://web.archive.org/web/20210920195005im_/https://www.hkcnews.com/uploads/avatars/73c7a0fc-9a50-47d5-9ddd-86a71250d99b.png?488794806)
+
+**博客 | 胡啟敢**
+
+【胡啟敢・閱微左翼筆記】和史學大師司馬遷一樣，因為心中有鬱結不平，才動筆為世界而寫。以前迷信市場，現在是堅定的左翼。文章散見於網媒和報章。那怕最後成為無名的墓塚，也得把正確的東西說出來。

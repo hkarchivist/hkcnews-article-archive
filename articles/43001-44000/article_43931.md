@@ -1,0 +1,46 @@
+---
+title: "林鄭空泛指控教協「騎劫」教育界　不評論會否「取締」"
+date: "2021-08-02"
+last_updated: "2021-08-02 20:24:51"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "教協"
+url: "https://web.archive.org/web/20210928073348/https://www.hkcnews.com/article/43931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43936/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43936/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭空泛指控教協「騎劫」教育界　不評論會否「取締」
+
+政府在大陸官方媒體批鬥教協後宣布中止與教協的工作關係，曾經在2018年出席教協45周年會慶的特首林鄭月娥，提及上任初期「破冰」與官員出席教協是理所當然，但她將學生老師參與2019年修例風波角色，歸咎在教協身上。林鄭今日（2日）在無列出具體事例下，批評教協當時政治凌駕教育，「令政治問題、反政府、反中央情緒進入學校，不單影響學生，也因為教協是全港最大教育組織，是騎劫了整個教育界，令香港好多人對教育界有負面的看法，對其他老師非常不公道。」
+
+至於會否「取締」教協，林鄭說不評論執法機構有否進行調查，但指要取締組織或工會都要有堅實的法律基礎及充分的證據，才會違法必究。教協暫未回應。
+
+<figure>
+<img src="https://web.archive.org/web/20210928073348im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/陳肇始-林鄭月娥-20210802193053_29e3_large.jpg" alt="">
+<figcaption>林鄭在記者會讀稿回應教協風波。林勵攝</figcaption>
+</figure>
+
+林鄭2017年政綱主打教育，競選時罕有出席教協論壇，與當時首次三名候選人同台交鋒。在2018年林鄭也出席教協45周年會慶酒會，成為首位出席場合的特首，她當時形容教協作為全港最大教師團體及單一專業團體，展開事務性交往是理所當然。當時同場出席官員包括教育局局長楊潤雄、副局長蔡若蓮、勞福局局長羅致光、時任副局長徐英偉、運房局局長陳帆、政制局副局長陳帥夫、商務局副局長陳百里等。在少數民主派中，教育界前議員葉建源及部分專業界別議員也是少數曾與林鄭共進早餐及到禮賓府晚宴的派別。
+
+然而2019年修例風波後，中央及建制派將香港示威風波歸咎教育制度。在新華社及《人民日報》日前文章要求「依法清除教協」，港府一日後更宣布與教協中止工作關係。
+
+林鄭在周二（2日）疫情記者會最後，準備好講稿回應教協風波，表示上任特首時希望做到與老師同行，但修例風波中有學生缺乏守法意識參與暴動、老師「組織及參與」示威及被捕，教協在風波中所做的「大家有目共睹」，完全支持教育局與教協中止合作關係。
+
+林鄭並無具體列舉教協所為，只是說「近年教協做了什麼工作，特別是修例期間及之後，大家都有目共睹，比原先教協已經存在的立場更變本加厲，亦是將政治立場凌駕教育專業，令政治問題、反政府、反中央情緒進入學校，不單影響學生，也因為教協是全港最大教育組織，是騎劫了整個教育界，令香港好多人對教育界有負面的看法，對其他老師非常不公道。」
+
+林鄭提及，2018年本港情況相對平穩，當時與教協都重視教育發展，曾經帶來一段時間的理性互動，可惜好景不長。她批評，教協明顯偏離甚至違背這個目標，所以必須採取行動。她又特別否認，當時增加教育的經常性開支50億元等多個長期措施，並非是「討好教協」，而是回應教育界長期訴求。
+
+葉建源去年12月接受眾新聞 [專訪](https://web.archive.org/web/20210928073348/https://www.hkcnews.com/article/36400/%E8%91%89%E5%BB%BA%E6%BA%90-%E7%B8%BD%E8%BE%AD-%E7%AB%8B%E6%B3%95%E6%9C%83%E5%BB%B6%E4%BB%BB-36419/%E8%91%89%E5%BB%BA%E6%BA%90%EF%BC%9A%E6%B0%B4%E7%84%A1%E5%B8%B8%E5%BD%A2-%E8%83%BD%E9%80%B2%E6%99%82%E9%80%B2-%E4%B8%8D%E9%80%B2%E5%89%87%E5%AE%88) 時說，在林鄭上任初期，的確對她有期望。「當時的判斷的確係有得傾下，有得傾下咁點解唔傾呢？」他說，當時林鄭的確肯聽意見，但得到國家主席習近平認許後意氣風發。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928073348/https://www.hkcnews.com/aboutus/#subscribe)

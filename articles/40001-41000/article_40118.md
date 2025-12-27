@@ -1,0 +1,66 @@
+---
+title: "清剿鞭屍民主派　「梁粉」再追擊林鄭　誰是下一個敵人？"
+date: "2021-04-08"
+last_updated: "2021-04-08 22:17:59"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "建制派"
+  - "親中派"
+  - "Pro-establishment"
+  - "張志剛"
+url: "https://web.archive.org/web/20210804193517/https://www.hkcnews.com/article/40118/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40118/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 清剿鞭屍民主派　「梁粉」再追擊林鄭　誰是下一個敵人？
+
+
+{{< video src="https://web.archive.org/web/20210804193517if_/https://www.youtube.com/embed/eIGtCxI4OXI" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210804193517/https://bit.ly/2Cj8v4t)
+
+去年11月，泛民立法會議員總辭，不少民主派人士被控違反國安法，整個民主陣營被打殘，建制派全面控制議會，中央出手對選舉進行大手術，親中建制派發動全港簽名支持，收集到238萬人簽名，民主派無力抗衡、組織反對行動，林鄭政府、建制派政黨和媒體為所欲為，乘勝追擊，研究禁止投白票，指有可能違反國安法。
+
+中央出手「救港」，香港進入新時代。林鄭政府、建制派炮口對準民主派，回歸後24年香港亂局，都是他們口中的「反對派」一手造成， 反修例風暴、抗疫無力，是因為「假新聞」。民主派被清剿，再被鞭屍，已無還擊之力，諷剌的是，建制派內鬥卻越來越公開化、火力升級，矛頭直指林鄭及班子和官員。
+
+林鄭今早出席立法會答問大會，民建聯陳克勤借政府計劃在和合石興建公屋、將不少厭惡性設施搬到北區，炮轟官員缺乏視野，沒有考慮鄰近大灣區發展，會上亦有議員針對管治團隊表現，要求加強政治人才培訓，增設副局長、政治助理，潛台詞是現在班子無能、要加人。
+
+行政主導下，管治團隊組成、政策制訂和執行、社區設施選址規劃，全屬行政權力範圍內，民主派無從阻撓。過去5個月，立法會可說只有一把建制派聲音，注射疫苗計劃接種人數低、恢復經濟活動速度慢，政府責無旁貸，總不能再把責任推到泛民身上吧！
+
+
+{{< video src="https://web.archive.org/web/20210804193517if_/https://www.youtube.com/embed/eV3k69BCtr8" >}}
+
+
+林鄭日前接受媒體訪問，繼續把泛民「妖魔化」，認為中央出手立國安法、改香港選舉制度，不是她個人問題：要不是有人鼓吹港獨、不是有人要攬炒、不是立法會亂象，中央以至她自己，都不會看到事情必要性、迫切性。她很安慰任內完善了一國兩制，形容這是「天時地利人和」。
+
+梁振英政府時擔任行政會議成員的張志剛今日在《明報》撰文，不點名批林鄭，認為是「有人試圖去為特區政府解說，其中最無知和無稽的說辭，就是：若非如此，中央又焉能為國家安全立法，為選舉辦法糾正！」「如果這種說法都可以成立，那全世界的歷史都要重新演繹甚至改寫。」
+
+張志剛舉例，美國二戰英雄艾森豪威爾要公開鳴謝山本五十六又或者東條英機， 因為「沒有他們策劃偷襲珍珠港和發動太平洋戰爭，又如何造就艾氏的輝煌事業。」「此說之荒謬，不止是顛倒是非曲直，更是陷中央政府於不義，把中央政府對一國兩制、港人治港、高度自治的真心誠意，說成似有預謀的請君入甕、引蛇出洞，持此論者，直是一副壞心腸！」
+
+他引述房屋、醫療和社會福利等未解決的老問題，結論是：執政最大的敵人，就是執政團隊的敷衍塞責、庸碌無能！
+
+林鄭在答問會上為自己解脫，她說，本屆立法會首幾年出現的亂象，令政府施政困難，官員制訂政策及判斷時亦因「怕了立法會」 而有陰影，令施政熱情打了折扣。
+
+泛民在立法會一直是少數派，林鄭在前朝梁振英政府是政務司司長，一句「怕了立法會」，不就是張志剛形容的「敷衍塞責、庸碌無能」 嗎？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210804193517/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210804193517im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

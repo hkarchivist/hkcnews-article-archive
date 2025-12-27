@@ -1,0 +1,101 @@
+---
+title: "讀桑德爾札記（1）：美國大撕裂背後的精英霸權"
+date: "2021-02-01"
+last_updated: "2021-02-27 01:10:15"
+author: "清涼"
+category: "眾說"
+tags:
+  - "donald trump"
+  - "donald trump jr"
+  - "特朗普"
+  - "唐纳德 特 朗 普"
+  - "當勞侵"
+  - "拜登"
+  - "The Tyranny of Merit"
+url: "https://web.archive.org/web/20210731015601/https://www.hkcnews.com/article/37674/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-the_tyranny_of_merit-38605/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37674/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-the_tyranny_of_merit-38605/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 讀桑德爾札記（1）：美國大撕裂背後的精英霸權
+
+拜登（Joe Biden）政府已順利接掌權力，美國民主制度挺過了最凶險的關口，但不代表美國政府與政界可以無視國內嚴重的撕裂與深層次矛盾，否則更大的危機必將降臨。其實美國內外的有識之士已察覺問題嚴重，並嘗試更深入地了解危機產生的背景和原因，其中包括《正義（Justice）》作者桑德爾（ [Michael Sandel](https://web.archive.org/web/20210731015601/https://en.wikipedia.org/wiki/Michael_Sandel) ）在他新作《精英的暴政：共善變成了甚麼模樣？（ [The Tyranny of Merit: What’s Become of the Common Good](https://web.archive.org/web/20210731015601/https://www.amazon.com/Tyranny-Merit-Whats-Become-Common-ebook/dp/B084M1W9WB) ）》中的分析。 **[1]** 在過去一年，港人很關心美國大選的情況，也知道激烈選戰進一步暴露了美國社會內部問題。但撕裂為何出現？如何修補？這些撕裂對香港這城市的啟示何在？桑德爾的分析有助回答這些問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210731015601im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/桑德爾%20Michael%20Sandel-The%20Tyranny%20of%20Merit-20210201055139_9899_large.jpg" alt="">
+</figure>
+
+### 不患寡而患不均
+
+撕裂的明顯原因之一是經濟產業的此消彼長。過去幾十年，全球化進程令美國民眾享受價格低廉的產品，美國企業的利潤亦增長驚人，但也令美國的產業生態和勞動力分配模式產生翻天覆地的變化。勞工密集的工種大量遷移海外，餘下的工種越來越要求高技術與高學歷。社會上層因著本身的優越條件，佔據了大多數的高技術與高學歷職位（大企業、資本家及金融服務等行業及其週邊業務），令他們享受遠比中下階層為高的經濟回報，貧富懸殊因而急速加劇。財富分配不均，正是撕裂主因。   
+   
+ 在財富如此不均的國家，是否有足夠向上流動（upward mobility）的機會就成了社會是否公義、和諧與穩定的關鍵。而在向上流動金字塔的頂層裡，無論是尖端科技製造、金融服務、法律、醫藥或軟件等等，產業吸納人才的主要渠道都是大學，尤其是精英大學（例如美國東西兩岸的名校），因此進入名校就成為進入制度之內，擠身成功之列的最重要手段。桑德爾特別指出，現今美國人對名校的趨之若慕，屬史上最高。為了擠進名校那比針孔還小的校門，美國的家長已經到達不擇手段的地步。一間著名律師行的主席為了把女兒送入名校，付上七萬五千美元收買試場官僚；另一富有家庭更付上高達一百廿萬美元代價，以換取耶魯大學以足球運動員的資歷取錄她的女兒入讀該校，但事實上她女兒從來不踢足球。
+
+桑德爾亦提到，在美國屬收入最高的兩成家庭，其子女入讀長春藤名校的數目超過學生總數三份之二；而屬收入最高的一個百份點的家庭，其子女入讀哈佛大學（Harvard University）和其他長春藤大學（Yale University）的數目竟超過來自收入最低五成家庭的學生數目總和。差距所以這樣大，因為唯有富裕家庭才有足夠的財力幫助子女在學業和各式各樣的課動中取得優秀成績。除非學生本身就是天才，或家境富裕，否則要擠身美國名校確實難於上青天。
+
+既然進入名校緊扣著向上流動的機會，那些被排拒在外的家庭就自然感到氣餒和失望了。但桑德爾特別提醒我們，最叫這些失敗者不滿的，還不是失敗本身，而是勝利者認為他們的成功是他們應得的（they deserve their success），是完全靠他們的才智和努力得來的，他們並沒有欠社會甚麼。父母若走後門（back door）送子女入名校，大多不願讓子女知道當中細節。憑成績履歷走前門（front door）的，卻又有意無意間忘掉自己的成功是精心培育下的產品。
+
+為了創造成功的神話，美國不斷強調個人的才智和努力在這些成功案例中的重要性，卻又淡化了家庭、經濟等客觀條件的影響，令成功者越發以為自己真的是單憑一己努力而成功，而他們也值得獲取遠超他人的回報。倒過來說，人所以失敗，也因缺乏才智或努力，獲得較少回報也是活該的。套用桑德爾的話，一個奉行「完全精英體制（perfect meritocracy）」的社會容易令人忽視個人才智的偶發性（the contingency of talents），忘記了個人才智背後是一連串的偶然、運氣和祝福，繼而合理化自己所獲的巨大回報和社會對失敗者的不公。
+
+### 精英技術管治的壟斷
+
+桑德爾認為，現時的精英體制可追溯至戴卓爾夫人、列根年代。兩人為了對抗共產主義計劃經濟，厲行小政府主義，盡量撤消市場監管，讓市場的無形之手推動經濟復甦。這種「大市場、小政府」的特徵之一就是以經濟指標去定義何謂公眾的福祉，也就是所謂「共善（common good）」。自克林頓任內開始，市場經濟更無遠弗屆，資訊科技發展更快，全球化進程全速前進，資本流動性大增，產業鏈亦跨越國界，令經濟活動的複雜性大增。在這種經濟活動新範式下，制定甚麼樣的政策才對經濟有利，才能促進共善，越來越變為經濟學家或有關範疇專家的專利，彷佛只有他們才有資格憑著「技術上的功績」（technocratic merit）作有關判斷，這就是桑德爾所謂的技術性管治（technocratic approach of government）。當越來越多公民無力參與有關共善的討論，在促進共善的過程中被邊沿化，怨忿和挫折感就會累積。剛過去的美國大選中支持特朗普的選民正是被邊沿化的一群，他們在國家的管治方略和何謂共善上的理解，跟美國東西岸的知識精英和跨國企業財團有著明顯差距，但多年來卻不受重視，不滿與怨忿由是不斷累積，直至去年以支持特朗普連任的方式全面爆發出來。   
+   
+ 桑德爾指出，無論是伯拉圖（Plato）提及的哲王（Philosopher-King）或是孔子說的「選賢與能」，君主或從政者當具備的能力（merit），從來都是指個人及公共德行（civil virtue），以及就共善作思考判斷的智慧。政權必須託付於能作道德思考與判斷的人身上，如此真正的共善才得以成全。在現今精英技術體制之下，共善卻被約化為國民生產總值（GDP），而從政的能力則等同於專業技術。工具理性發達，但道德理性卻貧乏，難怪美國政治越來越混濁了。
+
+### 說不出對未來的感覺？
+
+若要修補美國社會撕裂，讓政治重回正軌的方法，就是要設法打破精英技術階層對政治、經濟、社會政策等層面的壟斷，讓處於不同生活處境與條件的階層，就生活的想像與國家的未來有更深的交流，讓共善在彼此聆聽中逐漸成形。相反，如果政治繼續由技術精英把持，現存的撕裂只會擴大，直至撕裂惡化為更可怕的內鬥。其實不只美國政治動盪不安，世界各國的政治不也在全球化和精英技術管治的影響下出現不同程度的內部撕裂嗎？英國脫歐豈不是當地人民對這兩種趨勢的回應嗎？
+
+回看香港這個失治之城（借用顧汝德先生著作標題），特區政府及北京在過去一段日子甚至自回歸以來，幾時有真心誠意聆聽港人心中的共善？還是當權者只把他們的野心和貪婪視為理所當然的善，視為黎民所必須服膺而無任何權利置啄的禁脔？雖說從前的香港也是工具理性主導，但主政者總算沒有忘記香港本土的福祉。對比現今當權者，當年港人總不至要面臨「留土不留人」的恐懼，彷彿除了貢獻國家，除了以大灣區為共善以外，港人就再沒有存在的價值。當權者不只壟斷了權力，還壟斷了對共善的解析，把別的解析皆視為顛覆，這樣的城市又如何能給人美好的想像？居於其中又怎說得出對未來的感覺？   
+   
+ 行文至此，筆者又想起另一首老歌，無論是香港或這個世界，或許要說出對未來的感覺，也覺無言吧：
+
+
+{{< video src="https://web.archive.org/web/20210731015601if_/https://www.youtube.com/embed/rd2NQ-rcDz4" >}}
+
+
+### 說不出的未來
+
+**主唱：夏韶聲**   
+ **作詞：劉卓輝**   
+ **作曲：李壽全**   
+   
+ 霧裏看都市　憂傷與灰暗　人們在抱怨天氣　互說風光   
+ 我對你傾訴　但充滿了隔膜　似是我故作寂寞在一角   
+ 愛上了電視　不需要思索　模糊面對工作　日夜去奔波   
+ 偶爾看齣戲　漆黑裏歡樂　我愛你那歌曲天天播   
+   
+ 曾話過　賽馬不禁　跳舞自由　曾話過　這裡不變　我會逗留   
+ 你問我　我為何　說不出對未來的感覺   
+   
+ 那個要包裝　青春與奔放　誰高呼空虛　觀眾便心醉   
+ 我聽到歌聲　醫不了飢餓　上帝愛你　跟祂去天國   
+   
+ 誰做錯　世界到處有難民　誰做錯　你要降世救罪人   
+ 你問我　我為何　說不出對未來的感覺   
+   
+ 今天我知　鄉村變了都市　今天也知　文明原來是這樣   
+ 告訴我　你會叫喊與淚流　告訴我　這個世界叫地球   
+ 告訴我　我為何　說不出對未來的感覺   
+ 告訴我　你會奮鬥到盡頭　告訴我　看到了自由   
+ 告訴我　我為何　說不出對未來的感覺
+
+**註釋：**
+
+[1] Michael J. Sandel, “The Tyranny of Merit: What’s Become of the Common Good?” (New York: Farrar, Straus and Giroux, 2020)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210731015601/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 清涼](https://web.archive.org/web/20210731015601im_/https://www.hkcnews.com/uploads/avatars/ede8c1c1-80d2-4f78-a258-fc9139bd5be0.png?163282332)
+
+**博客 | 清涼**
+
+【清涼・清涼集】世事紛亂，邪惡猖狂，願藉文字激濁揚清，為世間添上清涼。

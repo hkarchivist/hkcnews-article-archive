@@ -1,0 +1,89 @@
+---
+title: "【戲飛15分鐘售清】太古街坊團購《理大圍城》等電影　戲院包場被拒　終獲藝術中心連播3片"
+date: "2020-11-01"
+last_updated: "2020-11-01 15:02:32"
+author: "記者黎卓欣"
+category: "眾聞"
+tags:
+  - "地厚天高"
+  - "理大圍城"
+url: "https://web.archive.org/web/20210731030809/https://www.hkcnews.com/article/35233/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35250/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35233/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35250/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【戲飛15分鐘售清】太古街坊團購《理大圍城》等電影　戲院包場被拒　終獲藝術中心連播3片
+
+<figure>
+<img src="https://web.archive.org/web/20210731030809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/太古同怒人-20201101142755_2063_large.jpg" alt="">
+<figcaption>由太古街坊組成的「太古同怒人」昨日於香港藝術中心舉行團購電影放映會，連播3場港產片及紀錄片。(大會提供)</figcaption>
+</figure>
+
+**由太古街坊組成的網上團體「太古同怒人」昨日於香港藝術中心舉行團購電影放映會，由下午2時半至晚上11時，連播3場港產片，包括《十年》、《地厚天高》，以及入圍荷蘭阿姆斯特丹國際紀錄片電影節（IDFA）競賽部份的《理大圍城》。「同怒人」負責人透露，團體曾接觸港島戲院包場，但全數被不同原因拒絕。中大新聞與傳播學院副教授潘達培指出，現時香港紀錄片的發行、上畫漸困難，但同時亦有一群新人希望入行、紀錄時代，《理大圍城》能入圍IDFA，足證明香港的紀錄片具時代價值。他鼓勵港人多支持紀錄片製作：「有人睇就會有人拍！」**
+
+<figure>
+<img src="https://web.archive.org/web/20210731030809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201101010740_2aaf_large.jpg" alt="">
+<figcaption>太古街坊組成的「太古同怒人」今日於香港藝術中心舉行團購電影放映會，街坊正排隊入場。（大會提供）</figcaption>
+</figure>
+
+  
+ 9月份，《理大圍城》被電影、報刊及物品管理處（電檢處）評為三級片，發行商「影意志影院」指，處方退還的《理大圍城》送審光碟變成碎片，事件引來社會極大迴響。有見及此，一眾太古街坊便開始商討如何能將電影放上大銀幕，讓更多人看得見。「同怒人」負責人之一Iris稱：「我本身識崔允信（影意志的藝術總監），所以就諗住不如幫吓手，用一般包場嘅形式播啦。」
+
+她以為包場便能解決問題，豈料全港島卻沒有一間戲院願意上映。Iris憶述：「基本上我問晒所有港島常規嘅戲院，但全部都以唔同嘅原因拒絕，例如疫情無得包場、無人手，有啲直接無回覆。我問崔允信點算呀，佢就建議我去搵香港藝術中心。」等待香港藝術中心回覆期間，她又找了好幾間派對房間、社區會堂等作後備方案，但觀影效果始終不及戲院，幸好最後香港藝術中心願意放映。
+
+現時，香港藝術中心亦有與影意志合作，公開售票放映《佔領立法會》及《理大圍城》。Iris形容，香港藝術中心公事公辦、溝通態度良好：
+
+> **佢哋好清晰講到明，只要係合法嘅片就可以播無論係《時代》、《理大圍城》、《地厚天高》定TVB啲戲，只要你過到『電檢』（電影檢查）、佢哋又有檔期，咁佢就會比播，佢哋態度好中立。**
+
+
+  
+ 電影放映會三場共有180張門票、票價劃一120元，「太古同怒人」負責人Iris說，戲飛在社群開放訂購15分鐘，便全數售罄，反應極好。
+
+賣門票有2萬多元收入，支出方面，中心每兩個半小時收費5500元，播放三套戲連帶租咪等開支，所有成本合共須約19000元。「同怒人」管理員都是義工、沒有薪酬，票務收入扣除租場成本，會全數撥給發行商。Iris言帶感激：「發行商都好好，無話要求收幾多錢先比我哋播，反而係我哋自己想比幾多。」
+
+<figure>
+<img src="https://web.archive.org/web/20210731030809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/地厚天高-20201101011121_4964_large.jpg" alt="">
+<figcaption>「同怒人」義工正在分配座位。（大會提供）</figcaption>
+</figure>
+
+### 鄧小樺：民間自發紀錄真相  紀錄片將更多
+
+「同怒人」亦有邀請《地厚天高》導演林子穎、發行商「影意志」的藝術總監崔允信、中文大學新聞與傳播學院副教授潘達培、作家鄧小樺、主持曾志豪等出席放映會。
+
+作家鄧小樺以視像出席討論，她指紀錄片代表真實與歷史，在科技發達的年代，當公共論述或媒體的力量被權力左右，民間就會自發紀錄真相。她相信，將來亦會有愈來愈多的紀錄片出現。
+
+<figure>
+<img src="https://web.archive.org/web/20210731030809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201101010120_170b_large.jpg" alt="">
+<figcaption>鄧小樺指紀錄片代表真實與歷史，相信將來亦會有愈來愈多的紀錄片出現。（黎卓欣攝）</figcaption>
+</figure>
+
+  
+ 理大一役發生時，鄧亦處於理大校園內，她指電影中的片段雖未盡全面，但亦修補了她對整件事的認知缺漏。她認為紀錄片對社會運動的進程扮演重要角色。
+
+### 潘達培撐紀錄片  向外國呈現港人眼中的香港
+
+中文大學新聞與傳播學院副教授潘達培認為現時香港情況，未至於壞到像中國內地一樣，需要躲在教室、家中放映，但亦不容樂觀。
+
+> **喺大陸播播吓係會停電，根本唔會有好似依家咁舒適嘅環境去播，可能係一啲課室、簡便嘅器材、音響。但呢啲係唔會stop到佢哋繼續拍嘅，佢哋會繼續用佢哋嘅方法去傳播。**
+
+<figure>
+<img src="https://web.archive.org/web/20210731030809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201101010023_484d_large.jpg" alt="">
+<figcaption>潘達培指，雖然現時香港紀錄片的生存漸趨困難，但同時仍有一群新人希望入行。（黎卓欣攝）</figcaption>
+</figure>
+
+潘又指，雖然現時香港紀錄片的生存漸趨困難，但同時仍有一群新人希望入行、紀錄真相。
+
+「有人睇、就會有人拍，好多同學、後生嘅都躍躍欲試想為時代做個remarks。我成日同大學啲同學仔講，拍紀錄片唔係睇部機，而係你有幾著意，幾passionate去紀錄一啲嘢。」
+
+「只要你想拍，就一定拍到。下一個問題就係，點樣解決除咗你啲朋友睇到之外，點樣可以多啲人睇，甚至去到海外呢。參加外國影展是其中一個方法。」
+
+他續稱，以往香港紀錄片如希望能於國際頻道上映，便要符合「外國人認知中的香港」，例如拍攝蓮香茶樓、樓宇密集的環境。今次《理大圍城》能夠入圍荷蘭阿姆斯特丹國際紀錄片電影節，是向外國呈現「香港人眼中的香港」：
+
+> **香港人嘅故仔唔洗人哋講，由我哋自己講。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210731030809/https://www.hkcnews.com/aboutus/#subscribe)

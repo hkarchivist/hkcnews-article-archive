@@ -1,0 +1,48 @@
+---
+title: "公民黨四人自辯退黨　楊岳橋譚文豪庭上哽咽"
+date: "2021-03-03"
+last_updated: "2021-03-08 23:35:40"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "楊岳橋"
+  - "Alvin YEUNG"
+  - "公民黨"
+  - "Civic Party"
+url: "https://web.archive.org/web/20220701072635/https://www.hkcnews.com/article/38788/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38788/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 公民黨四人自辯退黨　楊岳橋譚文豪庭上哽咽
+
+<figure>
+<img src="https://web.archive.org/web/20220701072635im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/退出-初選大搜捕-公民黨-20210303210351_273a_large.jpg" alt="">
+</figure>
+
+因去年民主派初選被控顛覆國家政權的公民黨楊岳橋、譚文豪、郭家麒及李予信在連日馬拉松式審訊期間退出公民黨，而職工盟主席吳敏兒則退出工黨。
+
+據悉，楊岳橋早前已預計不會從政，只會專注大律師工作，較令人意外是譚文豪及身兼東區區議員的執委李予信，其中譚文豪在去年7月收到選舉主任來查問政見，但未直接DQ，退黨前仍保留現任副主席職務。
+
+公民黨副主席賴仁彪表示今日暫不回應，有消息再統一公布。在去年11月二次DQ後，公民黨內曾經討論未來路向，但決定繼續維持公民黨架構
+
+據報，四人在周三保釋程序期間解除委任黨主席及資深大律師梁家傑，然後自辯，楊岳橋及譚文豪期間哽咽。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072635im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/楊岳橋-20210303210235_1452_large.jpg" alt="">
+<figcaption>楊岳橋加入公民黨剛好十年，走到黨魁之位，去年底被二次DQ才辭任黨魁一職。 EYEPRESS</figcaption>
+</figure>
+
+楊岳橋在加拿大修讀政治，2003年在北京大學修讀法律碩士，曾經師從自由派學者張千帆及賀衛方。梁家傑2004年首次參選立法會及2007年梁家傑參選特首，楊岳橋也有份助選。他在2011年正式加入公民黨，首次參選是同年區議會，其後再加入新界東支部，本來準備在湯家驊手上接棒。
+
+2015年中湯家驊宣布退出公民黨及辭去立法會議席，引發2016年2月新界東補選。本來提早半年「練兵」的楊岳橋因旺角騷亂及本土派梁天琦崛起陷入苦戰，最後以約1萬票之差擊敗民建聯周浩鼎。2016年9月，他再次當選並出任公民黨黨魁，直至去年因為人大常委會決定「二次DQ後」才不再擔任。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072635im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/楊岳橋-梁家傑-20210303223643_2fb0_large.jpg" alt="">
+<figcaption>2004年梁家傑參選立法會，楊岳橋有份助選。  梁家傑著作《你好，我係梁家傑》</figcaption>
+</figure>
+
+湯家驊則在Facebook回應說：「唉！世事難料，是禍是福自有天意，當年刻意讓位想不到竟然如此收場⋯⋯」
+
+郭家麒2004年曾在醫學界當選議員，2010年加入公民黨並空降新界西，在2012年及2016年先後當選。本身是飛機師的譚文豪2010年加入公民黨，2016年在九龍東晉身立法會，成功在梁家傑手上接棒。
+
+李予信本身是社工，曾經為前議員陳淑莊助選，在2018年底加入公民黨，2019年在民建聯盤據多年、北角錦屏勝出當選區議員，初選時曾經參選超級區議會但未能出線。

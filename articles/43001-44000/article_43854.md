@@ -1,0 +1,39 @@
+---
+title: "網媒記者APM商場舉港英旗涉違國歌法　現場群眾喊「We are Hong Kong」"
+date: "2021-07-30"
+last_updated: "2021-07-30 20:29:44"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "國歌法"
+  - "觀塘APM"
+  - "張家朗"
+url: "https://web.archive.org/web/20210920180948/https://hkcnews.com/article/43854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapm-43856/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwe-are-hong-kong%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapm-43856/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwe-are-hong-kong%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 網媒記者APM商場舉港英旗涉違國歌法　現場群眾喊「We are Hong Kong」
+
+香港劍擊隊代表張家朗周一在奧運男子花劍贏得金牌，大批市民到商場觀看直播，其中在觀塘APM商場內，有市民在場內直播頒獎禮奏起中國國歌時報以噓聲。警方於今日（30日）以涉嫌違反國歌法拘捕一名報稱網媒記者，指他在奏國歌時「公然高舉港英旗」、煽動其他人喝倒采，在場人士呼叫「一些口號」，行為侮辱國歌及涉嫌煽動。
+
+被捕人疑是不時在「自由人快訊」Facebook直播自稱為「美娜」的人士，眾新聞翻查「自由人快訊」FB直播片段，於案發當日在現場拍攝着商場的大屏幕，當時的直播畫面準備奏起中國國歌，期間背後響起一把男聲高喊「wooo」，直至開始奏起國歌，直播響起有人交替高喊「wooo」的聲音，持續約15秒；在國歌奏唱的大部分過程中，聽到現場有人不斷高喊「We are Hong Kong」及鼓掌。
+
+
+{{< video src="https://web.archive.org/web/20210920180948if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F2047825735370268%2F&show_text=false&width=560&t=0" >}}
+
+
+在奏國歌前，該涉案網媒記者在直播說：「稍後佢升旗時、奏國歌時，可能附近啲人我唔知點，總之佢哋都識做囉，我唔講喇。」在另一條賽前的直播片段，該記者再說如果張家朗獲金牌奏國歌時，「大家自己識做啦，我唔講喇」。
+
+東九龍總區刑事高級警司鍾麗怡表示，根據網上流傳片段，有人涉嫌在觀塘一個商場直播東京奧運，奏起中國國歌時，公然舉起港英旗，煽動其他人一起喝倒采，在場人士也不斷喝倒采；警方今日在荃灣拘捕一名男子，並搜出10支不同大小的港英旗，警方亦正調查有無其他人於當日在該商場內違反國安法及煽動罪。她警告，如違反國歌法，一經定罪最高可被罰款5萬元及入獄3年。
+
+警方在記者會上被多次追問舉港英旗是否犯法，鍾麗怡說根據《國歌條例》是「任何形式侮辱國歌」，「問題是行為，不是一支旗」。她續稱，「問題唔係全部喺咩旗幟，而係佢所做嘅行為，當時佢去做嗰個動作、在場嗰個回應，係一個方式去侮辱國歌、唔尊重國歌呢個行為」。
+
+至於被捕人是否為跨性別人士，鍾麗怡只說被捕人是40歲本地男子，「根據所有資料得出，佢係一名男子」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920180948/https://hkcnews.com/aboutus/#subscribe)

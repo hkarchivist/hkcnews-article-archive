@@ -1,0 +1,45 @@
+---
+title: "北京演講拿出一杯人糞　蓋茨倡廁所革命"
+date: "2018-11-06"
+last_updated: "2018-11-06 16:05:40"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蓋茨"
+  - "新世代廁所博覽會"
+url: "https://web.archive.org/web/20211202150023/https://hkcnews.com/article/16236/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/16236/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 北京演講拿出一杯人糞　蓋茨倡廁所革命
+
+<figure>
+<img src="https://web.archive.org/web/20211202150023im_/https://hkcnews.com/news_新聞/hk-discuss/2018/11/新世代廁所博覽會-蓋茨-比爾及梅琳達蓋茨基金會-20181106143657_13e6_large.png" alt="">
+<figcaption>蓋茨在演講期間，拿出盛有人糞的燒杯。網上圖片</figcaption>
+</figure>
+
+當美國選民準備在中期選舉投票之際，微軟創辦人蓋茨在北京。他周二在一個場合發表 [講話](https://web.archive.org/web/20211202150023/https://www.gatesnotes.com/Development/Reinvent-the-Toilet-Expo-speech) ，講的內容不是電腦，而是廁所。
+
+比爾及梅琳達蓋茨基金會（Bill & Melinda Gates Foundation ）在北京舉辦新世代廁所博覽會。蓋茨在講台上拿出一個盛有人糞的燒杯，說杯裏有200萬億個輪狀病毒，200億個痢疾桿菌，10萬個寄生蟲卵。他說，在沒有安全衛生設施的地方，環境中的病毒病菌更多。各種病原體引發腹瀉、霍亂、傷寒等疾病，每年導致近50萬名5歲以下兒童死亡。
+
+蓋次在講話中指出，不安全的衛生條件，令本來承受能力差的國家，背上沉重的經濟負擔。據估算，全球每年由於醫療成本增加、生產力降低和收入減少造成的經濟損失達2230億美元。他說，如果不採取行動，問題會更加嚴重。過去七年，蓋茨的基金會用了2億美元在衛生方面研究，開發新一代無排污渠連接的廁所技術，消滅有害病原體，以及把人類排泄物變為乾淨的水及肥料。
+
+他說，十年前，他決定停止在微軟的全職工作，開始和妻子梅琳達頻繁訪問貧困國家。從那時開始，他關注衛生問題。他說，在到訪的一些地方，兒童在糞污遍地的路上玩耍，糞坑要手工清掏，公共廁所臭到沒人願意使用，當地家庭飲用水也受到污染，「這等貧困，我們見所未見，也鞭策着我們為此做些事」。
+
+蓋茨表示，在未來幾十年，人口增加、城鎮化和水資源短缺等因素，會導致非洲和亞洲一些衛生系統本就不堪重負的城市承受更大壓力。由於衛生條件惡劣造成的貧病交加的惡性循環，也將越來越難打破。他說，想要在全球消除貧困這個頑疾，便要用全新方式審視並解決全球衛生危機。他2009年向科學家和工程師提出一個問題：如何才能超越長期公認的廁所「黃金標準」，即水沖廁所、排水管道和污水處理廠這一套體系？「我們能否採用更加經濟的方法消滅病原體，滿足城市快速發展的需求，又毋須連接排污渠，還能節省已經短缺的水資源和電力？」
+
+他說，有人懷疑這行不通，但他可以理解。如果某些方法根深蒂固，的確很難想像推倒重來，因為大家都有一種慣性本能。蓋茨憶述他創業之初的事：「在我創業之初，大家覺得電腦只能是大公司和政府才能買得起的大型機，這是大家對電腦的認知慣性。但當時我們有一部分人並不這樣認為。我們夢想着開發人人都能使用的個人電腦。很多人說我們瘋了，但我們對此堅信不移，並找到更多志同道合之士。現在大家已經無法想像大型機時代的世界是什麼樣子」。
+
+蓋茨稱，我們必須要攻克兩大挑戰，首先是讓整個衛生服務鏈上的糞便管理變得更容易，成本更低。在全球發展中國家，62%的糞便沒有得到安全管理，有些城市更糟糕。他說，我們和合作伙伴開發一個小型處理廠，能夠處理從坑廁、化糞池和排污渠中收集糞便和有機污泥。這個萬能處理器不僅產生電力支持自身運轉，還可以放在任何地方。它不但能將人類糞便中的有害病原體殺死，還能將剩下物質轉化成有經濟價值的產品，包括清潔的水、電力和肥料。
+
+他續說，第二個挑戰是發明一種自成一體的新型廁所——能夠殺死病原體，具有內置的微型處理設備，稱為「新世代廁所」。採用多種創新技術，實現人類糞便降解滅菌，產出清潔的水和固態物質。這些固態物質可用作肥料，或毋須再處理就可以在戶外安全排放。他預料，到2030年，單是第一代的新世代廁所，每年在全球創造60億美元商機。蓋茨基金會承諾再投資2億美元用於持續研發，為貧困人口降低新型衛生產品成本。
+
+蓋茨的「廁所革命」新聞在內地網民當中引起迴響。「寧靜致遠」表示，「這種首富你能不為他點贊嗎？！他的境界讓我沒法不仰視！」；網民「冷譯心揮」說，「看看人家的富豪在幹嘛」。「藍子恒」說，「窮則獨善其身，達則兼善天下」，也有留言「能力越大，責任越大，佩服，佩服！」和「中國就不怕，用來灌溉」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202150023/https://hkcnews.com/aboutus/#subscribe)

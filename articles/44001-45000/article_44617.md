@@ -1,0 +1,60 @@
+---
+title: "抗疫「清零」口號虛幻　共存是不願見的真相？"
+date: "2021-08-20"
+last_updated: "2021-08-20 20:00:29"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "豁免檢疫"
+  - "清零"
+url: "https://web.archive.org/web/20211027001642/https://hkcnews.com/article/44617/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44622/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44617/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44622/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 抗疫「清零」口號虛幻　共存是不願見的真相？
+
+
+{{< video src="https://web.archive.org/web/20211027001642if_/https://www.youtube.com/embed/V0PKMDqOxso" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211027001642/https://bit.ly/2Cj8v4t)
+
+香港去年初開始抗疫，疫情一波接一波，相對香港及世界各地， 內地很快已宣布「清零」，省市之間開放通關，香港未「清零」， 親中建制派向特首林鄭月娥施壓，要儘快實現零個案， 兩地可以全面通關。林鄭和官員心知肚明，在內地可有效實施的抗疫 措施，包括封城、大規模檢測、病毒追蹤的「健康碼」制度， 在香港實施有難度，一直迥避承諾以「清零」為目標。11月， 林鄭終於被逼講出「力爭清零」這個目標。至今近10個月， 仍未能正式「清零」。
+
+昨晚，港府和新加坡分別宣佈終正已進行一年的旅遊氣泡商討， 新加坡改變防疫策略，放棄「清零」，打造為「堅強抗疫社會」， 接近西方社會的「與病毒共存」路線，與中國和香港所追求的「 徹底清零」南轅北轍。
+
+港府一直以新加坡為首個旅遊氣泡安排目標， 原因相信是兩地均為開放型國際都會，有很多相似地方， 但最終在抗疫基本策略，港府與內地靠得更近，「清零」 口號成為政治壓力，不敢公開放棄。去年7月， 食衛局局長陳肇始曾提出市民與病毒共存是新常態的說法，林鄭承諾 「力爭清零」後，官員更不敢再公開提出共存。
+
+林鄭周二被記者問到因應抗疫、變種等因素，政府會否不再以所謂「 清零」作為目標，而要學習如何與病毒長期共存， 她沒有直接回答會或不會，搬出一埋模稜兩可說法，「 沒有事情是絕對的」，公共衞生、 市民的接受程度和經濟民生的影響，要取得一個「適當的平衡」。 她說，接種疫苗是唯一出路。
+
+港府用盡九牛二虎之力軟硬兼施「谷針」、商界推出各種獎賞，「 牛下女車神」李慧詩亦幫手宣傳，接種率亦未達6成， 假如要達到有專家提出的8、9成，恐怕是椽木求魚。
+
+新加坡接種疫苗比例比香港高，但確診數字比香港差，採取「 與病毒共存」策略，令人自然聯想到：香港怎麼了？ 林鄭不斷強調抗疫要因時制宜，經過年半時間抗疫，假如「清零」 目標現實上變得虛幻，喜歡不喜歡也好，病毒變種、變種病毒， 都很可能成為生活的一部份；人之常情，不希望「與病毒共存」， 但事實上，我們每天都正在「與病毒共存」，是所謂不願見的真相。
+
+香港接種率仍未達6成，只打了一針的數字更低。 防止社區爆發十分重要，「清零」作為理想目標本無不可， 但假如共存是無可避免的現實，官員和專家無須視之為禁忌， 提出討論也不敢。實際上，社會亦要更清楚認識病毒、抗疫， 才能準備回復正常生活。
+
+港人早已感到抗疫疲勞，亦已接受防疫措施會帶來生活不便， 政府要爭取公眾諒解、支持措施，一個基本要求是措施規定清晰， 執行一視同仁。
+
+荷李活影星妮歌潔曼日前從悉尼來港拍攝劇集，毋須入住檢疫酒店， 引發豁免檢疫爭議，加上有報道她抵港兩天即出入中環服裝店， 並在港島區拍攝， 商經局局長邱騰華說未發現相關人士違反豁免條件。未發現， 就等於沒有？
+
+名人檢疫「隻眼開、隻眼閉」， 公眾對政府缺乏信任，抗疫事倍功半，要做困難決定難上加難。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027001642/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211027001642im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

@@ -1,0 +1,60 @@
+---
+title: "風靡華人網絡圈的社交平台Clubhouse　傍晚突被封鎖　網上一片哭聲：「沒想到這一天來得這麼快！」"
+date: "2021-02-08"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "言論自由"
+  - "眾新聞中國組"
+  - "Clubhouse"
+url: "https://web.archive.org/web/20210712054612/https://www.hkcnews.com/article/38023/clubhouse-%E8%A8%80%E8%AB%96%E8%87%AA%E7%94%B1-%E7%9C%BE%E6%96%B0%E8%81%9E%E4%B8%AD%E5%9C%8B%E7%B5%84-38023/%E9%A2%A8%E9%9D%A1%E8%8F%AF%E4%BA%BA%E7%B6%B2%E7%B5%A1%E5%9C%88%E7%9A%84%E7%A4%BE%E4%BA%A4%E5%B9%B3%E5%8F%B0clubhouse-%E5%82%8D%E6%99%9A%E7%AA%81%E8%A2%AB%E5%B0%81%E9%8E%96-%E7%B6%B2%E4%B8%8A%E4%B8%80%E7%89%87%E5%93%AD%E8%81%B2%EF%BC%9A%E3%80%8C%E6%B2%92%E6%83%B3%E5%88%B0%E9%80%99%E4%B8%80%E5%A4%A9%E4%BE%86%E5%BE%97%E9%80%99%E9%BA%BC%E5%BF%AB%EF%BC%81%E3%80%8D"
+original_url: "https://www.hkcnews.com/article/38023/clubhouse-%E8%A8%80%E8%AB%96%E8%87%AA%E7%94%B1-%E7%9C%BE%E6%96%B0%E8%81%9E%E4%B8%AD%E5%9C%8B%E7%B5%84-38023/%E9%A2%A8%E9%9D%A1%E8%8F%AF%E4%BA%BA%E7%B6%B2%E7%B5%A1%E5%9C%88%E7%9A%84%E7%A4%BE%E4%BA%A4%E5%B9%B3%E5%8F%B0clubhouse-%E5%82%8D%E6%99%9A%E7%AA%81%E8%A2%AB%E5%B0%81%E9%8E%96-%E7%B6%B2%E4%B8%8A%E4%B8%80%E7%89%87%E5%93%AD%E8%81%B2%EF%BC%9A%E3%80%8C%E6%B2%92%E6%83%B3%E5%88%B0%E9%80%99%E4%B8%80%E5%A4%A9%E4%BE%86%E5%BE%97%E9%80%99%E9%BA%BC%E5%BF%AB%EF%BC%81%E3%80%8D"
+---
+
+# 風靡華人網絡圈的社交平台Clubhouse　傍晚突被封鎖　網上一片哭聲：「沒想到這一天來得這麼快！」
+
+
+{{< video src="https://web.archive.org/web/20210712054612if_/https://www.youtube.com/embed/p1LXRi6PyrU" >}}
+
+
+即時語音聊天平台 Clubhouse近日風靡華人網絡社交圈，不少人爭相體驗這種不設禁忌的無國界交流。聊天室討論的主題包括新疆局勢、八九學運等，這些被內地當局視為敏感的話題，各地華人可以在此大串聯發表政見，是少數身處內地的人不用翻牆便可同境外交流的應用程式。不過，正當外界對此感到雀躍之時，Clubhouse傍晚傳出被封鎖的消息。
+
+<figure>
+<img src="https://web.archive.org/web/20210712054612im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/Clubhouse-眾新聞中國組-VPN-20210208195743_2c19_large.png" alt="">
+<figcaption>近日廣受歡迎的社交網站Clubhouse，多個大陸城市都有用戶稱未能登入。</figcaption>
+</figure>
+
+今晚七時十五分，網上傳出Clubhouse被封鎖的消息，有網民在微博表示，「雖然知道Clubhouse會被牆，但沒想到這一天來得這麼快。」亦有網民感嘆，沒想到Clubhouse只存活了一段短時間，「就結束了在中國的生命」。
+
+Clubhouse內出現多個房間討論事件，其中一名用戶表示：「我以為可以留得過年，想不到這麼快被牆啊！」也有用戶說：「還以為官方政策宣示正在開放，不會絕於海外。」其他用戶隨即說：「你太天真了！」房間裡的用戶，亦紛紛改為討論VPN如何登入Clubhouse等技術問題。有用戶特別提醒：「大家不要說敏感話題，就只說技術問題。」也有人說：「有一些字眼就用比較開心的字眼，好嗎？不要再點透了。」
+
+<figure>
+<img src="https://web.archive.org/web/20210712054612im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/Clubhouse-20210208201449_14cd_large.png" alt="">
+<figcaption>Clubhouse內出現多個房間討論事件。</figcaption>
+</figure>
+
+有用戶表示，現在內地電話號碼已不能收到Clubhouse邀請驗證碼，意味著若用戶登出賬戶後，亦有機會不能收到驗證碼重新登入。本來在淘寶上有售的Clubhouse邀請碼，亦已經被下架。
+
+Clubhouse創辦人Paul Davison周日曾經加入以中文用戶為主、叫「聊聊 Clubhouse」的房間，然後說期待在中國開辦公室，並在香港時間周一凌晨讚賞中文用戶交流。
+
+有內地用家Ｍ（化名）認為Clubhouse 吸引之處是現有公共平台所沒有，她認為微信朋友圈不太可能可以討論公共事件，而微博的商業色彩越來越重，加上因為去年她在武漢生李文亮離世當晚發了一條質問政府的帖文而被封號，已經不再使用微博。
+
+「而這種東西(公共事件)討論的需求一直是存在的，Clubhouse對我來說相對來說是一個比較理想的地方，我確實在Clubhouse裡面找到了就是觀念上會比較契合的人，就是找到組織的感覺。」
+
+Ｍ最初接觸Clubhouse是出於工作需要，但後來一試便愛上，每天上班通勤一兩個小時都會收聽。她形容自己是播客(Podcast)重度用戶，喜歡收聽他人分享知識，Clubhouse對她來說是實時的播客，是吸引她使用的原因之一。過去幾天她曾經加入討論美團騎手以及女性與家庭暴力等聊天室，收聽甚至參與討論。
+
+M亦說留意到有聊天室的話題是圍繞新疆及八九學運的，不過在內地網絡受到嚴密監控，對於暫時「無王管」的Clubhouse能走多遠？內地《新京報》評論指Clubhouse在中國市場會水土不服，Ｍ及周遭有用Clubhouse的朋友都不太樂觀：
+
+「現在在用Clubhouse的人都有意識到，過不了多久Clubhouse就『被牆』，對我現在來說有點像『被牆』之前的那種大派對，趕快用它。（如果失去）會有一點小小傷心吧。　」
+
+Clubhouse應用程式需要獲邀才能使用，暫时只有iPhone用家才可使用，而且不能在內地 App Store 下載。從事互聯網分析的艾媒咨詢創始人兼CEO張毅認為，要在內地上架的社交軟件都要拿到使用許可證，「如果內容不妨礙國家現行的法律法規和要求的話，那倒問題不大，但一旦這涉及到一些違法違規行為的話，被監管阻攔也是很正常的。國外的Clubhouse應該進入中國是不靠譜的，這是肯的，國內定會有一大批模仿者出現。」
+
+「如果有一個中國版的Clubhouse存在的話，那可能用戶的人群是不一樣的。如果人群不一樣的話，就不對它那個產品特別感興趣。Clubhouse裡面最重要的是人嘛，但人始終存在的，我有需求就找這樣的人(討論)就好了。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712054612/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,81 @@
+---
+title: "前影視處主任：以往無人用電檢控制社會議題電影　指引從無政治審查"
+date: "2021-10-10"
+last_updated: "2021-10-10 00:49:15"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "電檢處"
+  - "電檢條例"
+  - "蕭恒"
+url: "https://web.archive.org/web/20211201235128/https://www.hkcnews.com/article/46286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46348/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46348/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 前影視處主任：以往無人用電檢控制社會議題電影　指引從無政治審查
+
+**昔日「東方荷里活」在國安法降臨下，由政治到藝術文化生活，無孔不入面臨新常態。電檢條例修訂，只要不利國安就不可上映，以往已批出的准映證都可被撤銷，上訴委員會無權過問，預料會在今個立法會期通過。前影視處電影分部行政主任蕭恒接受眾新聞訪問，憶述當年檢查員最多只會討論涉及色情或血腥的情節，絕無政治任務，明言「任內沒有觸及社會議題的影片，大家覺得要用電檢來控制。」**
+
+**他指，以往就算很驚嚇都可批出三級准映，但新例下凡涉及認同、宣揚、美化等可能不利國安的行為，通通不能上映，「all or nothing」是最明顯的分別。加上有幾驚嚇或色情，以往尚可參考公眾顧問的意見，取得大部分人共識，但是否不利國安，或者根本都不是大部分市民的想法，界線變得模糊。不過，他依然覺得在任何崗位，都應憑良心盡力促成該發生的事，不應墮進平庸之惡。**
+
+<figure>
+<img src="https://web.archive.org/web/20211201235128im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/電檢條例-蕭恒-20211007225903_2fb9_large.jpg" alt="">
+<figcaption>前影視處電影分部行政主任蕭恒向眾新聞表示，當年「任內沒有觸及社會議題的影片，大家覺得要用電檢來控制。」張凱傑攝</figcaption>
+</figure>
+
+### 巴士車廂電視　最多色情投訴
+
+專為文化藝術活動統籌和推廣的Cultural Connections創辦人蕭恒，曾在2002年至2004年，任職影視處電影分部行政主任，統籌內部行政及對外聯絡，也會處理影視投訴，及後轉到其他公務員系統。十多年後的今日，影視處早已解散，改組為電影、報刊及物品管理辦事處，負責廣播事務、電影評級、管制淫褻及不雅物品和報刊註冊，亦即是外界形容的「電檢處」，隸屬通訊辦。
+
+一般而言，電影上映前須交到電檢處送檢，但其實只要在公眾地方放映的紀錄影像，理論上都應要送檢。蕭恒解釋，由公務員擔任的檢查員，會將送檢電影評級，再批准或拒絕上映。一個檢查員負責一個申請，直接向主管交代，如有爭議或再由另一位檢查員翻看。另有約300名由公眾組成的顧問小組可給予意見，但沒有法定約束力，最終由電影檢查監督簽發准映證。
+
+蕭恒沒有直接參與電影評級的檢查工作，但有份處理影視投訴、籌建評級電影資料庫等，不時也會跟同事討論電影評級的問題。他憶述，當時收到最多投訴、同事最多討論，都是來自巴士車廂電視的內容，涉及色情或暴露的問題。電影方面，他記得有一齣法國電影《不可逆轉》（Irréversible）因為血腥，被要求刪剪才可商業上映，發行商不服提出上訴。但他說，一般片商很少跟電檢處爭拗，都想盡快上映賺錢。
+
+<figure>
+<img src="https://web.archive.org/web/20211201235128im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/電檢條例-20211007230023_246c_large.jpg" alt="">
+<figcaption>資料圖片</figcaption>
+</figure>
+
+### 指引無提政治審查　電影節上映較開放
+
+他指，檢查員主要根據《有關電影檢查的檢查員指引》來判斷電影評級，當年很少有爭議情況，最多就是幾位同事一起討論，也不會由主管一錘定音。指引並無提及要對政治內容審查，因此他明言從無政治任務：「在任內，沒有因為觸及社會議題的影片，大家覺得要用電檢來控制。」有些電影「就算很色情、很暴力，連指引都過唔到，但九成九都可以在電影節上映」，因為傳統認為電影節針對特定群體，接受程度較高，而商業上映迎合普羅大眾，尺度相對較為嚴謹。
+
+隨著時代演變，評級尺度都會轉移，例如社會大眾比起以前對粗口的接受程度有所上升。不過，社會進步換來開放並非必然，今年6月商經局修訂檢查員指引，指檢查員有「共同義務」防範和制止危害國家安全行為，如影片可能構成危害國家安全罪行，包括涉及支持、宣揚、美化、鼓勵或煽動的內容，則不宜上映。
+
+蕭恒認為在電影評級上，以往幾驚嚇都好，大概還有一把尺，都可批出三級上映，但現在可能構成危害國安的內容，就已經不能批出上映，「all or nothing」是最明顯的分別。相比之下，新指引也令評級「難啲落條線」，因為「以往有沒有驚嚇、有沒有色情效果，是以大部分人覺得、大家的共識、公眾顧問的比例而決定；但新指引提及的不利國安內容，分分鐘都不是大部分市民覺得係咁，現在也不知有幾聽取公眾顧問的建議。」
+
+<figure>
+<img src="https://web.archive.org/web/20211201235128im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/執屋-20211007230109_158e_large.jpg" alt="">
+<figcaption>今年6月，鮮浪潮「似曾相識」系列的短片《執屋》，未能如期獲得電檢上映證，臨時取消放映。美聯社</figcaption>
+</figure>
+
+### 昔日鮮浪潮主打政治系列　從無干預
+
+新指引伴隨而來是《電影檢查條例》修訂草案，目前已交上立法會審議。蕭恒認為修例是「擺姿勢多過實際」、「唔知擺畀邊個睇」。條例規定檢查員須考慮影片上映是否不利國安，他質疑就算不修例，行政指引已經更改，難道檢查員會不跟隨嗎？條例建議，審核委員會無權審核因國安理由否決的上映決定，他又質疑委員會成員由商經局委任，本屬「無牙老虎」。但他同意，修例明確賦權予政務司司長可撤銷上映證，亦容許檢查員延長決定時限，隨時變成永遠的「懸案」。
+
+修例對電影業的影響，他看得相對淡然，因為香港的創作環境，早已被無形的壓力包圍，「都不是修不修例，而是由國安法通過開始，整個創作環境已經有影響，大家不知道紅線在哪裏，拍完一部戲有機會無法上映，《理大圍城》無戲院播、宣布了放映都要收返、何韻詩開不了演唱會……根本不需要有形的條文，無形的壓力，已經影響整個業界和創作環境。」
+
+今年入圍鮮浪潮本地競賽單元的短片《執屋》被電檢處要求更改戲名、刪減14處內容、並要加上「可能構成刑事罪行」的警告，最終在未有更改下，不獲上映核准證明書。曾做過鮮浪潮影展經理的蕭恒形容，今年的情況絕對不常見，以往電檢處很配合影展主辦單位，有時就算提交申請的日子不足，處方「死都死畀你」盡量在影展前批出上映證。昔日籌劃鮮浪潮，政治題材的作品可獨立成一個系列，甚至用來主打，去宣傳、去推廣，也從無干預，只嘆今非昔比。
+
+<figure>
+<img src="https://web.archive.org/web/20211201235128im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/執屋-20210825153442_8233_large.png" alt="">
+<figcaption>短片《執屋》被電檢處要求更改戲名、刪減14處內容。預告片截圖</figcaption>
+</figure>
+
+### 說不出口　仍要獨立思考
+
+他指出，香港藝文生態大多數收取政府資助，主要來自藝發局或民政局，所以「最反叛的作品」不會出自受資助團體。但他覺得，香港的藝團一直很叻「走位」，懂得在制度中保留創作空間，甚至願意打擦邊球。他舉例說近年有一個電影節，他引入了一齣海外電影，片中講述原本在開放環境下成長的小女孩，面對保守極權政府來臨時的經歷和掙扎，那時那刻在香港放映，為的是希望回應當時香港的變化，當然影展只是包裝成一齣講述小女孩成長的電影。
+
+這種「走位」方法在今時今日的香港，變得愈來愈困難，他聽過，一些涉及政府資助的藝文或創意產業項目，以往一直有台灣人來港交流，又或港人去台灣交流，但現時這種安排變得敏感，有些國際藝術節、文化活動，也盡量避開台灣的角色。他又聽過，現在申請臨時公眾娛樂牌照，如果涉及放映，對方會查問放映的內容，但臨時牌的原意本來只是確保人群聚集的安全、符合消防條例等，與放映內容根本無關。
+
+當下的香港，有社會議題值得拍，有人願意去拍，但都無場地肯播，實體放映愈來愈難做，就算地下放映，在新修例下亦可被電檢處登門搜證。他覺得，大家失去的是暢所欲言的自由，不單止作品想說的，就連以往放映後的交流討論亦都一併失去。還有甚麼空間？未來有何出路？他答不出口，但認為網上串流是一種方向，非電檢處監管，觀眾在家收看網上串流，「基本上無嘢可以阻擋，當然他日有沒有網禁就不知道。」
+
+「對創作者也好、對觀眾也好，有些事說不出來，但不代表不可以思考，仍要保持獨立思考。」蕭恒認為，無論是二十年前還是現在，都一定會面對很多限制，當然今日的環境比以前嚴峻得多，但他依然覺得任何崗位，尤其在公營機構內，都應憑良心行事，面對不同限制時，應盡量促成該發生的事，不應墮進平庸之惡。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211201235128/https://www.hkcnews.com/aboutus/#subscribe)

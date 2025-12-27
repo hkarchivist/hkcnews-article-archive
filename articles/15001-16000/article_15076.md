@@ -1,0 +1,53 @@
+---
+title: "強制入院「後遺症」"
+date: "2018-09-19"
+last_updated: "2018-09-19 11:29:57"
+author: "壹元坊"
+category: "眾說"
+tags:
+  - "精神病患"
+  - "社工"
+  - "強制入院"
+url: "https://web.archive.org/web/20220117071223/https://www.hkcnews.com/article/15076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/15076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 強制入院「後遺症」
+
+<figure>
+<img src="https://web.archive.org/web/20220117071223im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/09/精神科-精神病患-20180912090124_22d8_large.png" alt="">
+</figure>
+
+[上星期提及](https://web.archive.org/web/20220117071223/https://bit.ly/2MmXJLj) 一位中年男士因為出刀 「兇」父親，經外展精神科醫生上門評估，最終被「強制入院」關進精神科病房作禁閉治療。
+
+在筆者工作範疇，其中一樣最惹人爭議的正是「強制入院」。基於有關程序涉及剝奪人身自由，其執行必須有法理基礎，也要通過一定門檻。根據《精神健康條例》第 31 條，若某人患有精神紊亂，其性質及程度足以影響自身或他人的健康或安全，醫院方面可向法庭申請將這人羈留，接受觀察與治理。
+
+一般來說，醫護人員會在當事人有即時自殺或傷人風險，又或者出現嚴重自我疏忽照顧，啟動「強制入院」程序。有關決定必須經醫生、家人與法官三方同意，填寫 3 份訂明表格（即行內俗稱 Form 123）才生效，最多可羈留 7 天，之後經 2 位醫生評估，可再延長多 21 天。
+
+不能否定，「強制入院」制度有其需要，尤其對於那些精神情況極度紊亂的人士，當下未必有能力為自己作最好決策。不過，同樣毋庸置疑的是，強制入院涉及侵犯人權與尊嚴，過程中當事人可能要面對武力，被叱喝、制服、綑綁，大小二便被迫在床上解決，入院後要被「剝光豬」檢查，強烈抵抗的可能會被注射「懞仔針」。
+
+令筆者感到唏噓的是，個別社工同行缺乏相關的人權意識：一句為「client 好」，一句「寧枉勿縱」（有殺錯無放過），便輕易尋求啓動程序。若果上述說話出自醫護人員口中，筆者尚且可以理解，可我們社工的培訓，一直強調要尊重人權，提倡案主自決，現實上卻竟有那麼多同行，輕易作出剝奪案主人身自由的決定。
+
+諷刺的是，筆者也遇到一些例子：醫護人員認為毋須入院，可負責的社工或主管堅持要將案主關進精神病房，到頭來在其他專業面前「攞假嚟丢」！
+
+說到底，筆者是想指出目前行內「歪風」：借「風險管理」之名，枉送很多案主進入精神病房羈留，對他們身心構成很大傷害；而很多時，他們其實是可以用其他方法，例如輔導及加強家屬支援等去處理，只是要付上更大心力，個別主管也不想冒出事及孭鑊風險。
+
+其實，無論是醫護與社工都要明白，捉一個人入院唔難，但處理之後的後遺症卻並不容易。筆者最近在工作中遇到一位青年人，他因為工作壓力與失眠，長期倚賴酒精，最終出現幻覺與精神錯亂，被父母送進精神病院。
+
+青年人憶述他被送入精神病房時，頭幾天都被綁在床上，叫天不應；沒有人為他提供情緒支援，他亦被禁止與外界接觸，當下感到極度徬徨。
+
+這段經歷在靑年人心中留下不能磨滅的陰影，他跟自己說以後一定不會再入院。為了保障自己，他亦不會對醫生講真話，他肯繼續覆診，不過是為了一張病假紙，讓他可以保住收入與工作。
+
+青年人出院超過一年，他承認自己心裡一直有條刺，甚少與父母說話，刻意保持距離。之前更曾有一段時間，他因為對父母怨懟甚深，不斷在言語上挑撥父親，並對父母作出騷擾行為。
+
+青年人承認他的行為是出於報復。在筆者介入後，他自知自己不對，亦明白父母當初簽紙送他入院是出於好意，最終有所收歛。只是，他與家人之間那幅牆依然存在，要回復病發前的親近關係，眼前已不大可能了。
+
+**本專欄逢星期三更新。如想了解更多有關精神健康的故事或資訊，歡迎到 [壹元坊面書專頁](https://web.archive.org/web/20220117071223/https://bit.ly/2sJvQ8M) 瀏覽 。**
+
+---
+
+![博客 | 壹元坊](https://web.archive.org/web/20220117071223im_/https://www.hkcnews.com/uploads/avatars/0f9d6859-978a-451b-aa81-70e8e4bc63b8.png?273647995)
+
+**博客 | 壹元坊**
+
+【壹元坊・復元路上】筆者創辦壹元坊。從新聞工作走進社會服務最前線，半途出家，很想為處於社會邊緣的群體做點事。作為精神復康社工，每天接觸備受精神障礙困擾的朋友，見證他們被社會、以至身邊的人排斥、誤解，在重重艱困中奮力爭扎，期望從半個「局中人」的角度，與讀者享他們的復元故事，讓社會重新檢視他們的韌力與生命力。

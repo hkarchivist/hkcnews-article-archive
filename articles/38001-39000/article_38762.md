@@ -1,0 +1,49 @@
+---
+title: "採樣日期與結果顯示為同一日　政府消息：系統缺陷　若無採樣日期　自動預設與報告同日"
+date: "2021-03-03"
+last_updated: "2021-03-04 00:07:33"
+author: "特約記者林穎茵"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "強制檢測"
+url: "https://web.archive.org/web/20220128021030/https://www.hkcnews.com/article/38762/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38802/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38762/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38802/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 採樣日期與結果顯示為同一日　政府消息：系統缺陷　若無採樣日期　自動預設與報告同日
+
+新冠病毒檢測已經一段時間，有人做深喉唾液為求安心，有人因為大廈有確診要強檢，有人就是交僱主證明自己無染病。當大家下載電子檢測紀錄時，有否發現採樣日期與報告是同一日?  政府消息指是系統漏洞，若無採樣日期就會預設成結果同一日。食物及衞生局深夜回覆，承認深喉唾液樣本屬自行採樣，政府及電子檢測記錄系統服務承辦商無法確定樣本的採集日期和時間，系統設定會自動把「樣本採集日期」設定為檢測報告的上載日期，並顯示於相關的電子檢測記錄。
+
+最近，身邊有朋友做完檢測後，遲遲未有結果，令行程安排大失預算。其中有朋友等了10日終於收到報告，鬆了一口氣的同時，下載電子檢測結果，發現明明是10日前採樣，但報告採樣日期，卻與報告結果同一日。
+
+<figure>
+<img src="https://web.archive.org/web/20220128021030im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/強制檢測-武漢肺炎-20210303163153_6529_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+我的家人也因為上兩星期(23/2)發燒，到私家診所求診。私家醫生非常小心，將他列作強制檢測個案，醫生派了一個樣本樽給他，叮囑他兩日內要交樽到衞生署，他亦將個案上報衞生署。家人為免延誤檢測，離開診所後即日採集深喉唾液樣本，上午看醫生，下午二時已將樣本樽送到衞生署的指定收集站。當時職員用電話掃描樽的條碼(Bar Code)，還說他的個案會有一張收據，說明樣本樽編號及收樽日期。雖然最近樣本多，他的檢測還按時完成，四日內收到，2月26日凌晨收到通知，檢測是陰性。
+
+原本一直沒有下載紀錄，近日見有報道，多人懷疑採樣日期出錯甚至懷疑造假，所以下載樣本電子檢測紀錄，才發現同一個問題出現：檢測結果報告與樣本採集日期是同一日。既然職員有抄下資料，又有掃條碼，為何不是顯示收到樣本日期更合理?
+
+有人在醫管局交樽出問題，我的家人在衞生署交樽遇到同樣問題，即不是個別事件。有人懷疑是否最近檢測時間長，承辦商為了掩飾採樣後，檢測結果延遲而更改日期？ 是否醫管局外判商問題？ 但這些懷疑套用在我家人的例子又不恰當，他是在衞生署交樣本、樣本報告亦不算遲。
+
+### 消息：系統缺陷  政府正想辧法修正
+
+據了解，政府是知道問題的，亦不局限在醫管局外判商。消息人士指這是系統缺陷，由於系統沒有樣本採集日期，市民是自己採樣，無法知道你確實何時採樣，那就預設採樣日期與報告結果同一日，消息指政府想辧法修正中，但沒有解釋怎樣改善。
+
+這個日期看似不是問題，但其實引伸到，電子檢測紀錄的意義和作用。最近因為太多個案，令到檢測需時，甚至延誤。有人交樣本後10日才收到結果，雖然是個別例子，但確實是存在。而他的電子紀錄，就會出到採樣日期的10日後。若果他因為接觸過一些人要再做強制檢測，又或所住的大廈要強檢，他不想再做多次，將電子檢測紀錄向執法人員展示，那根據紀錄他可能無需再強檢。
+
+系統導致採樣日期出現誤導，影響很大，可能會走漏個案，即使一個個案都是不理想，後果亦無法預計。
+
+### 食物及衞生局回覆查詢全文：
+
+> 政府在開展特定群組檢測計劃時，透過流動電話短訊通知市民檢測結果，及後開發電子檢測記錄系統，讓市民除了短訊通知外，亦可上網取得載有二維碼的電子檢測結果。
+
+> 該電子檢測記錄系統原本是為即場採樣的檢測而設計。就社區檢測中心及流動採樣站等檢測渠道而言，由於服務承辦商會為檢測人士即場採樣及登記樣本，因此，電子檢測記錄系統會分別記錄「樣本採集日期」及「檢測結果／報告日期」，並將此兩項資料顯示於電子檢測結果上。
+
+> 然而， **深喉唾液樣本屬自行採樣，政府及服務承辦商無法確定樣本的採集日期和時間，系統設定會自動把「樣本採集日期」設定為檢測報告的上載日期，並顯示於相關的電子檢測記錄。我們明白此系統設定會令人有所誤解，因此正修正相關設定，日後透過醫院管理局（醫管局）、衞生署及其他樣本收集點遞交深喉唾液樣本所取得的電子檢測記錄，均不會再顯示「樣本採集日期」。**
+
+> 市民如需要有顯示樣本採集或遞交日期的證明，可選擇前往社區檢測中心或流動採樣站接受即場採樣檢測，或保留在深喉唾液樣本收集點遞交樣本時所獲發的收據。
+
+> **是次系統技術問題並不涉及檢測承辦商在上載檢測資料方面的操作。政府及醫管局監察檢測服務承辦商表現，亦與此數據無關。**

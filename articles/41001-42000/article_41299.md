@@ -1,0 +1,53 @@
+---
+title: "彜族留守兒童難升學　北京夫婦遠赴當地教跳舞"
+date: "2021-05-13"
+last_updated: "2021-05-13 21:11:23"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "留守兒童"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211207183843/https://hkcnews.com/article/41299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41322/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41322/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 彜族留守兒童難升學　北京夫婦遠赴當地教跳舞
+
+
+{{< video src="//web.archive.org/web/20211207183843if_/https://www.youtube.com/embed/8Kseq-pzyeA" >}}
+
+
+(報道在影片中)
+
+<figure>
+<img src="https://web.archive.org/web/20211207183843im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/留守兒童-20210513184902_1b53_large.jpg" alt="">
+</figure>
+
+曾經是國家級貧困縣的雲南硯山縣那奪村，居住了不少彜族的留守兒童，他們大多就讀初中後輟學，到外地工作。來自北京的關於及張萍夫婦，2016年成立彩藝文化藝術培訓學校，5年間培訓了62個學生到雲南昆明繼續就學。
+
+5年前張萍夫婦在一次偶然機會下回鄉，在雲南文山州硯山縣的那奪村認識一群彜族孩子。他們大多是留守兒童，不少人父母都不在身邊，家境貧困下他們無法繼續升學，一般讀畢初中就工作，甚至不少小女孩早早結婚：「等她真的成熟時，她已經生了孩子了，她就再出去打工，她就發現原來我的思想不是那個，她就不回來了，又造成下一代的孤兒。」
+
+<figure>
+<img src="https://web.archive.org/web/20211207183843im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/留守兒童-20210513184847_2620_large.jpg" alt="">
+<figcaption>學生在天安門廣門前起舞。</figcaption>
+</figure>
+
+相處過後，二人發現這群少數民族的小朋友對跳舞很有天賦，決定每逢寒假及暑假時，到雲南教授學生跳舞，最初僅在搭起帳篷的泥地上學習。張萍坦言過程並不容易，尤其要平日打工及做家務的學生抽時間上課，亦有家長不同意讓孩子學習：「都挑中12個孩子，然後也培訓了，等到我寒假回來，又沒了，孩子沒了，我說孩子呢，村長說『怕你帶去賣掉、人家家長不同意』」。
+
+### 隻身赴雲南成立學校
+
+張萍說，一開始教導小朋友跳舞，目的是想讓她們得到快樂，但在了解留守兒童的困境後，在2019年，在北京有穩定工作的張萍決定辭職。她獨自從北京來到雲南，進一步成立培訓學校，讓那奪村的學生將來可以成為跳舞或演員，以維持生計。目前學校辦到第三屆，學生除了學習中國舞、芭蕾舞、街舞課等各類舞蹈外，還會上美術及普通話課程。
+
+畢業生之一的蒂姆及可媚回到學校繼續教導學生跳舞，她們對於能夠將所學的傳承給師弟妹感到相當高興：「感覺我們現在變成了阿美(張萍老師)，就在教著當初的我們一樣那種感覺，所以我們就是用心在教。」
+
+學生會叫張萍夫婦做「阿爸」、「阿美」，即是彜語對爸爸媽媽的稱呼。張萍：「這幾十個孩子，有3至5個能成功，出來，能幫到更多的人，那就是成功了。其實孩子只要給她一點光，她就會向光而生，我覺得一定是這樣的。」
+
+夫婦二人被迫暫時分隔兩地，至今分居兩年。丈夫形容妻子帶學生到北京旅遊時多次過門而不入，而自己都會趁寒暑假到雲南探望妻子。張萍則笑言曾被朋友質疑是否感情生變，而她對彼此有信心：「我們兩個在不同的地方，一起去實現一個目標。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207183843/https://hkcnews.com/aboutus/#subscribe)

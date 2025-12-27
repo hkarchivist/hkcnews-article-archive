@@ -1,0 +1,74 @@
+---
+title: "【周梓樂死因研訊】骨科專家推論是意外墮下　跨出牆身後以「某種形式」失衡"
+date: "2020-12-31"
+last_updated: "2020-12-31 22:26:26"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "死因調查"
+  - "死因庭"
+  - "周梓樂"
+url: "https://web.archive.org/web/20210727205848/https://www.hkcnews.com/article/36880/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36882/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36880/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36882/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【周梓樂死因研訊】骨科專家推論是意外墮下　跨出牆身後以「某種形式」失衡
+
+**科大學生周梓樂死因研訊第24天，骨科專家證人江金富作供指，以醫學角度估計，梓樂最有可能是意外從高處墮下，頭部最先落地，而墮下的高度足以造成極大衝擊力。他又推斷，梓樂墮下時是用左手撐著牆邊、以「某種形式」失平衡，「有少少飛出的狀態」，最後身體微微傾斜著地、右邊頭部最先受撞擊。**
+
+<figure>
+<img src="https://web.archive.org/web/20210727205848im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/周梓樂-死因調查-20201231201316_6a7f_large.jpg" alt="">
+<figcaption>骨科專科醫生、運動科學專家江金富推論，梓樂是意外從高處墮下，導致頭部受傷。邢穎琦攝</figcaption>
+</figure>
+
+骨科專科醫生、運動科學專家江金富出庭作供。他先後為研訊撰寫兩份報告，以學術角度分析從高處跳下、意外墮下及被拋下三種情況的分別，繼而推論梓樂是以哪種模式受傷。其中報告所指的「墮下」，意思是一個人無準備、「唔知自己下一秒會跌落去」，包括跨過矮牆時不知後方中空。
+
+江比較上述情況引致的相應傷勢及墮下落點，認為梓樂是意外從高處墮下，導致頭部受傷。他解釋，跳下的著地點一般較墮下遠，拋下的落點和傷勢視乎當下力度，若是足以將一個人「揈出去」的助力，相應落點亦會較遠；文獻顯示在少於7米高地方墮下，頭部有近9成機會受傷，跳下則以手、腳、腰受傷機會較大。
+
+而在梓樂情況，江指出，2樓矮牆與發現受傷位置的「打橫距離」是1.3米，相比算短，與墮下的情況吻合；頭部傷勢最重、右眼角和右耳對上有多處裂傷、右盆骨有擠壓性骨折，相信是右邊頭部最先著地，胸部和腰部再在半秒至1秒內緊接受傷。因此，江在醫學上推論出的最大受傷原因，是意外從高處墮下。
+
+<figure>
+<img src="https://web.archive.org/web/20210727205848im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/周梓樂-死因調查-20201231213025_170e_large.png" alt="">
+<figcaption>江金富表示，停車場3樓至2樓行人路的高度為4.3米，墮下時速可高達每小時20哩。眾新聞製圖</figcaption>
+</figure>
+
+江又補充，停車場3樓至2樓行人路的高度為4.3米，墮下時速可高達每小時20哩，「撞擊力好大」；梓樂頭部傷勢可以是一次性造成，而左腦出現的腦對沖傷，則顯示頭部曾受墮下造成的衝擊，「好快啪啪跌咗落嚟」。
+
+### 大腦要約0.7秒作反應
+
+就梓樂墮下時是否有足夠時間反應，譬如用手腳保護自己，江表示，一般人大腦平均要0.5至0.7秒辨認外來刺激，身體再按大腦指示移動；在梓樂情況，停車場3樓至2樓行人路的高度為4.3米，墮下時間短至0.93秒，「假設用0.7秒反應，其實得返0.23秒就到地下」，即使事先看到中空、用0.5秒意識墮下情況，也只有短至0.43秒可在著地前移動手腳。
+
+江續指，0.5至0.7秒的反應只是實驗時間，文獻顯示一般人在實際環境可能出現分心，反應時間或要1至2秒，外國亦不乏設立3秒行車安全距離的例子。
+
+有陪審員問，人體是否理應有本能的保護反應，譬如「暈一暈」也會下意識平衡身體。江表示在墮下的情況，身體不止是要平衡、「單純郁一郁」，而是靠大腦控制手腳作反應，亦即先要意識到身處高空。
+
+<figure>
+<img src="https://web.archive.org/web/20210727205848im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/死因調查-周德明-20201231201331_239e_large.jpg" alt="">
+<figcaption>周梓樂父親周德明。邢穎琦攝</figcaption>
+</figure>
+
+就梓樂遇襲昏迷再被拋下的可能，江金富認為可能性不大，因現時無證據顯示梓樂身上有遇襲傷痕，指甲亦沒留下其他人的基因，而一般人受襲時會下意識自衛，譬如抓住對方或有推撞，繼而留下對方基因。研訊主任大律師葉志康問，若梓樂上半身挨出牆身再被人推下樓，情況又會如何。江表示，難以用傷勢及落點區分是被從後推落樓，或是意外墮下，但強調現時沒有證據作出相關推論。
+
+江又估計，要造成梓樂右邊頭部的傷勢，應該是用左手支撐身體、跨過矮牆，發覺外面中空時來不及捉回牆邊，「有少少飛出的狀態」，令身體「斜斜地」著地，右邊頭部最先落地。他又相信，梓樂墮下姿勢與同日凌晨、曾躍出3樓矮牆的白衣男子相似，只是梓樂「以某種形式」失平衡，白衣男子及時「收掣」、擒住牆邊再安全返回3樓。
+
+<figure>
+<img src="https://web.archive.org/web/20210727205848im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/周梓樂-死因調查-20201231201256_2f52_large.png" alt="">
+</figure>
+
+研訊期間，江嘗試口頭和用手勢解釋墮樓姿勢，但有陪審員感覺難以理解，雙方來回對答多次卻仍然膠著。庭上公眾、記者、陪審團一臉不解、迷失在物理學理論時，死因裁判官高偉雄在辨公室取出一隻約30厘米大、穿法官袍、戴上法官假髮、與他一樣戴黑色眼鏡的熊公仔，借給江示範梓樂墮樓姿勢，並笑說「（公仔）都陪咗我好多年㗎喇」，庭上隨即傳來一陣笑聲。
+
+江遂利用熊公仔，模擬梓樂左手按牆之後，身體如何輕微旋轉至墮地時狀態，並示範其他墮下情況和姿勢，協助庭上眾人理解複雜的物理學理論。
+
+另外，在警方代表大律師熊健民查問下，江表示即使撇除廣新閣鏡頭佐證，亦可推斷梓樂頭部是「斜斜地」、呈約40度撞擊地面，造成相應頭部傷勢，肯定他不是以「倒樹葱」的姿勢落地，否則頸椎和腰椎亦會受壓骨折。
+
+研訊下周一（1月4日）再續，預計在1月6日引導陪審團。
+
+【案件編號：CCDI-932/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727205848/https://www.hkcnews.com/aboutus/#subscribe)

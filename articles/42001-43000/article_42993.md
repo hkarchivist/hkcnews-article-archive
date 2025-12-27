@@ -1,0 +1,39 @@
+---
+title: "【影片】國安法一年　噤聲時代的聲音紀事"
+date: "2021-07-02"
+last_updated: "2021-07-02 21:24:35"
+author: "記者邢穎琦、周滿鏗"
+category: "眾聞"
+tags:
+  - "七一遊行"
+  - "國安法"
+  - "七一回歸"
+url: "https://web.archive.org/web/20210928163441/https://www.hkcnews.com/article/42993/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42993/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【影片】國安法一年　噤聲時代的聲音紀事
+
+
+{{< video src="https://web.archive.org/web/20210928163441if_/https://www.youtube.com/embed/RJEmYH0m5A8" >}}
+
+
+今年七一，新任政務司李家超以署理行政長官身份在回歸酒會致辭，形容2019年有「反中亂港」分子企圖癱瘓政府，制訂港版國安法是令香港社會「由亂轉治」。李家超說，維護國家安全的同時，市民仍然依法享有言論、新聞、集會、示威等自由。
+
+就在同一時空下，七一遊行被警方以維持公共秩序及防疫為由拒絶，以往聚滿遊行人士的維多利亞公園、灣仔軒尼詩道、金鐘道，換成大批不斷驅趕市民的警察；響遍港島、代表民意的口號聲，變為警告不可有多於4人聚集的警方廣播。人頭湧湧、拿著標語發聲的畫面，今年七一已不復再。
+
+國安法實施一年，進入被噤聲的時代，銅纙灣街頭上的市民，卻仍有話要說。
+
+有年輕人慨嘆：「唏噓囉，完全係倒退到軍國主義嘅時代咁，唔容許人哋講一句唔鐘意佢哋嘅說話。」
+
+有為父的憂心下一代：「唯有自己同佢哋講返真正嘅歷史，真正可以喺書本上、上網搵到嘅歷史，唔好淨係傾埋一邊，或者輕輕帶過唔講咁囉。」
+
+有學生不忿：「佢壓緊另一把聲音，唔畀佢講野，自然梗係無人講野啦，無人講野佢咪覺得安全咗，但唔代表呢種聲音真係會消失。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928163441/https://www.hkcnews.com/aboutus/#subscribe)

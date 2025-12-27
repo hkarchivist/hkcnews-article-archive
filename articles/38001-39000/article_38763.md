@@ -1,0 +1,104 @@
+---
+title: "【史無前例】馬拉松式聆訊三日逾30小時未結束　資深刑事律師：聆訊至凌晨難以置信"
+date: "2021-03-04"
+last_updated: "2021-03-08 23:34:54"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "初選大搜捕"
+  - "初選大起訴"
+url: "https://web.archive.org/web/20210923184644/https://www.hkcnews.com/article/38763/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39020/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38763/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39020/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【史無前例】馬拉松式聆訊三日逾30小時未結束　資深刑事律師：聆訊至凌晨難以置信
+
+民主派初選47人被控「串謀顛覆國家政權」，史無前例「馬拉松式」連續4天提堂處理保釋程序。本案共有逾47名被告，控方亦曾表示數目之多是前所未見。聆訊至今已歷時三日，共31.5小時，惟尚未完成處理保釋程序，負責審理的總裁判官蘇惠德預計周四（4日）會有裁決。
+
+執業40年的資深刑事律師高恒（Colin Cohen）表示，從未見過如此情況，因為涉及大量被告的審訊一般都會分批處理。他質疑被告「唔夠瞓唔夠食」是不尋常及不需要，又形容聆訊至凌晨是難以置信。
+
+### 聆訊3日逾30小時未完成  19小時始完成全部保釋陳辭
+
+案件首日中午12時50分開庭，至凌晨2時32分休庭，歷時約13.5小時。第二日聆訊在中午12時15分開庭，至晚上10時35分休庭，歷時逾10小時。第三日聆訊在中午12時42分開庭，至晚上約8時半結束，歷時近8小時。共31.5小時。
+
+首日提堂前，由於被告眾多，在原定的開庭時間，仍有18名被告未見律師，裁判官見狀遂延至下午再開庭。庭外有辯方律師透露，當日足足等了兩小時才能見被告。被告眾多導致混亂，當時已見端倪。
+
+首日開庭後，先處理押後案件申請，控方隨後表明反對所有被告保釋。惟在控方要求下，案件兩度休庭共約2小時。最終在開庭後約7小時，即晚上8時才開始處理保釋申請。撇除休庭和處理其他程序的時間，三日實際共用19小時，處理47名被告的保釋陳辭。首日花了約6.5小時，處理20名被告的保釋陳辭；第二日則花了約8.5小時，處理19人的保釋陳辭；第三日則以約4小時，處理最後8名被告的保釋陳辭，惟仍有至少10人需作補充陳辭。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/裁判官-蘇惠德-20190315173102_1d05_large.jpg" alt="">
+<figcaption>負責審理本案的國安法指定法官、總裁判官蘇惠德。資料圖片</figcaption>
+</figure>
+
+### 最少6人不適送院
+
+首日聆訊到晚上10時，控方代表要求「放飯」休息，又提出可否在翌日再訊。當時一眾被告已現疲態，由於庭上不准飲食，被告亦不能隨便離庭，遑論用膳充饑，這意味他們已有逾7小時沒法飲水和上廁所。
+
+由於蘇官和部分辯方代表都希望盡快完成處理保釋程序，故未有休庭。經歷通宵扣查後直接上庭，被告在庭上半天不能進食、飲水，到凌晨多人相繼體力不支，其中楊雪盈在庭上暈倒，譚凱邦、梁國雄、林景楠亦需送院。蘇官見狀，最終在凌晨2時32分決定休庭。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-楊雪盈-20210303214453_11fe_large.jpg" alt="">
+<figcaption>首日聆訊到凌晨，楊雪盈在庭上暈倒送院。蘋果日報圖片</figcaption>
+</figure>
+
+首日聆訊在凌晨結束，一眾被告在清晨時分才到達收柙所，其中最遲一批被告在早上6時才到達荔枝角收柙所。未及休息，短短三數小時後便要出發到法院。
+
+翌日，據悉一度有辯方律師在庭上表示，希望蘇官留意案件管理問題，最終蘇官明言不會通宵聆訊，並容許部分被告提早離開休息。第二日聆訊最終在晚上10時35分結束，惟林景楠與何啟明亦告不適，需要在休庭後送院。
+
+### 被告3日3夜沒梳洗
+
+第二日提堂後，家屬委託辯方律師向法庭求情，指47人自星期日被扣查開始，已經三日三夜不能梳洗、沒法更換衣服甚至內衣褲。據了解，眾被告首晚在警署拘留故不能梳洗，第二晚由於到收柙所時已是清晨，未有梳洗時間。
+
+辯方明言是衞生問題，希望蘇官能酌情容許家屬向被告轉交衣服替換。惟蘇官聞言指有困難，認為要按照一般程序處理，辯方回應稱按正常程序，需時一星期才能轉交衣服。有辯方代表提議短暫擔保讓被告到洗手間換衫亦被拒絕。在辯方多番請求協助下，蘇官最終決定延遲翌日的開庭時間，讓被告有更多時間可在收柙所內梳洗。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/楊岳橋-20210303210235_1452_large.jpg" alt="">
+<figcaption>一眾被告曾投訴，三日三夜沒法梳洗與換衫。</figcaption>
+</figure>
+
+### 公開聆訊不時「靜音」 吳靄儀：我哋仲有司法獨立？
+
+由於本案被告人數眾多，正庭只開放予被告和其法律代表，全部記者都只能在延伸法庭或記者室內觀看直播。然而畫面訊號不穩定，曾短暫中斷、靜音，一眾記者亦只能在螢幕前，辨認如手指頭般細小的面孔。
+
+法庭安排亦多次引起爭議，首日聆訊開庭前，記者認為電視轉播的音量太細，自行調高音量。在場法庭職員突然將電視調至靜音，稱仍未開庭，引來現場記者鼓噪。在一番爭論後，職員最終容許記者調高電視音量。
+
+到第三日提堂，從直播畫面所見，一眾被告已經到庭，惟電視轉播仍被調至靜音，現場記者鼓噪，質疑在正庭能夠聽見被告互動，開庭前轉播靜音的做法也與以往有異。
+
+大律師吳靄儀當時亦身處延伸法庭，認為如果記者不能進入正庭，轉播便不應靜音，並說：「法庭都沒法控制自己嘅程序，我哋仲有司法獨立咩？」
+
+司法機構回覆查詢，指基於司法公正的考慮，當法庭安排市民和記者在法庭的延伸部份旁聽聆訊時，只會在法庭內的公開聆訊開始後才作出聲音廣播，以免訴訟各方在不知情下，被現場收音系統把討論內容（如律師與訴訟人之間的保密溝通）公開廣播。
+
+轉播安排方面，司法機構解釋由於是在法庭得知新案件後短時間內作出，或有所不足，又指留意到在聆訊首兩天，聆訊前及／或休庭期間，聲音廣播系統並沒有關上，又或只調校至較低音量，承認安排不理想，因此改正有關安排。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/吳靄儀-初選大起訴-20210303234537_20f9_large.jpg" alt="">
+<figcaption>大律師吳靄儀連日均有現身西九龍裁判法院。周滿鏗攝</figcaption>
+</figure>
+
+### 執業40年刑事律師稱不尋常 「審到1點幾難以置信」
+
+資深刑事律師高恒（Colin Cohen）在網誌說，自己在香港執業40年，從未見過如此情況，涉及大量被告審訊一般都會分批處理。
+
+他接受眾新聞查詢時說，裁判官一般完全控制審訊安排，包括提訊是否延長，但認為本案大可參考2019年Uber司機非法取酬案，分批及由多於一名裁判官處理，認為案件的審理管理「不尋常」（unusual）。
+
+高恒說：「法官審到1點幾（註：首日聆訊凌晨2時半才休庭），這是難以置信，被告沒有足夠的睡眠和食物，這是不尋常及不需要的，我執業多年都未見過。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923184644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大搜捕-初選大起訴-20210303231916_1e34_large.jpg" alt="">
+<figcaption>資深刑事律師高恒（Colin Cohen）。網上圖片</figcaption>
+</figure>
+
+警方要求被告提早報到及落案後，控方據報在庭上申請將案件押後三個月至5月底，等候進一步調查，高恒說這也是另一個「不尋常」（unusual）之處。
+
+「控方一般除非已有充分準備，否則不會落案控告，所以當警方提前（一個月）拒絕保釋，然後說要再多三個月調查，是不尋常的。過去大量廉署及其他案件，控方都繼續容許被告保釋，準備好才檢控，但國安法則可能完全不同。」
+
+案件編號：WKCC813/2021
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923184644/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,38 @@
+---
+title: "為咗「X心出行」中學要改校規？"
+date: "2021-12-08"
+last_updated: "2021-12-08 04:27:57"
+author: "論盡教育界"
+category: "眾說"
+tags:
+  - "校規"
+  - "安心出行"
+url: "https://web.archive.org/web/20220925215113/https://hkcnews.com/article/48724/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDx%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48724/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDx%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 為咗「X心出行」中學要改校規？
+
+依家香港有好多中學，都規定咗學生係唔可以將手機帶返學校度跟身嘅。有啲學校完全唔俾學生帶手機入學校，有啲就要求如果個別學生真係要帶手機嘅話，就要每朝早入到學校後將手機交出嚟放喺某個櫃入面鎖起佢，到放學時候先至可以再攞番部手機離開學校。
+
+普遍中學嘅呢個校規做法，睇怕唔容易撐得幾耐。
+
+因為特區政府宣布咗，由12月9號起，強制市民進入任何食肆前都必定要用「X心出行」掃一掃。香港大部分嘅中學生都係外出午膳嘅，咁嗰啲響應咗特區政府嘅呼籲，有超過七成師生打咗疫苗可以回復全日上課嘅學校，佢啲學生遲啲點樣食晏呀？
+
+<figure>
+<img src="https://web.archive.org/web/20220925215113im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/安心出行-安心出行App-20211206184551_21b4_large.jpg" alt="">
+</figure>
+
+呢啲學校，一係改校規，俾學生帶手機入學校然後跟身；一係就預咗將來差不多全校學生都會帶手機返學，然後每朝早收一次手機、午膳前派一次手機、午膳後又再收一次手機、放學後又再派一次手機。清貧學生如果無 smartphone嘅話，就唯有自己帶飯，自己留喺學校食晏喇。
+
+好快，呢啲中學會由唔鼓勵學生帶手機返學，變做要提醒學生記住要帶手機返學先至有飯食呀。
+
+真係論盡。
+
+---
+
+![博客 | 論盡教育界](https://web.archive.org/web/20220925215113im_/https://hkcnews.com/uploads/avatars/343842dc-b590-4aef-b034-70a252c1fd1b.png?1220308004)
+
+**博客 | 論盡教育界**
+
+【論盡教育界專欄】論盡教育界，因為時下嘅香港教育界，真係有唔少論盡嘢。

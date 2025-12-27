@@ -1,0 +1,49 @@
+---
+title: "特首林鄭周一晚禮賓府跌倒　右手肘骨折留醫瑪麗　鄭若驊、陳肇始亦曾跌傷骨折"
+date: "2021-10-19"
+last_updated: "2021-10-19 01:42:31"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "林鄭月娥入院"
+  - "骨折"
+url: "https://web.archive.org/web/20220625171320/https://www.hkcnews.com/article/46631/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46631/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 特首林鄭周一晚禮賓府跌倒　右手肘骨折留醫瑪麗　鄭若驊、陳肇始亦曾跌傷骨折
+
+<figure>
+<img src="https://web.archive.org/web/20220625171320im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/林鄭月娥入院-骨折-林鄭月娥-20211019005216_2094_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+行政長官林鄭月娥周一（10月18日）晚上入院，留醫瑪麗醫院骨科病房。
+
+翻查政府新聞處資料，林鄭月娥周一先後出席三個公開活動，分別是東京2020殘疾人奧運會中國香港代表團返港歡迎儀式、2021粵港澳大灣區高峰論壇及深水埗地區康健中心開幕典禮。   
+   
+ **政府新聞處今日凌晨0時20分發放新聞稿全文：**
+
+**行政長官林鄭月娥昨日（10月18日）晚上在禮賓府跌倒，自行前往醫院，經醫生檢查後證實右手手肘輕微骨折。按醫生建議，林鄭月娥將留院觀察，並暫時休假。**
+
+**今日（10月19日）行政會議將休會，會議前的會見傳媒環節將會取消。林鄭月娥休假期間，由政務司司長李家超署理行政長官職務。**
+
+資料顯示，林鄭月娥對上兩次休假分別在2017年底及2018年底，自2019年開始未曾休假，至同年8月初，正值反修例運動期間，政府新聞處表示有網上傳言指林鄭月娥將休假7天，政府發言人表示有關消息毫無根據，行政長官沒有計劃休假。
+
+### 鄭若驊曾在倫敦跌傷　陳肇始三度傷手
+
+翻查資料，過去至少有兩名高官受傷骨折。
+
+2019年11月，律政司司長鄭若驊在英國倫敦出席活動時，被示威者包圍，期間混亂跌倒受傷。其後，鄭若驊披露在英國接受手術後由中國駐英大使館安排到北京治療，她稱其傷勢是「comminuted intra-articular distal radius fracture with subluxation」，即左手腕受傷，前臂有骨折，手腕有部分脫位，並引述醫生指，其左手功能需3至12月才能完全恢復。
+
+<figure>
+<img src="https://web.archive.org/web/20220625171320im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/鄭若驊-律政司司長-20191203211114_a678_large.jpg" alt="">
+<figcaption>EYEPRESS圖片</figcaption>
+</figure>
+
+另外，食物及衛生局局長陳肇始至少三次受傷。2015年10月，她做健身運動時失平衡跌倒，右手虎口位舟骨骨裂，需以護腕固定右手，期間如常工作。2019年3月，陳因意外滑倒，右手輕微骨折並觸及手腕舊患，需到瑪麗醫院求診及打石膏，更缺席公開活動。至今年6月，陳肇始出席立法會議，其左臂及手腕位置紮上繃帶，新聞秘書解釋，陳意外跣倒致左手受傷無大礙，日常工作不受影響。陳其後表示，因辦公室廁所地下濕滑，不小心滑倒。
+
+<figure>
+<img src="https://web.archive.org/web/20220625171320im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/骨折-林鄭月娥入院-陳肇始-20211019011034_b523_large.jpg" alt="">
+<figcaption>食物及衞生局局長陳肇始周一出席活動時，左手手腕仍然包紥着。（政府新聞處圖片）</figcaption>
+</figure>

@@ -1,0 +1,60 @@
+---
+title: "壹傳媒董事會中段遇主筆被捕　非執董斥當局如「挾持人質」"
+date: "2021-06-28"
+last_updated: "2021-06-28 15:10:59"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "壹傳媒"
+  - "Mark Clifford"
+url: "https://web.archive.org/web/20210918135217/https://www.hkcnews.com/article/42850/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-mark_clifford-42854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42850/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-mark_clifford-42854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 壹傳媒董事會中段遇主筆被捕　非執董斥當局如「挾持人質」
+
+香港《蘋果日報》在國安法陰影下被迫停運，壹傳媒獨立非執董、《南華早報》前總編輯Mark Clifford接受眾新聞訪問時表示，在董事局開會期間得悉主筆李平被捕，令董事除考慮財政因素外，也要考慮員工安危及被捕因素，但他不評論事件最終有否令董事局轉軚停止《蘋果》營運。
+
+《蘋果日報》一年內兩度被搜查，在壹傳媒行政總裁張劍虹及《蘋果》總編輯羅偉光本月17日被捕其後再被起訴後，《蘋果》一度堅持繼續出版，但事態在之後一個星期急轉直下，先後面對《蘋果》資產被凍結帶來實際營運困難，再有主筆楊清奇（筆名李平）在周三（23日）被捕，周日晚（27日）又傳來英文版主管盧峯在機場被捕的消息。截止今日（28日）為止，在過去兩周，已有7名《蘋果》或壹傳媒人員，因涉國安法被捕。
+
+<figure>
+<img src="https://web.archive.org/web/20210918135217im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/取締蘋果-壹傳媒-Mark%20Clifford-20210628112947_25e3_large.png" alt="">
+<figcaption>壹傳媒集團獨立非執行董事Mark Clifford。照片來源：National Committee on U.S.-China Relations影片截圖</figcaption>
+</figure>
+
+壹傳媒董事會原定上周五開會定《蘋果》去留，後來提前於周三開會。翻查當日事發時序，警方在周三早上11時08分證實李平被捕，其後接近下午2時，消息傳出壹傳媒董事會開會及有決定，約下午3時，董事會刊發公告證實停運決定。
+
+1992年來港、現為壹傳媒獨立非執董的Mark Clifford接受眾新聞訪問時表示，作為壹傳媒的獨立非執董跟員工一樣承受巨大壓力，尤其是有未經證實傳聞指有更多記者可能被捕。「我可以說，我們（董事局成員）在董事會進行期間，知道又一員工被捕了。除了財政上的考慮，我們多了一重關注，就是員工的範疇，我們不能坐視員工被任意針對及拘捕。」
+
+他形容，當局一再拘捕《蘋果》員工猶如「挾持人質」，因為《蘋果》銀行戶口已經被凍結，完全無需要用更多人作為人質。
+
+「在國安法下，大部分人都不會獲得保釋。基本上，被告都是有罪推定，做法是違反《基本法》。」Mark Clifford如是說。
+
+他提醒，中共建政以來多次以人質方式處理事情，例如中國至今仍拘留加拿大前外交官康明凱（Michael Kovrig）及商人斯珀弗（Michael Spavor），作為報復孟晚舟在加拿大被拘捕。
+
+時任保安局局長李家超早前凍結壹傳媒三家公司資產，截止上周六，保安局仍未回覆會否解凍《蘋果》部分資金用作出糧給員工。眾新聞早前報導，保安局要求《蘋果》提供員工名單。Mark Clifford批評，李家超做法有如「法外手段」，法庭未判已無法支薪，做法違反《基本法》。他說，蘋果已向保安局提供用於僱員支薪的詳情，但保安局仍未答覆，員工至周六也未出糧。
+
+他形容：「我認為這樣是錯的，因為很多人與保安局調查國安法無關。……不論任何人做了什麼事，（支薪）是完全另一回事。目前也沒有針對任何人的法庭裁決，但這已等同是集體懲罰。」
+
+對於特首林鄭月娥及多名官員先後說《蘋果》拘捕無關新聞自由，Mark Clifford說口長在官員處，但他認為所有明理的人都會知道，《蘋果》因財政壓力及政府採取手段被逼停運，做法窒礙新聞及言論自由，對香港是黑暗的時代。他說，香港傳媒目前仍然有空間報道新聞，但空間正在收窄，「這裏仍未到西藏，也未至於是另一個中國城市，因為香港過去多年都是國際金融中心。」
+
+他特別提醒，當局透過打擊《蘋果》展示給其他傳媒看，中共會繼續控制香港，而中共可能認為專制管治下仍可以吸引國際資金，令香港繼續跟倫敦紐約平起平坐，但沒有自由就不會有國際金融中心，當日《中英聯合聲明》及《基本法》保障了港人享有自由，正是因為當時港人信不過中國共產黨。
+
+Mark Clifford與壹傳媒創辦人黎智英在1993年相識，他形容黎智英敢於提供其他傳媒老闆不敢做的事情，就是提供支持民主的聲音，黎本人也一直相信民主。至於有什麼對黎智英說，他顯得相當審慎不願多談，因為控方在黎智英案中引述過Mark Clifford對談內容作為案中「證據」。
+
+> **您（黎智英）是非常勇敢的人，我真的不能再多講⋯⋯我也想對所有在香港《蘋果》的同事說，你們過去數星期及過去25年做的傑出工作，贏得世界驚喜及讚賞。**
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918135217/https://www.hkcnews.com/aboutus/#subscribe)

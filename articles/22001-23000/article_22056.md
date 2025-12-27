@@ -1,0 +1,103 @@
+---
+title: "上水遊行變警民衝突　青年險跳橋　多人受傷"
+date: "2019-07-14"
+last_updated: "2019-07-14 05:03:17"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "警民衝突"
+  - "光復上水"
+  - "跳出天橋"
+url: "https://web.archive.org/web/20210924093447/https://www.hkcnews.com/article/22056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22066/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/22056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22066/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 上水遊行變警民衝突　青年險跳橋　多人受傷
+
+有市民昨午發起「光復上水」遊行，部分示威者遊行後聚集在上水廣場對開馬路，其後發生警民衝突。警方下午用胡椒噴霧驅散人群，晚上清場時在天橋及地下不斷推進防線，期間有青年被警員追捕期間，突然攀出天橋欄杆「半天吊」險墮地，最後被攝影記者及警員拉回上橋，該名青年涉嫌非法集結被捕。立法會議員尹兆堅其後上前斥責警員罔顧人命，在現場目擊驚險一幕的社工Jackie [批評](https://web.archive.org/web/20210924093447/https://www.hkcnews.com/article/22051/%E9%80%83%E7%8A%AF%E6%A2%9D%E4%BE%8B-%E5%85%89%E5%BE%A9%E4%B8%8A%E6%B0%B4-%E8%B7%8C%E5%87%BA%E5%A4%A9%E6%A9%8B-22055/%E5%B9%B4%E9%9D%92%E4%BA%BA%E8%A6%81%E9%9D%A2%E5%B0%8D%E5%A4%9A%E5%A4%A7%E6%81%90%E6%87%BC%E6%89%8D%E6%9C%83%E4%B8%8D%E9%A1%A7%E7%94%9F%E6%AD%BB%E5%BE%9E%E5%A4%A9%E6%A9%8B%E8%B7%B3%E5%87%BA%E5%8E%BB%EF%BC%9F) 警方追捕手法：「究竟一位年青人要受多大驚嚇才會不理死活跳出天橋？」
+
+警方晚上在Facebook發文，表示有示威者用鐵枝、疑似刺激性粉末及液體等襲擊警察，導致多名警員手腳及面部受傷，其中10名警員送院治療後出院，稱強烈譴責及會追究到底。警方出動胡椒噴霧及警棍清場期間，有示威者疑頭部流血受傷，有記者被警員以警棍及圓盾揮打推撞受傷。警方共拘捕兩名男子，涉嫌非法集結及欠交罰款。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/光復上水-警民衝突-反送中-20190714023914_2f75_large.jpg" alt="">
+<figcaption>警方下午清場時，出動胡椒噴霧驅散示威者。鄭靖而攝</figcaption>
+</figure>
+
+昨日下午5時許，遊行完結後，大批示威者陸續前往上水廣場一帶天橋及馬路聚集，其後與警方發生衝突，警方一度出動胡椒噴霧驅散示威者，其後慢慢撤退至北區大會堂附近位置。示威者一度追隨，包圍北區大會堂，及後再移動到新運路，一路向警方在新運路的防線推進，有示威者高呼「香港警察，知法犯法」等口號，警方的防線則一直後退。
+
+立法會議員范國威及數名區議員嘗試與警方協調，並向警方表示，示威者正在撤退。至約5時50分，警方高舉紅旗要求停止衝擊，向示威者推進，並出動胡椒噴霧及警棍，有示威者受傷倒地。警方將示威者推往上水火車站方向，至智昌路交界左右，其後撤退。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/警民衝突-光復上水-反送中-20190714024147_280e_large.jpg" alt="">
+<figcaption>有示威者受傷倒地。鄭靖而攝</figcaption>
+</figure>
+
+警方撤退後，大批示威者仍逗留在新運路，並在馬路上設置鐵馬。過了不久，有示威者就表示，因為人手及物資不足，認為沒有必要繼續佔據馬路。傍晚約7時許，部分示威者轉往石湖墟一帶的藥房集中地。一間正營業的藥房被示威者圍在門口追撃，痛斥店員「出賣香港」，最後店舖落下捲閘關門。上水多間藥房及藥妝店昨日都沒有營業，示威者就用噴漆在捲閘塗上「反送中」等抗議字句。其中深受水貨客歡迎、設有多間分店的龍豐藥房，成了示威者的主要目標，在新豐路及龍琛路交界的新龍豐藥房，閘前前被圍起三角鐵馬陣。
+
+不過，有示威者不太同意行動，在人群中高呼：「搞藥房有乜目的呀？聽日沙田見啦。」現場亦不時有人呼籲示威者離開。晚上近8時，不少示威者都已散去。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/反送中-光復上水-20190714024122_28ce_large.jpg" alt="">
+<figcaption>部分示威者在龍豐藥房外，以三角鐵馬陣封起閘口。鄭靖而攝</figcaption>
+</figure>
+
+警方晚上7時45分在Facebook專頁警告即將清場。約8時許，大批警員由新運路近新豐路交界開始向示威者推進，當時仍在街道的示威者陸續散去。其後警方兵分兩路，部分繼續在街道驅散，部分則步上通往上水廣場的天橋。警方在天橋各個方向推進中心，當時街道及天橋上的示威者已不多，一些街坊好奇在商場內透過玻璃張望。
+
+有警員在天橋追捕示威者，一名示威青年被數名警員追捕期間，突然攀過天橋欄杆，身體懸在半空，只有單手扶著欄杆險墮下，在旁的攝影記者拉著青年的手臂，其後亦有警員合力把青年拉回天橋。驚險一幕發生後，在場人士立即激動怒斥警察。在現場的立法會議員尹兆堅，上前斥責警員罔顧人命，他表示在混亂中有警員以警棍打中其額頭。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/光復上水-逃犯條例-跳出天橋-20190714014547_286e_large.jpg" alt="">
+<figcaption>有示威者被警員追捕期間，突然翻身攀出欄杆外，身體懸在半空，最終由攝影記者及警員合力拉回天橋。美聯社</figcaption>
+</figure>
+
+
+{{< video src="https://web.archive.org/web/20210924093447if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F359131208119856%2F&show_text=0&width=560" >}}
+
+
+警方其後發新聞稿，稱當時一名男子涉嫌阻礙警方防線推進，在警員嘗試上前了解期間突然逃跑及跨出欄桿，警員立刻捉緊男子並將他救回。警方指，該名示威者涉嫌非法集結被捕。
+
+及至晚上9時許，有警員要求商場封閉天橋出口，亦有警員守在天橋出口前。有上水街坊對未能經天橋回家感到不滿。約9時45分，警員已大致清場完畢，橋上仍有部分街坊及行人逗留，有警員在街道及天橋截查行人身分證。
+
+香港攝影記者協會及香港記者協會凌晨發聲明，指警方在上水清場期間，多次推撞前線記者的鏡頭和身軀，更有記者被警員以警棍揮打，或者以警盾連續推撞，兩會表示遺憾，促警方正視警權問題，尊重傳媒的採訪權。
+
+聲明指，清場期間，NOW新聞一名攝影師手持大型攝錄拍攝，被一名身穿警方黑色背心的便衣警員，在後方衝前數步以警棍揮打大腿，幸而該攝影師及時退後避開；一名文匯報記者在採訪時亦受警員攻擊，該記者身穿反光衣以及戴著寫有「記者」字眼的頭盔，但仍然被一名情緒激動的警員用圓盾揮打兩至三次；一名自由攝影記者在警察清場期間，被幾名警員多次用盾牌推撞，更有警員不斷用警棍指嚇並逼近，該記者多次舉起記者證並澄清是記者，警員仍然向前逼近大叫，以及再以盾牌推撞；一名東方日報記者在拍攝期間，亦被警員用盾牌推撞兩次，並一度推開攝影機，以及質疑記者推撞警察，最後該警員自行離開。
+
+警方凌晨3時15分在Facebook發新聞稿再次譴責示威者，稱「警方再次留意到當人員向前推進進行驅散時，有立法會議員及其他人士站在警方的推進線前，阻礙警務人員執行職務，這些行為亦同時為議員本身、警務人員、傳媒及示威者帶來極大的人身安全風險。」
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/反送中-光復上水-20190714024159_88c6_large.jpg" alt="">
+<figcaption>下午的「光復上水」遊行。鄭靖而攝</figcaption>
+</figure>
+
+傍晚至晚上衝突發生前，下午舉行「光復上水」遊行，3時半由北區運動場出發，途經開設多間水貨店、藥房的街道，龍頭在約4時半到達終點上水花園，遊行申請人梁金成稱，逾3萬人參與遊行。
+
+過往多次反水貨客的「光復」行動，都會出現遊行人士與水貨客的衝突場面。不過，昨天遊行前，遊行範圍大部分店舖都沒有營業，附近的店舖都在遊行開始前拉大閘，遊行期間亦不見大批拖喼水貨客或內地遊客。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/光復上水-反送中-20190714024103_1fe7_large.jpg" alt="">
+<figcaption>昨日遊行範圍大部分店舖均沒有營業。鄭靖而攝</figcaption>
+</figure>
+
+遊行途徑路線貼滿各式反水貨標語，亦有人以簡體字呼籲內地客勿再來港走水貨。在上水設有極多間分店的龍豐藥房，更成為「景點」，遊行人士每每經過龍豐藥房，就會大喊「龍豐收皮」。遊行的口號除了「取消一周一行」、「踢走水貨客走私」、「光復上水」外，亦有「撤回惡法」、「林鄭下台」等反送中主題口號。
+
+昨天的遊行，來了兩位上街稀客，分別是新界鄉議局永遠顧問簡炳墀，及上水區鄉事委員會主席侯志強。遊行隊伍甫步出運動場，有人就發現簡炳墀走在對面行車線的馬路，梁金成等人一直大叫簡炳墀加入，簡只微笑揮手，未料其後他真的加入遊行隊伍，更一度走在隊頭帶隊。簡炳墀對反水貨的訴求表示支持，認為應「踢走水貨客」。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/光復上水-簡炳墀-20190714025737_17f9_large.jpg" alt="">
+<figcaption>簡炳墀參與反水貨客遊行。鄭靖而攝</figcaption>
+</figure>
+
+早前曾揚言為上街者設置水站的上水區鄉事委員會主席侯志強，在遊行路線途經的地方設置飲品補給站，免費派發每人一支飲品或檸檬茶。侯志強說，任何人到一個地方購物都需要守法，至於對修例的意見，他認為可以慢慢商議，不必急於推行。
+
+<figure>
+<img src="https://web.archive.org/web/20210924093447im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/光復上水-侯志強-20190714024041_2664_large.jpg" alt="">
+<figcaption>曾稱要「用掃把掃走」反水貨客示威者的侯志強，昨天現身遊行途經的街道，更向上街者派發飲品。鄭靖而攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924093447/https://www.hkcnews.com/aboutus/#subscribe)

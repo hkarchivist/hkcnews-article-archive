@@ -1,0 +1,74 @@
+---
+title: "返港後須檢疫隔離14天　有鑽石公主號香港乘客指做法多餘　家居隔離較合理"
+date: "2020-02-17"
+last_updated: "2020-02-17 22:58:29"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "黎棟國"
+  - "保安局局長"
+  - "保安局"
+  - "Secretary for Security"
+  - "武漢肺炎"
+  - "鑽石公主號郵輪"
+url: "https://web.archive.org/web/20210729221311/https://www.hkcnews.com/article/27010/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27013/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/27010/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27013/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 返港後須檢疫隔離14天　有鑽石公主號香港乘客指做法多餘　家居隔離較合理
+
+停泊在日本橫濱港的郵輪「鑽石公主號」周一（17日）再多99人確診武漢肺炎，船上累計病例增至454宗，當中包括21名港人，14天的隔離期在周三（19日）屆滿。保安局局長李家超傍晚表示，將於周三派出兩架包機接載獲准登岸的港人，但回港後仍需在檢疫中心隔離14天。他呼籲船上港人乘搭包機回港，之後自行回港，仍要隔離14天的可能性非常高。帶隊到日本安排包機等事宜的保安局副局長區志光晚上抵達日本，他呼籲船上港人明天（18日）要決定是否乘坐包機，因要核對港人名單、安排接駁交通和機上座位、運送行李等需時。
+
+港人乘客陳太接受眾新聞訪問時，她認為已經在船上等候14天隔離期及以日方已經檢測完畢，回港再到檢疫中心隔離做法多餘，沒有考慮乘客的精神健康，亦浪費公共資源，她願意接受家居隔離。陳太表示她昨天已接受檢測，會先等結果再作打算，她也擔心乘坐包機有一定風險，又指可參考美國撤離方案，規定不乘坐包機的人一段時間內無法回國，做法較為合理。
+
+
+{{< video src="https://web.archive.org/web/20210729221311if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F192187445200449%2F&show_text=0&width=560" >}}
+
+
+保安局副局長區志光和入境處處長曾國衞周一傍晚帶領一隊約30人的先遣隊伍出發到日本，準備包機接載「鑽石公主號」港人行動。未有隨隊的李家超周一下午見記者時表示，先遣隊伍抵達日本之後，會先與中國駐日大使聯繫。今次行動是獲中央、外交部、外交部駐港特派員公署和中國駐日大使館關心和支持。周二會再派人到日本支援，整個行動包括8名醫管局、衞生署職員，其餘是保安局、入境處人員。各人和機組人員會獲得充分的保護裝備。
+
+李家超表示，船上有350名港人，當中260人是香港永久性居民、90人持其他國家護照。局方將會派2架包機，每架有438個座位，會有特別座位安排以減少感染風險，包機在周三將會準備就緒，待港人通過病毒檢測要求，之後由日方安排交通到羽田機場，檢測體溫後便可以上機。
+
+李家超又說，根據醫學專家、病學數據和公共衛生資料，跟隨包機的港人回港後，也需要在檢疫中心接受14天隔離，被問到有關檢疫中心的位置，他表示正在積極安排。中大呼吸系統科講座教授許樹昌今早出席電台節目時說，船上病毒仍很活躍，郵輪是已被污染的疫區，縱使船上的人離船時並無病徵，風險仍然存在，返港後均應作隔離檢疫14天，而且因其健康風險較普通過關來港人士高，因此不宜作家居隔離。
+
+李家超又被問到，若有港人不願意跟隨包機回港，當局會如何處理，李稱，會奉勸船上香港居民跟隨包機，因即使不跟隨包機，之後回港或同樣需要接受14天隔離檢疫安排，「所有香港居民今次的名單，我哋都會喺入境處有紀錄，所以佢哋返到來香港，（港口）衞生科同事一定會向佢哋查問，所以佢哋接受14天隔離的可能性非常高。」李家超又說，船上乘客現在自行找酒店和安排航班會有困難。李又表示，確診者、與確診者緊密接觸者以及未能通過病毒檢測的人士不能登機，而入境處將有人員留在日本處理相關人士的需要。
+
+<figure>
+<img src="https://web.archive.org/web/20210729221311im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/鑽石公主號郵輪-武漢肺炎-20200217205749_1b18_large.jpg" alt="">
+<figcaption>陳太表示，房間有露台，但為了避免不必要接觸，會選擇留在房中，沒有外出「放風」。受訪者提供</figcaption>
+</figure>
+
+53歲的陳太與先生在1月25日上船，自2月5日、出現首宗確診個案後已沒有離開房間，至今困在房間已經十二日，眾新聞記者以WhatsApp與她聯絡，陳太批評回港後仍要在檢疫中心隔離14天的做法多餘，沒有考慮乘客的精神健康，亦浪費公共資源。
+
+她認為他們已經在船上等候14天隔離期以及經過日本當局的檢測，陳太表示，昨天已進行檢測，要先等結果才作打算。她表示願意接受家居隔離，又指可參考美國撤離方案，規定不乘坐包機的美國公民一段時間內無法回國，做法較為合理。
+
+陳太又說，船公司2月9日已發信通知他們會負責回程費，形容政府是後知後覺，「人哋搞掂哂後至走出來博攞個尾彩，唔提被困武漢嘅港人？佢哋情況更差更需要幫助。」
+
+陳太表示，與丈夫兩人目前情況良好，船上的氣氛平靜，房間有露台，為了避免不必要接觸，兩人選擇留在房中，沒有外出「放風」。每日都有人將三餐送到房間，另有兩升的瓶裝水、杯麵、零食及飲品等供應，她在開門取餐時會戴上口罩。陳太說娛樂方面，船上提供免費上網，以及有很多電影電視節目可收看，也有填字拼圖、數獨、小手工和報紙等，陳太形容時間過得很快。
+
+<figure>
+<img src="https://web.archive.org/web/20210729221311im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/武漢肺炎-鑽石公主號郵輪-20200217205640_2cb6_large.jpg" alt="">
+<figcaption>陳太說船上提供免費上網，以及有很多電影電視節目可收看，她形容時間過得很快。受訪者提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210729221311im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/武漢肺炎-鑽石公主號郵輪-20200217205800_2478_large.png" alt="">
+<figcaption>船上有小手工、杯麵、零食及飲品等供應。受訪者提供</figcaption>
+</figure>
+
+陳太又指，衛生方面沒有什麼問題，有乾淨的床單和毛巾替換，亦有派發清潔用品和提供洗衣服務。她認為船公司安排妥當，所以沒有主動聯絡港府。在船上，她也有留意香港的新聞，眼見民間近日要為口罩、日用品而頻撲，感到悲哀，她斥責政府「管治無能、事事倒行逆施，與民為敵。」自己也要為返港後需要用到口罩而煩惱，現時只得6個N95和幾個普通口罩，「一直撲緊，船公司派的都不捨得用」，她希望回港後可以做做運動，與家人見面。
+
+<figure>
+<img src="https://web.archive.org/web/20210729221311im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/武漢肺炎-鑽石公主號郵輪-20200217205659_2586_large.jpg" alt="">
+<figcaption>入境處早前向港人乘客送上小禮物包，當中包括六個口罩、清潔用品等。受訪者提供</figcaption>
+</figure>
+
+美國早前已經派出包機接載美國公民，兩班包機在當地時間周一已分別抵達加州及得州的空軍基地，之後再隔離乘客14日。當局強調措施屬自願性質，但不乘坐包機的公民一段時間內將無法回國，陳太表示，有不少美國人沒有乘坐包機，她亦認為乘坐包機也有一定的風險。美國國務院與美國衛生及公共服務部（HHS）周一 [發表聯合聲明](https://web.archive.org/web/20210729221311/https://www.state.gov/joint-statement-by-u-s-department-of-state-and-u-s-department-of-health-and-human-services-on-repatriation-of-american-passengers-from-the-diamond-princess-cruise-ship/) ，指出乘坐包機的公民中，有14人驗出對新型冠狀病毒呈陽性反應，稱這些乘客是從鑽石公主號下船，準備搭乘包機回國的途中被告知確診武漢肺炎，並以最快、最安全的方式轉移他們到撤離機上的特定區域進行隔離。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729221311/https://www.hkcnews.com/aboutus/#subscribe)

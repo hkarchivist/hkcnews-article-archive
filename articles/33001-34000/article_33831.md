@@ -1,0 +1,57 @@
+---
+title: "如果命運能選擇？《天能》觀後感"
+date: "2020-09-14"
+last_updated: "2020-09-14 13:15:11"
+author: "古華多羅"
+category: "眾說"
+tags:
+  - "香港人"
+  - "天能Tenet"
+url: "https://web.archive.org/web/20211027162308/https://hkcnews.com/article/33831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtenet-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33834/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtenet-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33834/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 如果命運能選擇？《天能》觀後感
+
+**警告：下文大量劇透，勿謂言之不預**
+
+《天能》（Tenet）為大導諾蘭（Christopher Nolan）新作，被譽為疫情中的戲院救星。貫徹其作風，把弄過魔術、蝙蝠俠、心靈空間、黑洞和二戰後，今次的題材是時間和空間，而今次「扭橋」的程度超越前作。尤其是同時出現前行和逆行的角色和武器之時的確令人十分摸不著頭腦，除了視覺享受外也是劇情張力所在。
+
+
+{{< video src="https://web.archive.org/web/20211027162308if_/https://www.youtube.com/embed/AZGcmvrTX9M" >}}
+
+
+故事講述末來人類發明把人和物內的熵（entropy）逆轉的方法，使物件能時間中逆行。本來只是少數物品逆行無傷大雅（只要時間上同一物件不碰上便可），直至有科學家發明了一架能把整個世界都逆轉的機器。科學家知道這機器或能把整個宇宙毀滅，為防被人利用把機器分為九份逆轉後收藏然後自殺。當時自然環境已受到破壞，有一批未來人認為過去的人必需負責，所以把機器的事和資金透過逆轉後埋藏的方式傳給反派Sator，要求他把機器所有重組後通知未來人，好讓他們毀滅過去的人。由於Sator患癌命不久矣，所以重組機器後便埋在他出生的神秘前蘇聯城市等候未來人收貨。而主角被神秘組Tenet招募，一行人阻止Sator 找到和組合機器。
+
+而在電影中經常出現的就是時空順逆交替，時序因果等令人十分困惑，就像一切已經做成了才倒退成現在的樣子，在未來有一段過去。當時序逆轉，事物都像已被命定般，順著的人看似只能接受。主角竭力逆流而上完成任務，就是劇情的張力所在。主角得知這個逆熵法則之後不禁也問，那自由意志呢？最後當主角知道Neil 其實也是逆轉回來並且拍擋多年，在未來有一段過去。Neil 講出了整套戲的重點：就算看似命定也必須make a stand（為立場擺上）而非袖手旁觀。命運對他而言只是現實的部份，然後他就去擁抱其悲劇的命運。
+
+<figure>
+<img src="https://web.archive.org/web/20211027162308im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/天能Tenet-20200914125640_2f96_large.jpg" alt="">
+<figcaption>《天能》Tenet電影海報。</figcaption>
+</figure>
+
+這電影的命題與希臘悲劇一脈相承。悲劇產生於對命運——無論是天意，神祉的爭鬥還是一己的限制——的反抗，但最後人仍然無力回天。試問，縱然命運已寫在牆上，反抗為何？為自由嗎？但命運之前人們還有自由呢？
+
+筆者認為，這電影批判沙特（Jean-Paul Sartre）式的存在主義（existentialism），透過選擇去察驗自由的方程式。歌都有得唱，「如果命運能選擇」，人們對能否選擇（或重選）十分執迷。在今日科技之下，電子化大數據、數碼監控普及（遑論甚麼逆熵），一切能選的和某一個抉擇都已盡在計算之內，就如Matrix 中的母體一般。那麼再選擇是否都是只是一個命運？真選擇還是否可能？若選擇的經驗也是被限制的話人便失去自由。
+
+反之，這電影擁抱卡繆（Albert Camus）對荒謬的論述，人如《薛西弗的神話》荒謬地不斷幹同一件事也好，其對抗命運的精神就是人的自由和尊嚴，而不是袖手旁觀與萬物同朽。電影中「無知就是最大的武器」，可說是卡繆精神的體現。其「無知」不是否定一切知識，是要否定對命運的認識，才能把現實的可能性推到最大化。人不能夠突破限制（或命運）不代表一切都絕望，反而這意志的偉大在於向命運說不。縱使最後仍然走向命運的軌跡，經已是另一問題，與自由無渉。
+
+電影中Neil 一直貫徹這種精神，逆向與主角相遇並導向其未來，那主角是否沒有自由呢？不是，主角在對未來無知之下力爭完成任務足證他是自由地尋找出路，雖然對Neil 已是過去。主角一步步認知到自己就是Tenet 的主腦後沒有像過去一樣被動接受任務，而是主動迎接和成就將來，認定那是正確的道路，而非受命運的擺弄。
+
+**看倌們，香港經歴了一年多的抗爭，因疫情而到了瓶頸。一些抗爭者被補受審，疫情也加重其生活負擔，加上北方和政府不停加大力度打壓，令一些抗爭者和市民感到絕望。有人移民著草，有人天天在網上叫喊，有人變得犬儒甚至起頭內訌分裂。或許《天能》這電影對香港人的鼓舞是，如果運動又一次失敗，香港若走不出消失死去的命運，今日香港人的反抗已經是其自由和尊嚴了！並且獲得世人的尊重甚至效法。不要以為這只是阿Q 精神勝利法，在歴史上保持其自由和尊嚴的群眾往往能夠聚在一起捱過風雨的例子著實不少。香港人對命運一無所知，只知已在黑暗裡走下去抵抗。這不是順命送頭，而是堅持走到盡頭要看到光明，一代不能也要代代相傳。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027162308/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 古華多羅](https://web.archive.org/web/20211027162308im_/https://hkcnews.com/uploads/avatars/d620263e-097a-42cd-8069-4a14dd5fa7be.png?1237421808)
+
+**博客 | 古華多羅**
+
+【古華多羅・墨鏡外望】墨鏡外望，仍舊失落。 香港土生土長80 後，信耶穌。自幼雜學，多嚼不爛。由中學讀歷史，大學讀電腦和商學，又旁及神學、哲學、社會學、政治學、心理學...本來繼續日日做打工仔，但近年怪事頻生、邪風歪理當道。本著＂I have a voice＂的先知精神，決定要 make my voice count。在這亂世雜音中（自詡）貢獻一下「正能量」。

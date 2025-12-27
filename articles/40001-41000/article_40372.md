@@ -1,0 +1,66 @@
+---
+title: "黎智英4案同日聆訊　8小時游走兩個法庭　每每現身均獲旁聽人士大叫「撐住啊」"
+date: "2021-04-17"
+last_updated: "2021-04-17 01:54:21"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "黎智英"
+  - "判刑"
+  - "818集會"
+url: "https://web.archive.org/web/20210729014959/https://www.hkcnews.com/article/40372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40376/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40376/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 黎智英4案同日聆訊　8小時游走兩個法庭　每每現身均獲旁聽人士大叫「撐住啊」
+
+壹傳媒創辦人黎智英昨早由囚車押到西九龍裁判法院，由早到晚馬不停蹄面對不同控罪，要在八個多小時內，在兩個不同的法庭之間游走，因為他一日內要就4案應訊──早上先就8.18案求情，下午面對8.18案及8.31案的判刑，同時還要分身在另一法庭就被控勾結外國勢力、與兩名壹傳媒高層同涉欺詐罪的兩宗案件提堂。每次黎智英一現身法庭或轉身走進門內，旁聽人士都會大叫支持：「黎生撐住呀！」、「黎生加油」；黎智英就會揮手回應。
+
+共有六案在身的黎智英，昨日首度有案件判刑，就8.18案及8.31案，合共被判囚14個月。
+
+<figure>
+<img src="https://web.archive.org/web/20210729014959im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/818集會-黎智英-法庭-20210417005239_2434_large.jpg" alt="">
+</figure>
+
+73歲的壹傳媒創辦人黎智英自去年12月起，至今已還柙四個月。押解他的囚車昨早近9時半抵達西九龍裁判法院，展開他忙碌的「行程」。
+
+這天涉及多名民主派元老級人馬的案件判刑，大批市民到場聲援，法院門外前一晚已有人排隊等候進庭旁聽，亦有數名外國領事前來，《蘋果日報》總編輯羅偉光等壹傳媒高層亦有到庭。法院外，有少量建制人士舉牌拉橫額及展示黎智英的相片，諷刺黎智英等人被判罪，並用大聲公叫喊。
+
+<figure>
+<img src="https://web.archive.org/web/20210729014959im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/818集會-831-20210416221524_2e71_large.jpg" alt="">
+<figcaption>數名外國領事前來旁聽。周滿鏗攝</figcaption>
+</figure>
+
+首宗案件定於早上9時半開庭，73歲的黎智英穿上灰色西裝到庭，與同被還柙的梁國雄一起步進被告欄。早已坐進被告欄的其餘被告及旁聽人士向他打招呼：「早晨Jimmy」，旁聽席有人站立向他們揮手：「黎智英頂住呀！長毛頂住呀！」黎先向代表他的律師余若薇點頭示意，然後與在他前方的李卓人交談，看來精神不俗。
+
+早上先由法官胡雅文處理8.18案的求情。代表黎智英的資深大律師余若薇指，8.18集會為合法及經批准的和平集會，而黎智英亦不涉及組織角色、沒有參與記者會、沒呼籲人參與，僅僅是參與集會，行使其受憲法保障的權利，建議法庭判處緩刑。
+
+聆訊期間，黎智英不時望向旁聽席，偶爾與旁聽人士點頭打招呼。
+
+經過約三小時聆訊，各人求情完畢後，法官胡雅文宣佈下午宣讀判刑。不過由於黎智英尚有兩宗案件下午提堂，胡官決定於3時15分才開庭，待黎智英完成其提堂程序。下午2時半，黎智英就轉到另一法庭，由總裁判官蘇惠德處理其另外兩宗案件的提堂。
+
+黎智英腋下夾著一本書步進庭內，一進庭就脫下眼鏡，先跟在被告欄前的其餘兩名被告，壹傳媒集團財務總裁周達權及行政總監黃偉強點頭打招呼，之後望向公眾席並揮手。聆訊期間，他雙手交疊身前，左耳傾前到被告欄玻璃之間的縫隙，以較清晰地聽到庭上的對話。黎智英的女兒亦有到庭，休庭期間父女二人隔著玻璃窗交談。
+
+基本上每次黎智英步進法庭或離庭，旁聽人士都會大叫「黎生加油」、「頂住啊」等，黎則會揮手回應。兩個法庭都坐滿來聲援的市民和黎智英的親友，司法機構要開設延伸法庭直播庭上情況。
+
+提堂案件有兩宗，分別是涉國安法勾結外國勢力案及與壹傳媒高層的欺詐罪。就與壹傳媒高層的欺詐罪案件，控方申請將轉介至區院，並申請押後案件，總裁判官蘇惠德批准押後至5月6日下午於區院答辯。
+
+至於涉勾結外國勢力案，黎庭上遭加控兩罪，包括「串謀勾結外國勢力罪」以及「串謀作出傾向並意圖妨礙司法公正的作為」。辯方於庭上指，在開庭前十分鐘才得知控方加控兩罪。「串謀勾結外國勢力罪」控罪指黎於2020年7月1日至2021年2月5日期間，在香港與陳梓華、Mark Simon、李宇軒、劉祖迪及其他人一同串謀，請求外國或境外構構、組織、人員實施對香港特別行政區或中華人民共和國實行制裁、封鎖或其他形式的敵對行為；「串謀作出傾向並意圖妨礙司法公正的作為」控罪則指他於2020年7月某日至2020年8月23日期間，在香港與李宇軒、陳梓華及其他人串謀，意圖妨礙司法公正而作出一項或一連串有妨礙司法公正傾向的作為，即在李宇軒被警務處拘捕後協助他離開香港。此案押後至6月15日再訊。
+
+審理國安法案件的法庭保安嚴密，記者進庭前要經過安檢、不能帶液體入內。在黎智英身旁看守的懲教人員，均穿上高領制服，類似警方的防割頸制服。
+
+提堂程序簡單，維時約二十多分鐘就完成。黎智英緊接著再由懲教人員帶到處理8.18案的法庭，以聽取判刑，得悉被判12個月刑期；稍稍休庭後，再要面對8.31案的判刑，結果被判8個月，最後部分刑期同期執行，合共判監14個月。
+
+聽取判刑期間，黎智英與其他被告均表現平靜。宣判刑期後散庭，各被告陸續轉身走入門後，旁聽市民湧到圍欄前方，舉起五一手勢，高呼「頂住呀！」亦有人高呼「加油黎生！」「加油阿人！」黎智英及李卓人舉起拳頭回應。聆訊於下午5時多完結。
+
+除了已判刑的兩宗案件，以及提堂的國安法案件及欺詐案外，黎智英還有另有兩案將排期上庭，分別是前年10.1遊行案，以及去年維園六四悼念晚會案，被控煽惑、組織及未經批准集結等罪，前者將於5月17日開審，後者於6月11日提訊。
+
+由去年12月至今，黎智英已還柙已4個月，在獄中度過其73歲生日、冬至、新年，只得聖誕期間一度短暫獲保釋。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729014959/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,65 @@
+---
+title: "【台灣疫情大爆發】病毒主要為英國變異株　陳時中：難推斷何時達疫情高峰"
+date: "2021-05-15"
+last_updated: "2021-05-15 21:24:12"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "陳時中"
+  - "台灣疫情"
+url: "https://web.archive.org/web/20210925214817/https://www.hkcnews.com/article/41381/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41382/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41381/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41382/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【台灣疫情大爆發】病毒主要為英國變異株　陳時中：難推斷何時達疫情高峰
+
+台灣新型肺炎疫情今(5/15)爆增180宗本土病例、5宗境外輸入病例，連續第5天創新高紀錄，除台北市、新北市升級至第三級警戒區「禁止室內5人以上、室外10人以上聚會」之限聚令，鄰近縣市包括桃園市、新竹市及宜蘭市也自行宣布將提升至「準三級警戒區」；中央流行疫情指揮中心表示，經基因序列比對，此波大爆發主要是英國變異株病毒造成，中心指揮官陳時中坦言，因疫情來得又快又急，目前尚難推斷何時到達疫情高峰。
+
+<figure>
+<img src="https://web.archive.org/web/20210925214817im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/武漢肺炎-搶物資-台灣疫情-20210515181919_1d68_large.jpg" alt="">
+<figcaption>大部分超市貨架上的即食麵，中午已被搶購一空。鄭智仁/攝</figcaption>
+</figure>
+
+陳時中今天在疫情記者會上表示，今天病例分布區域涵蓋全國7縣市，其中台北市最多有89宗，萬華地區就有43宗，主要是茶藝館和鄰近小吃攤；另外，新北市75宗、彰化縣6宗、宜蘭縣及桃園市各4宗、台中市及基隆市各1宗。
+
+指揮中心今宣布台北市及新北市升高為第三級警戒區，鄰近縣市也自動提升至「準第三級警戒區」，桃園市宣布將關閉境內四大主要夜市，以避免再爆發群組感染。
+
+<figure>
+<img src="https://web.archive.org/web/20210925214817im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/台灣疫情-柯文哲-武漢肺炎-20210515182943_2227_large.jpg" alt="">
+<figcaption>台北市長柯文哲提醒民眾少外出、多待在家中，若真要外出也要戴口罩，也不要在外吃東西。台北市政府提供</figcaption>
+</figure>
+
+因應台北市成為此波疫情重災區，台北市長柯文哲下午在記者會上也表示，除原本已開設的四處檢測站外，會再新開第五處檢測站；台北市立聯合醫院中興院區蔡景耀院長指出，昨天中興、和平、剝皮寮三個檢測站總共檢查近600名民眾，其中近400人已有結果。指揮中心則說，萬華地區快速測試陽性率約10%。
+
+陳時中提醒，有症狀才需要去檢測，就算檢測呈陽性，還是需要再進行核酸檢測，才能確定是否染疫；若無症狀就去檢測，可能會有偽陰性的問題，自以為沒有風險，產生假性安全感，所以民眾若沒有症狀，盡量不要到場排隊，避免造成聚集感染。
+
+陳時中說，今未依共同生活圈，將桃園、基隆等縣市也列入三級警戒，主要是因擔心管制太強，容易造成疲乏，或管制太嚴，讓民眾反彈，反而造成防疫反效果；現在分成警戒二、三級區域，也可有所區隔，民眾應避免在之間相互流動，否則進到風險高的區域，會增加感染風險，風險高往低的區域，也會增加病毒傳播的機會。
+
+柯文哲表示，簡單來說，民眾沒事盡量不要外出，若需要外出，一定要戴口罩，減少飛沫傳染的機會：「盡量留在家裡，沒事不要外出，外出要戴口罩，不要在外面吃東西」
+
+因此波疫情擴散情況極快，指揮中心醫療應變組副組長羅一鈞表示，此波感染是很強勢的英國變疫株造成，包括華航機師、諾富特案，以及新北蘆洲獅子會前會長案、宜蘭羅東電子遊藝場案及萬華茶藝館案，經過基因定序都是相同的英國變異株，造成相互傳播，雖然發生在不同地方，但彼此間還是可看到關聯。
+
+<figure>
+<img src="https://web.archive.org/web/20210925214817im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/武漢肺炎-蘇貞昌-陳時中-20210515181937_2cdd_large.jpg" alt="">
+<figcaption>台灣行政院長蘇貞昌(前排中)視察中央流行疫情指揮中心。圖左二為指揮官陳時中。行政院提供</figcaption>
+</figure>
+
+由於確定病例連日增加，被問到這波疫情何時達到最高峰？陳時中坦言，這次感染爆發情況不同，因規模大，又是變異株，產生影響也不同，很難從過去模式做推估；專家小組當然會做，但光從過去二、三天的病歷來做推出，現在不太準。
+
+在疫苗施打進度上，台灣目前已到或疫苗為AZ藥廠，共約31.6萬劑，原本優先施打醫護人員意願不高，進度落後，原本擔心在5月31日疫苗效期前，可能打不完；不過，因疫情連日升溫，民眾施打意願也大為提高，光昨天就接種32351劑，累計接種數量為18萬6149劑。陳時中說，現在已不擔心打不完。
+
+<figure>
+<img src="https://web.archive.org/web/20210925214817im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/台灣疫情-搶購物資-20210515152103_2f67_large.jpg" alt="">
+<figcaption>超市內結帳人潮不斷，經濟部官員保證不缺物資，請民眾不用搶購。鄭智仁/攝</figcaption>
+</figure>
+
+台灣此波疫情最早由4月20日採檢兩位華航機師確診、4月29日華航諾富特飯店員工染疫，共造成36人染疫，雖一直找不到明確傳播鏈，但疫情並未擴大；正當民眾覺得稍微放心之際，卻在5月10日接連爆發宜蘭羅東遊藝場及新北蘆洲獅子會前會長兩起社區案例，且找不到感染源，此後本土病例逐日增加，包括11日增加7宗，之後在12日增加16宗、13日13例、14日29宗，到了今天，更一舉爆發180宗，5天內累計已達248宗。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925214817/https://www.hkcnews.com/aboutus/#subscribe)

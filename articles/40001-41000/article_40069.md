@@ -1,0 +1,47 @@
+---
+title: "李宇軒首現身法庭　律師拒透露詳情：我都好難做、唔好逼我　胞妹稱告一段落：暫不回答任何問題"
+date: "2021-04-07"
+last_updated: "2021-04-07 21:26:42"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "港版國安法"
+  - "李宇軒"
+  - "羅達雄"
+url: "https://web.archive.org/web/20220811201740/https://hkcnews.com/article/40069/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/40069/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 李宇軒首現身法庭　律師拒透露詳情：我都好難做、唔好逼我　胞妹稱告一段落：暫不回答任何問題
+
+12港人案中，被控串謀勾結外國或者境外勢力危害國家安全等三罪的李宇軒，回港後因接受隔離檢疫而未有現身，其代表大律師羅達雄上周亦拒絕透露詳情。直到今天完成隔離後，終首度現身法庭，開庭後李宇軒由警員將他由羈留室帶出，李宇軒身穿白恤衫，戴黑框眼鏡、束短髮，手持文件，他不時張望庭內的觀眾席，看起來精神不俗。
+
+李宇軒的事務律師亦首度曝光，為律師陳天立。陳天立在庭外表示，當事人不願意透露詳情，僅說：「我都好難做、唔好逼我」。而李宇軒胞妹早前開設的社交網站專頁 "Andy Is Missing"，早前表示已聯絡到李宇軒，但需時消化訊息，專頁再在今日開庭前發帖文稱，由於已經可以接觸到李宇軒，"Andy Is Missing" 這個章節將告一段落，又說由於司法程序已經開始，暫時不會回答任何與李宇軒有關的問題。
+
+<figure>
+<img src="https://web.archive.org/web/20220811201740im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/12港人-陳天立-李宇軒-20210407190612_1bdc_large.png" alt="">
+</figure>
+
+早前有報道指，李宇軒正在小欖精神病治療中心還柙，並由俗稱「神秘組」的懲教人員看管。惟懲教署及警方一直拒絕證實有關消息。據《蘋果日報》報道，今早在小欖精神病治療中心有多輛警方電單車駛入，亦有警員手持長槍戒備，及後亦有囚車駛離小欖精神病治療中心，車隊之後駛到西九龍裁判法院。
+
+李宇軒案件下午3時在西九龍裁判法院提堂，由國安法指定法官、總裁判官蘇惠德處理，控方則由律政司高級檢控官李庭偉代表，辯方繼續由羅達雄大律師代表。一般而言，在開庭前被告已經被安排進入犯人欄等候，惟李宇軒是直到裁判官蘇惠德進入法庭坐下後，才由警員將他由羈留室帶出。
+
+庭上之後讀出他三項控罪，即串謀勾結外國或境外勢力危害國家安全、串謀協助罪犯及無牌管有彈藥。李宇軒清楚讀出「明白」。控方之後申請將案件移交高等法院原訟庭，並押後至5月18日作交付程序。李宇軒今日繼續由大律師羅達雄代表，羅表示李宇軒沒有保釋申請，亦放棄每8日覆核保釋權利。
+
+羅達雄所屬的大律師事務所Olympia Chambers早前曾發聲明，否認羅為傳媒所指的「官派律師」，又指沒有義務將他收到的指示或當事人的詳細情況告知媒體和李宇軒的家屬。散庭後，事務律師陳天立否認自己是「官派律師」，他指當事人不願意透露仼何訊息，拒絕回應其他提問。
+
+根據陳所屬的​歐陽陳何律師事務所，律師樓由歐陽志生律師、陳天立律師及何家傑律師於2013年創立，主要提供工傷賠償、疏忽索償及刑事訴訟/保釋等，網頁及Facebook則主要推銷工傷賠償。至於涉事的陳天立在英國獲律師資格，1997年獲香港執業資格，曾經在法律援助署清盤破產組及刑事訴訟部門工作12年。翻查資料，立法會議員梁美芬上月曾發起法律界人士聯署，支持《全國人民代表大會關於完善香港特別行政區選舉制度的決定》，陳天立亦有參與聯署。
+
+<figure>
+<img src="https://web.archive.org/web/20220811201740im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/李宇軒-12港人-20210407180949_1605_large.jpg" alt="">
+<figcaption>法院外，有至少4名警員荷槍戒備。周滿鏗攝</figcaption>
+</figure>
+
+羅達雄和陳天立之後到法院地下停車場乘私家車離開，隨即有大批記者包圍座駕，一度未能離開，有記者繼續隔住玻璃向兩人提問，場面一度混亂。法院外，有至少4名警員荷槍戒備，囚車之後由多輛警方電單車及警車護送離開。
+
+<figure>
+<img src="https://web.archive.org/web/20220811201740im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/李宇軒-12港人-20210407180455_24bb_large.png" alt="">
+<figcaption>李宇軒胞妹上年開設的社交網站專頁"Andy Is Missing"帖文稱，由於已經可以接觸到李宇軒，"Andy Is Missing" 這個章節將告一段落，感謝各位在過去7個月的支持。"Andy Is Missing" Twitter</figcaption>
+</figure>
+
+李宇軒胞妹上年開設的社交網站專頁"Andy Is Missing"，積極為仍在內地被扣留的李宇軒發聲，專頁在上周五（2日）發帖文表示已聯絡到李宇軒，但需時消化訊息，專頁再在今日開庭前亦帖文稱，由於已經可以接觸到李宇軒，"Andy Is Missing" 這個章節將告一段落，感謝各位在過去7個月的支持。帖文又指由於司法程序已經開始，將暫時不會回答任何與李宇軒有關的問題，感謝大家的體諒。

@@ -1,0 +1,49 @@
+---
+title: "50個善待自己好習慣──#01從摺被開始"
+date: "2020-04-14"
+author: "湯泳詩"
+category: "眾說"
+tags:
+  - "武漢肺炎"
+  - "抗疫"
+url: "https://web.archive.org/web/20210712042025/https://www.hkcnews.com/article/28923/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E6%8A%97%E7%96%AB-28923/50%E5%80%8B%E5%96%84%E5%BE%85%E8%87%AA%E5%B7%B1%E5%A5%BD%E7%BF%92%E6%85%A3%E2%94%80%E2%94%8001%E5%BE%9E%E6%91%BA%E8%A2%AB%E9%96%8B%E5%A7%8B"
+original_url: "https://www.hkcnews.com/article/28923/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E6%8A%97%E7%96%AB-28923/50%E5%80%8B%E5%96%84%E5%BE%85%E8%87%AA%E5%B7%B1%E5%A5%BD%E7%BF%92%E6%85%A3%E2%94%80%E2%94%8001%E5%BE%9E%E6%91%BA%E8%A2%AB%E9%96%8B%E5%A7%8B"
+---
+
+# 50個善待自己好習慣──#01從摺被開始
+
+### 【抗疫日常　精進自身】系列──50個善待自己好習慣
+
+<figure>
+<img src="https://web.archive.org/web/20210712042025im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/抗疫-50個善待自己好習慣-20200414183701_1416_large.png" alt="">
+<figcaption>圖：cloudyup</figcaption>
+</figure>
+
+在教會傳統禮儀年曆中，「復活期」是由復活節到五旬節的五十天，共七個主日，即2020年4月12日至5月31日。瘟疫蔓延時，你有沒有想過怎樣渡過接下來的50天呢？就讓我們一起在抗疫日常，精進自身，建立50個善待自己的好習慣。
+
+<figure>
+<img src="https://web.archive.org/web/20210712042025im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/50個善待自己好習慣-抗疫-20200414183723_d8b4_large.png" alt="">
+<figcaption>圖：cloudyup</figcaption>
+</figure>
+
+**#01從摺被開始**
+
+在《論語・堯曰》，孔子曰：「不知禮，無以立也。」 意即不知道禮儀，就不能立身處世。在行色匆匆的日程中，大多時候我們需要在最短時間完成最多事情。然而，我們仍可在生活日常中，建立簡單禮儀感。一夜醒來，早上起床，好好摺被，不單幫助我們覺察生命氣息， 向創造主獻呈感恩；也幫助我們欣賞自己，至少我們以雙手好好完成每天的第一件事情；更幫助我們不用立刻趕忙，進入庸庸碌碌的顛簸生活之中。善待自己，建立清晨禮儀感，從摺被開始。
+
+「你們清晨早起，夜晚安歇，吃勞碌得來的飯，本是枉然；惟有耶和華所親愛的，必叫他安然睡覺。」詩篇127：2
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712042025/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 湯泳詩](https://web.archive.org/web/20210712042025im_/https://www.hkcnews.com/uploads/avatars/be7a61b3-00ad-4be4-b2b2-acf0e654ca2a.png?1375678620)
+
+**博客 | 湯泳詩**
+
+【湯泳詩・靈心旅程】靈心旅程創辦人，香港基督教工業委員會總幹事，著有《一個華南客家教會的研究：從巴色會到香港崇真會》、《瑞澤香江：香港巴色會》、《社會良心抑搞事份子：香港基督教工業委員會歷史之研究》、《驀然回首：香港婦女基督徒教會幹事口述歷史》、《教會使命與身分尋索：香港基督教協進會史》及《道風行禱：道風山風物志》等，編有《人．性：香港教會不能迴避的牧養需要》、《香港基督徒合一運動研究集錄》及Interactive Pluralism in Asia: Religious Life and Public Space等。

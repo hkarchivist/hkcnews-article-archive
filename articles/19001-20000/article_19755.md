@@ -1,0 +1,33 @@
+---
+title: "瑞典研究：台灣遭外國政府假消息攻擊　受害全球最嚴重"
+date: "2019-04-10"
+last_updated: "2019-04-10 19:51:48"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "假新聞"
+  - "瑞典哥德堡大學"
+url: "https://web.archive.org/web/20220630155657/https://www.hkcnews.com/article/19755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19756/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19756/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 瑞典研究：台灣遭外國政府假消息攻擊　受害全球最嚴重
+
+台灣傳媒報道，瑞典哥德堡大學（University of Gothenburg）主持的V-Dem計劃，日前公布最新的2018年年度資料，其中「數碼社會計劃」（Digital Society Project）就世界各地「遭受外國政府假消息傳播」（Foreign governments dissemination of false information）程度進行調查，發現台灣因假新聞受害的程度，全球最嚴重。
+
+中央社及東森新聞稱，Facebook專頁「菜市場政治學」指，台灣2018年頻繁遭受外國政府及其代言人，利用社交媒體等渠道，傳播誤導的觀點或假消息，影響內部政治情勢，受害程度全球最高。除了台灣，前10名還包括拉脫維亞、巴林、卡塔爾、匈牙利、也門、科索沃、敘利亞、格魯吉亞及委內瑞拉。美國及烏克蘭名列第13及14名。
+
+「菜市場政治學」使用V-Dem數據，將接受境外假資訊最嚴重的全球30國繪成圖表，可見台灣最接近代表「問題最嚴重」數值為0.26，與第二名拉脫維亞的0.52之間有一段差距，顯示台灣已經被各領域專家認定為「受害程度相當嚴重」。
+
+中央社引述參與計劃合作的國立成功大學政治系助理教授王奕婷表示，台灣在遭受外國假資訊攻擊指標「榮登世界冠軍」。她說，這次調查區分來自境外和境內的假訊息，是與維護主權是有關係的調查。除了訊息本身的真假，訊息一旦被外來者使用和操作，主權將遭威脅，必須以國家主權的高度來看這樣的調查結果。
+
+V-Dem的全名Varieties of Democracy，是一個針對政治體制與民主運作的大型調查，有全球近200國的資料。
+
+另方面，中央社上周一則報道稱，台北大學犯罪學研究所助理教授沈伯洋以「中國政府如何利用假消息影響台灣選舉？」為題演講。他表示，中國政府利用假消息影響台灣選舉，絕非誇大其實，甚至假新聞是很後期的做法，前面至少鋪陳了三至四年。
+
+他表示，中國政府操縱假新聞的手段師法俄羅斯。以俄羅斯影響美國總統大選為例，目的就是不讓希拉莉當選。他稱，俄羅斯不需要讓不想投特朗普一票的人改變心意，但只要挑起許多容易引起社會對立的議題，操作假新聞不斷攻擊希拉莉，嚴重破壞其形象。若是選民不投希拉莉，便能達到效果。
+
+至於中國如何用假消息攻擊，中央社引述沈伯洋指，人工智慧及大數據就是最好的武器。透過大量蒐集資料，然後計算偏好，透過網路戰社群戰，進而操縱投票行為。對於如何反制假消息和假新聞，沈伯洋表示，必須辨別社群平台上假帳號及假粉絲團，從源頭導正資訊偏差，讓民眾了事情嚴重程度，建立敵我意識，才有抵抗的可能。

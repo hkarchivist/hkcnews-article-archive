@@ -1,0 +1,64 @@
+---
+title: "【蘋果實習下課了】我只想為自己完夢，可以嗎？"
+date: "2021-07-24"
+last_updated: "2021-07-24 19:33:47"
+author: "實習記者陳綺琳"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "蘋果記者"
+  - "實習記者"
+url: "https://web.archive.org/web/20221126213458/https://hkcnews.com/article/43660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43669/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43669/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【蘋果實習下課了】我只想為自己完夢，可以嗎？
+
+
+{{< video src="https://web.archive.org/web/20221126213458if_/https://www.youtube.com/embed/oyy-xK7OG-Q" >}}
+
+
+6月頭，朋友們得知我在《蘋果日報》當實習記者，都不約而同地對於我未來去向感到好奇：「咁你之後諗住點？」而我每次也答道：「做記者做到做唔到為止，做記者做到香港呢個環境容許唔到我做記者為止」，還說希望畢業後能在《蘋果》當全職記者。當初實牙實齒的我，未免太天真了。
+
+### [【蘋果實習下課了】專輯](https://web.archive.org/web/20221126213458/https://bit.ly/3iJMwGV)
+
+<figure>
+<img src="https://web.archive.org/web/20221126213458im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/Apple%20Daily-20210724144802_1b15_large.jpg" alt="">
+<figcaption>記得收到公司電話，通知自己在《蘋果日報》的實習已完結後，很是緊張，引發「搣手指」的惡習。翌日需交還記者證前為記者證拍照，才發現自己的拇指已破皮。</figcaption>
+</figure>
+
+### 被信任填滿的白紙
+
+上班首日，實習同學們聚首一堂，得知有的早已在社會運動期間擔任記者、有的曾在其他新聞機構工作、有的在校內負責即時新聞。比起擁有新聞工作經驗的他們，我只是位初出茅廬的傳理系學生，別說「扑咪」，就連寫中文新聞稿的經驗也沒有。毫無經驗的我，確實難以說服別人自己是位「信得過」的記者。在質疑自己之時，卻已被公司信任了。上班的第三天，我便被委派獨自完成兩篇有關六四的報導，需「扑街咪」和訪問區議員。當刻很是疑惑，就算是人手不足，也不至於信任我這一張零經驗的白紙吧。而這份無緣無故的信任，促成了我首篇獨自完成的報道。
+
+有傳《蘋果》將在七一前被逼停刊後，朋友取笑我快要失業。的確，《蘋果》對我來說並沒有特別吸引的地方，面臨停刊危機更是一種「明知山有虎，偏向虎山行」的感覺，但作為一名沒有新聞工作經驗的學生，能在一家志同道合的新聞機構實習，更得到機構對自己的信任，談何容易？《蘋果》對我的信任，成就了我很多記者生涯的「第一次」——「扑街咪」、寫中文稿、處理即時新聞、上稿、設計新聞圖片、「啪bite」、「炒稿」…我再也不能告訴別人我是一張白紙：我可是《蘋果日報》的實習記者。
+
+### 被期待的文字
+
+說起首篇獨個兒完成的報道，便想起委派我的前輩。他是組別主管之一，同是實習同學的負責人，故此下稱為「爸爸」。記得上班首天，他委派我和另外一位同學，跟隨一位全職記者出席發佈會後提交一篇700字的報道作練習（還記得發佈會結束後，雙手拇指在手機鍵盤東奔西跑，在回程路上用手機馬不停蹄地「趕稿」，心裏頭湧上一句：「終於有機會趕稿啦」）。提交報道後，爸爸把我們報道列印出來，帶著慈父的眼神，告訴我們可改善的地方。而至今言猶在耳的，不但是需改善的地方，還有他強調自己是在「畀意見」而非「命令」，令我感受到在《蘋果》不強行服從的自由。
+
+在往後的日子還是對自己滿滿質疑，提交報道給爸爸時會「戴頭盔」。 6月3日，本身只是負責訪問區議員的我，突然被委派到一家黃店門口「扑街咪」，是我第一次「扑街咪」。烈日當空，與攝記哥哥們站在黃店門口足足三小時。他們跟我說，今時今日很少人願意對涉及政治的議題受訪。所以，很感激六位面對著我生硬的提問仍由衷回答的受訪者。結束三小時的「扑街咪」，便要「趕稿」（不知為何每次狼狽「趕稿」的模樣，對我來說也挺深刻的）。需在僅僅30分鐘的車程完成報道，提交時還戴了一頂大大的「頭盔」：「不好意思，這篇寫得有點急，好像未能發揮到最佳水準」，心想自己要出洋相了。訪問區議員後，收到爸爸的回覆：「寫得不錯了，畀心機」。這一回覆，為我日後的採訪，打了一支強心針。（那天深夜，攝記哥哥還WhatsApp通知我報道上了蘋果動新聞直播。片段中依稀見我手持的怪獸公司卡通原子筆在晃動，有種「媽咪我上電視啦」的感覺）。
+
+<figure>
+<img src="https://web.archive.org/web/20221126213458im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/Apple%20Daily-20210724144748_1411_large.jpg" alt="">
+<figcaption>每次採訪時做筆記，都用到圖中的怪獸公司原子筆（圖為當日採訪後，到附近商場「趕稿」前拍攝的）。</figcaption>
+</figure>
+
+### 學會適者生存
+
+「實在太感激這幾天您的照顧！7月尾的兩週我會重返這組別實習，到時再會！」被安排暫別上班首週所屬的組別，我在6月8日傳了以上訊息給該組別負責人，亦就是文中的「爸爸」。誰有想到，現正7月尾兩週，我們卻不能再會，而是永別？
+
+短短17天，《蘋果日報》為我的「記者夢」啟程。然而，《蘋果》被逼停刊，彷如告訴我，需擱置我這場只發了17天的「記者夢」；彷如告訴我，香港沒有我的容身之所。
+
+但事實並非如此，失去《蘋果日報》，我還可以到自己志同道合的報社實習和工作。甚至失去「記者」的身份，我還可以透過創作代替報道。不甘心自己的「記者夢」被政權淹息輾碎，便再也不能感到絕望，我要在的頑固不化添上柔韌，告訴自己《蘋果日報》並非唯一容身之所。
+
+也許，自身性格任性不羈，所以拒絕向現實低頭。面對無法觸摸的紅線，再不能食古不化，死抱著「非記者不做」的心態。這啟發是我獲得的最大的得著。
+
+<figure>
+<img src="https://web.archive.org/web/20221126213458im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/Apple%20Daily-20210724144814_22e8_large.jpg" alt="">
+</figure>

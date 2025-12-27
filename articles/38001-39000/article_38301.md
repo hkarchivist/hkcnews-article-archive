@@ -1,0 +1,55 @@
+---
+title: "內地官方稱新年消費增長兩成八　學者指消費力未受疫情影響"
+date: "2021-02-18"
+last_updated: "2021-02-18 18:04:51"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "農曆新年"
+  - "新年"
+  - "春節"
+  - "過新年"
+  - "過年"
+  - "Chinese New Year"
+  - "Spring Festival"
+  - "眾新聞中國組"
+  - "就地過年"
+url: "https://web.archive.org/web/20210802063922/https://www.hkcnews.com/article/38301/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38305/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38301/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38305/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 內地官方稱新年消費增長兩成八　學者指消費力未受疫情影響
+
+
+{{< video src="https://web.archive.org/web/20210802063922if_/https://www.youtube.com/embed/w9sirCi6NVE" >}}
+
+
+內地一連七日的農曆新年假期結束，商務部周三晚上發布數據，各地重點零售和餐飲企業銷售額達8210億元，比去年增長28.7%。
+
+各個電商平台一改傳統，聯合物流公司推出新年不打烊活動，確保消費者過年都可如常網購。拼多多數據顯示本月至今，年貨商品比去年同期增長1.8倍，農產品如地方特產、水果蔬菜等增幅為2倍，家庭清潔用品增幅達3倍。
+
+<figure>
+<img src="https://web.archive.org/web/20210802063922im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/20210218164220_2cf0_large.png" alt="">
+<figcaption>內地農曆新年期間，無論實體或網上零售額都有增長。央視</figcaption>
+</figure>
+
+國家電影局統計，賀歲電影票房突破75億元，破前年58億元的紀錄，入場人次達1.57億，當中喜劇《唐人街探案3》以35億元票房佔據榜首。有觀眾表示購票時發現電影晚上場次近乎爆滿，只好退而求其次購買早上時段。
+
+國務院聯防聯控機制數據顯示，農曆新年假期期間出行的遊客達9841萬，比去年減少34.8%。有就地過年的居民，就選擇入住本地或郊外的酒店及民宿，感受過年氣氛：「在家裡是一種居家的感受，出來雖然在家鄉邊上，但還是一種度假的感受。」
+
+<figure>
+<img src="https://web.archive.org/web/20210802063922im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/遊客-20210218164249_1601_large.png" alt="">
+<figcaption>有江蘇蘇州居民表示即使未有選擇跨省旅遊，在家鄉郊遊也有度假感覺。央視</figcaption>
+</figure>
+
+京東首席經濟學家沈建光認為，今年消費增長，證明消費力未有受疫情縮減：「中國經濟是全球唯一正增長的國家，受的影響相對比較少，所以也是重要基礎，政府採取措施居家過年，但是實際上銷售力還是在那邊。」
+
+他又認為就地過年措施下，不少員工選擇縮短假期上班，間接促進生產：「就地過年意味，他可以工作時間會更長一點，對生產、消費其實都是有好處的。我看到江蘇浙江一帶，很多出口船運非常火爆，全世界正好受疫情影響，都需要進口商品，中國正好填補了這個空白。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802063922/https://www.hkcnews.com/aboutus/#subscribe)

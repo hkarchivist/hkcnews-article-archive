@@ -1,0 +1,34 @@
+---
+title: "周梓樂逝世2個月悼念爆衝突　20歲男學生認非法集結判入更生中心"
+date: "2021-12-17"
+last_updated: "2021-12-17 18:42:14"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "非法集結"
+  - "悼念"
+  - "周梓樂"
+url: "https://web.archive.org/web/20220809102753/https://hkcnews.com/article/49241/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49261/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49241/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49261/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 周梓樂逝世2個月悼念爆衝突　20歲男學生認非法集結判入更生中心
+
+去年1月科大生周梓樂逝世2個月，有市民在將軍澳尚德停車場外悼念，其後爆發警民衝突。20歲男學生當日從示威者傘陣中逃走時被捕，早前承認一項非法集結罪，今（17日）在觀塘裁判法院判刑。裁判官劉淑嫻考慮被告有悔意，明白不應破壞社會安寧、浪費警方資源，亦自知令社會氣氛升溫，決定接納辯方建議判被告入更生中心。
+
+<figure>
+<img src="https://web.archive.org/web/20220809102753im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/防暴警察-周梓樂-20200310184520_2657_large.jpg" alt="">
+<figcaption>科大學生周梓樂逝世後，有市民將軍澳尚德停車場外悼念。資料圖片</figcaption>
+</figure>
+
+20歲被告楊意浩早前承認於2020年1月8日，在將軍澳廣明苑廣昌閣外參與非法集結。
+
+### 冀成為插畫師回饋社會
+
+辯方求情指，被告在被捕後已有所反思，他希望能盡快服畢刑期，完成在知專設計學院的學業，成為插畫師，照顧家人並回饋社會。辯方又提到，被告父母在數年前離異，案發後為了支持兒子而一起居住。
+
+裁判官劉淑嫻判刑時指出，被告初犯、有悔意，已明白不應破壞社會安寧、浪費警方資源，亦知道行為會令社會氣氛升溫、加重緊張情緒，因此接納辯方建議判入更生中心。
+
+案情指當晚10時許，約20名黑衣人在將軍澳尚德邨聚集。他們用磚頭等雜物築起路障，又在警方防線約15米外設傘陣，用消防喉向警方射水，以及用綠色雷射筆照射警員。現場佈滿旁觀者，有人情緒激動，喝令警方離開。晚上約10時半，有便衣警走入傘陣驅趕人群，發現穿全黑束裝的被告正手持紅傘逃走，遂上前拘捕他。警員其後在被告袋中搜出望遠鏡及一把多用途小刀。
+
+【案件編號：KTCC1606/2021】

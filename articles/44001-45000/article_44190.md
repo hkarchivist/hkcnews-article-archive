@@ -1,0 +1,56 @@
+---
+title: "建制多界別或自動當選　梁定邦稱中聯辦不時溝通　彭韻僖避答提問"
+date: "2021-08-09"
+last_updated: "2021-08-09 20:37:15"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "梁定邦"
+  - "彭韻僖"
+  - "李浩然"
+url: "https://web.archive.org/web/20211026215611/https://hkcnews.com/article/44190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 建制多界別或自動當選　梁定邦稱中聯辦不時溝通　彭韻僖避答提問
+
+<figure>
+<img src="https://web.archive.org/web/20211026215611im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/梁定邦-2021選委會選舉-20210809200627_14d1_large.jpg" alt="">
+<figcaption>梁定邦報名參選時戴了一頂印有豬仔圖案的鴨嘴帽。他說是太太叫他戴的，「佢話你謹記自己，唔好以為自己好聰明，你係隻豬來的。」林勵攝</figcaption>
+</figure>
+
+改寫後的本港選舉制度競爭大減，多個界別經協調後僅得一張名單報名參選，頗有機會自動當選。其中，監警會前主席、資深大律師梁定邦與全國政協常委劉漢銓協調得出一張15人名單，當中包括律師會會長彭韻僖、資深大律師湯家驊，但各人分開報名。梁定邦說並無與中聯辦特別就參選一事溝通，但「時不時有溝通」，並指中聯辦知悉他們參選。彭韻僖則於報名後迴避傳媒提問，包括是否支持林鄭連任。
+
+在新選舉制度下，過去民主派票倉之一的法律界由建制友好組織瓜分。30席中一半由當然委員及提名產生，包括6席基本法委員會委員，9席則分別由中國法學會港區理事協會提名，包括資深大律師王鳴峰、立法會前法律顧問馬耀添、前私隱專員黃繼兒、城大法學院教授林峰、大律師馬恩國等。
+
+另外15席則改為團體票，由30個法律團體選出，大律師公會只佔一票。梁定邦、彭韻僖、民建聯劉漢銓、去年曾報名選立法會法律界的麥慶歡、民建聯盧懿杏、資深大律師藍德業等早前向傳媒公布15人參選名單，其後又各自報名參選。例如大律師范凱傑在中午獨自報名，藍德業與同一事務所的大律師何淑瑛午後報名；彭韻僖與梁定邦下午與漁農界選委參選人同一時段報名，劉漢銓過15分鐘後到場報名。
+
+<figure>
+<img src="https://web.archive.org/web/20211026215611im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/2021選委會選舉-彭韻僖-20210809200844_1af4_large.png" alt="">
+<figcaption>彭韻僖報名後無回應記者提問，向記者揮手道別。</figcaption>
+</figure>
+
+梁定邦周一報名時解釋，他和監警會委員彭韻僖及藍德業一開始考慮參選，然後劉漢銓「好抵得諗」負責協調及統籌。梁定邦形容與中聯辦「無特別溝通」，追問下稱「時不時有溝通」，並指中聯辦知悉他們參選。他又透露，一開始並不認識15人名單中的全部人，分開報名是因為各人都好忙，聯合政綱則是盡公民義務。
+
+至於是否支持林鄭月娥連任，梁定邦一笑後說：「我諗到時睇吓有啲咩人參選，然後我哋先決定，而家都係好早。」他形容林鄭是好「勤力」的人，但最後會不會有更好的特首人選，暫時未知。
+
+律師會會長彭韻僖報名後沒有回應傳媒提問，包括是否支持林鄭連任，只說提醒隨行追訪的記者：「唔好意思，你咁樣行好危險。Bye bye。」
+
+劉漢銓則說新的選舉委員會職能包括提名及選舉特首，及提名所有立法會議員及選出90席中其中40席，組成15人名單後，希望做到愛國者治港，及爭取法律界的發展空間，包括成為大灣區律師。
+
+<figure>
+<img src="https://web.archive.org/web/20211026215611im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/2021選委會選舉-會計界-20210809200857_160b_large.jpg" alt="">
+<figcaption>資深會計師陳錦榮（中）牽頭組成會計界名單。林勵攝</figcaption>
+</figure>
+
+多個界別由於收窄選民登記門檻，選民人數大減下，變相協調一張名單參選。例如會計界登記選民只得39間會計師行，但身兼監警會委員的資深會計師陳錦榮牽頭的15人名單已獲20張提名票，佔業界一半。批發及零售界中，自由黨現任立法會議員邵家輝協調17人報名，已獲63張團體票中的62票提名。梁定邦亦說自己在30張團體票中獲十多張提名票。
+
+部分參選選委亦被觀望可能12月進軍立法會，其中基本法推廣督導委員會成員、華潤集團粵港澳大灣區首席戰略官李浩然參選商界（第三）界別（前中國企業協會界別）。李浩然報名時不評論自己是否為立法會熱身，只說目前一心一意做好選委會選舉，日後希望中資企業可以幫助香港經濟轉型。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026215611/https://hkcnews.com/aboutus/#subscribe)

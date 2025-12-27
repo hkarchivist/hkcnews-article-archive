@@ -1,0 +1,50 @@
+---
+title: "在港國際學校也要「正確客觀理解國安法」"
+date: "2021-02-04"
+last_updated: "2021-02-05 11:36:54"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "國際學校"
+  - "國家安全教育"
+url: "https://web.archive.org/web/20210927061346/https://www.hkcnews.com/article/37864/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37877/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37864/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37877/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 在港國際學校也要「正確客觀理解國安法」
+
+根據教育局周四向全港中小學發出有關國安法的通告，教育局說不論學生種族及國籍，國際學校原則上也有責任協助學生「正確及客觀地理解及認識國家安全概念與《香港國安法》，建立守法的精神」。
+
+教育局在通告中又說，國際學校及教授非本地課程的私立學校也要根據教職員持守專業守法、防範校內違反《基本法》及國安法的活動，及幫助學生認識國安法立法背景及重要性的原則，根據校本情況制訂策略。
+
+<figure>
+<img src="https://web.archive.org/web/20210927061346im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/國安法-國家安全教育-國際學校-20210204225356_1db7_large.png" alt="">
+<figcaption>教育局通告列明國際學校也要認識國安法及國家安全。</figcaption>
+</figure>
+
+但如教育局要求學校保留《基本法》及國安法教材不少於兩年等具體措施，通告則列明不適用在國際學校。
+
+有不願具名的國際學校家長批評，教育局的說法荒謬但不意外，形容「國安法一直都話涵蓋全宇宙，連外國人都要遵守國安法」，目前採取觀望態度。「讀得國際學校都預咗走，但如果真係改到通識及個人成長課大家不接受，都是再想是繼續讀或者走。」
+
+該家長自言，目前都無得驚，最重要是相信國際學校，但不排除有學校的IB課程下通識科可能檢視教材，避免違反國安法。
+
+有另一名不願具名的家長說，目前都相信選用IB課程的學校不會特別改變教法，但仍憂慮在日常課程外教授。該家長說，由於感覺香港不安全，已經安排其中一名子女離開香港就讀，另一名子女將近畢業，否則也「早走早著」。
+
+教育局早前也在通告中，要求國際學校根據《國歌法》在節慶日子奏唱國歌，及加強外籍學生對中國文化了解。最終在具體落實而言，部分國際學校在教授各國國歌的背景下，教授中國國歌及背後歷史，與本地學校直接灌輸手法大相逕庭。
+
+眾新聞已向其中一個最大國際學校辦學團體英基學校協會（ESF）及國際文憑組織（IBO）查詢。
+
+不過，要令外籍學生認識《基本法》及國安法亦有多一重困難。 [教育局的憲法與《基本法》網頁](https://web.archive.org/web/20210927061346/https://www.edb.gov.hk/en/curriculum-development/kla/pshe/basic-law-education/constitution-basiclaw/index.html) ，只有中文教材，並無英文內容。根據教育局課程發展處最新製作的「國家安全 你我要知」，則有廣東話、普通話及英語版。
+
+<figure>
+<img src="https://web.archive.org/web/20210927061346im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/國家安全教育-教育局-基本法%20題目-20210204230013_283f_large.png" alt="">
+<figcaption>教育局憲法與基本法網頁並無英文內容。教育局網頁截圖</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210927061346/https://www.hkcnews.com/aboutus/#subscribe)

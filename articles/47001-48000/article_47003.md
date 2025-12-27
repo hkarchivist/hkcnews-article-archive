@@ -1,0 +1,54 @@
+---
+title: "【煽動顛覆國家政權案】支聯會已被剔除註冊不知如何處理　官質疑控方「告啲已經唔存在嘅組織」"
+date: "2021-10-28"
+last_updated: "2021-10-28 20:18:43"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "支聯會"
+  - "煽動顛覆國家政權罪"
+  - "蔡耀昌"
+url: "https://web.archive.org/web/20220125201539/https://hkcnews.com/article/47003/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47003/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽動顛覆國家政權案】支聯會已被剔除註冊不知如何處理　官質疑控方「告啲已經唔存在嘅組織」
+
+已解散的支聯會、其前正副主席李卓人、何俊仁和鄒幸彤被控煽動顛覆國家政權罪案，今午在西九龍裁判法院再訊。由於公司註冊處前日突然將支聯會剔除註冊登記，前副主席蔡耀昌今查問自己能否代表該會，並問法庭：「到底嚟緊仲存唔存在第一被告？」裁判官羅德泉形容，支聯會「好似一個人咁經已離世」，而控方「告啲已經唔存在嘅組織」。羅官坦言：「呢啲情況都未發生過，我哋都唔知點處理」。他決定先將蔡列為有利害關係人士，以待控方與破產管理署釐清支聯會的地律地位。   
+   
+ 被告依次為「香港市民支援愛國民主活動聯合會」、前主席李卓人（64 歲）、前副主席何俊仁（69 歲）及鄒幸彤前副主席（36 歲），他們同被控於2020年7月1日至 2021年9月8日，煽動他人組織、策劃、實施或者參與實施以非法手段旨在顛覆國家政權的行為，即推翻、破壞中華人民共和國憲法所確立的根本制度，或推翻中央政權機關。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201539im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/蔡耀昌-支聯會-20211028173533_8f75_large.jpg" alt="">
+<figcaption>支聯會前副主席蔡耀昌</figcaption>
+</figure>
+
+蔡耀昌透露，他於本月18日去信法庭，希望以支聯會代表身份出席聆訊。惟行會前日（26日）突然要求公司註冊處將支聯會剔除註冊登記，令支聯會「突然死亡」。而根據《公司清盤及雜項條例》360I條，「若某公司的法律程序在公司解散之日待決，該項法律程序可由破產管理署署長代表繼續進行」。
+
+蔡指，上述條例沒有表明「法律程序」是民事抑或刑事，似乎是全部涵蓋。但他擔心破產管理署署長是公職人員，由他代表支聯會，會令支聯會的權益得不到保障。他問法庭：「到底嚟緊仲存唔存在第一被告？」
+
+### **官：「好似一個人咁經已離世」**
+
+羅官形容，支聯會「好似一個人咁經已離世」，而控方「告啲已經唔存在嘅組織」，「呢啲情況都未發生過，我哋都唔知點處理」，惹來庭上一陣竊笑。
+
+羅又認為，破產管理署署長一般只代表被除名公司處理民事法律程序，如財產管理、索償等，質疑署方是次是否適宜接手支聯會的案件。
+
+<figure>
+<img src="https://web.archive.org/web/20220125201539im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/支聯會-六四紀念館-20210916143824_96d4_large.jpg" alt="">
+</figure>
+
+### **破產署需時釐清支聯會法律地位**
+
+控方回應指，律政司在得知支聯會被剔除註冊後，已去信破產管理處，釐清支聯會的法律地位，而對方表示需時研究。羅官決定暫列蔡耀昌為有利害關係人士，以待控方釐清相關法律問題。
+
+至於其他三名被告，李卓人及何俊仁今由律師代表應訊，鄒幸彤則繼續自行陳詞。三人步出法庭時向旁聽人士揮手，李一度高呼：「言論自由無罪！民主無罪！」
+
+### **控方申請押後10週　惹庭上譁然**
+
+控方申請將案件押後10週，以待警方繼續調查，隨即引來旁聽人士譁言。羅官追問需押後長時間的原因，控方解釋，警方早前在支聯會會址及貨倉撿獲60箱證物，包括50隻USB、9部電子設備，及150小時的影片，「有啲電子器材需時去開」，影片亦需時檢測。
+
+李及何沒反對押後，但鄒直言「10星期係過份嘅要求」。她透露被起訴至今，除了控方案情撮要外，沒收到其他文件。她要求法庭訂出嚴謹的時間表，以免案件一再押後。最終羅官要求控方在12月20日或之前向法庭及辯方提供調查進度表，屆時辯方若有任何問題，可要求法庭開庭處理。案件應辯方要求，押後至明年1月10日再訊。
+
+李及何今沒申請擔保，鄒的申請則被駁回。三人還押候訊。他們被押走時，旁聽人士大喊「撐到底！撐到底！」，三人一邊步入羈留室一邊揮手回應。
+
+案件編號：WKCC3632/2021

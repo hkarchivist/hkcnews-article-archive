@@ -1,0 +1,41 @@
+---
+title: "美國之音：月初撰文轟當局掩蓋疫情真相　任志強遭「留置」　兒子和秘書被捕"
+date: "2020-03-25"
+last_updated: "2020-03-25 19:57:27"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "美國之音"
+  - "任志強"
+url: "https://web.archive.org/web/20211026031726/https://www.hkcnews.com/article/28252/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28255/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/28252/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28255/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 美國之音：月初撰文轟當局掩蓋疫情真相　任志強遭「留置」　兒子和秘書被捕
+
+<figure>
+<img src="https://web.archive.org/web/20211026031726im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/任志強-20200325184319_1f42_large.png" alt="">
+<figcaption>任志強。畫面截圖</figcaption>
+</figure>
+
+中共「紅二代」、地產商任志強失蹤事件惹人關注。《美國之音》報道，任志強本月初在一篇文章抨擊北京當局掩蓋疫情真相，不點名把習近平稱作「一位剝光了衣服也要堅持當皇帝的小丑」，3月12日被當局帶走。《美國之音》引述消息人士稱，任志強案被政府定為「重案」，目前被當局「留置」； 任的大兒子及秘書也被捕，其妹及家人都會受到影響。
+
+現年69歲的任志強人稱「任大炮」曾多次批評中共，本月初他在一個小圈子分享該篇文章，小圈子的成員都是與他參與環保活動的民營企業家。《美國之音》引述一名消息人士稱，「他大概跟11個人分享了，可能有些人沒有這個政治意識，就把它傳出去了。有的人就來問他，這是不是你寫的？他敢作敢當，說是我寫的，就引發了後面一連串的事」。
+
+該名消息人士透露，任志強的大兒子、秘書也被抓了，其妹及家人都會受到影響。任志強目前被當局「留置」，政府將此定為重案，「任何人不得插手，不能介入，不能求情，可能也包括王岐山」。
+
+「留置」是監察機關用來取代「雙規」的措施。據《中華人民共和國監察法》，留置時間不得超過三個月。在特殊情況下，可以延長一次，延長時間不得超過三個月。「雙規」是指「在規定的時間、規定的地點交代問題」，意味被雙規的人士，不但會受到時間限制，還會被限制自由。
+
+中國國家副主席王岐山曾是任志強的中學輔導員，二人關係密切。《美國之音》說，許多政治觀察人士注意到，王岐山自疫情爆發以來一直沒有露面，也沒有出席習近平的17萬人大會。
+
+該名消息人士對《美國之音》說，「王岐山在某種程度上已經靠邊站了，他對習近平沒有什麽制衡。從民間和黨內的反應來看，大家是普遍的同情，但是站出來講話的人寥寥無幾」。他又說，「現在任志強基本變成了刀板上的一塊肉」。
+
+任志強的朋友、中國女企業家王瑛是在任失聯後少數為他呼籲的人之一。她上周對《美國之音》說，任志強的案子「沒有進展」，「現在恐怕誰發聲都夠嗆」。她說，「國內控制傳播的手段都上來了。無論是恐嚇還是實控都很有效。對家屬的控制也很有效」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026031726/https://www.hkcnews.com/aboutus/#subscribe)

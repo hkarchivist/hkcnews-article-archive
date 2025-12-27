@@ -1,0 +1,63 @@
+---
+title: "林鄭硬銷自己儼如造勢　「唔同連任掛鈎同我掛鈎」　暗批公務員因循或外聘部門首長"
+date: "2021-10-06"
+last_updated: "2021-10-07 00:11:31"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "尋求連任"
+  - "2021施政報告"
+url: "https://web.archive.org/web/20211128180539/https://www.hkcnews.com/article/46238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46240/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46240/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭硬銷自己儼如造勢　「唔同連任掛鈎同我掛鈎」　暗批公務員因循或外聘部門首長
+
+特首林鄭月娥發表首任內最後一份施政報告，提出重組架構甚至新界北規劃等措施，都影響下屆甚至數十年後的政策。在記者會上，她四度迴避是否連任問題，呼籲不要掛鉤是否連任，「如果你要將佢掛鈎，你就同我呢個人、林鄭月娥呢個人掛鉤」，「我係好鍾意不停咁做事」，並趁機硬銷昔日「起動九龍東」、提出西九故宮文化博物館等，儼如小型造勢。她更以英文形容，「這個行政長官每日都辛勤工作為港人服務」。（This CE does work hard every day to serve the people of Hong Kong.)
+
+被問及2017年政綱提出修補社會撕裂，林鄭堅稱自己在2019年前令社會「達至比較和諧」，「事實上，我唔係無做到」，又提到包括立法會2017年及2018年通過施政報告致謝議案，又批評是2019年後部分政治團體變成反中亂港勢力，危害國家安全。她晚上在電視節目再補充無法逼人與自己同行，如果違反國家安全或脅迫中央或她推動政治改革，則唯有分道揚鑣。
+
+民主黨主席羅健熙批評林鄭以最後一份施政報告向中央爭取連任，著重十四五規劃及大灣區，卻對港人困境視若無睹。他說，希望今次施政報告是林鄭人生最後一份施政報告，「因為港人無法承受，這位令香港嚴重撕裂、人心惶惶的特首再掌權多五年。」=行政會議召集人陳智思表示，林鄭月娥曾向社會及行政會議成員表明施政報告部分課題超出今屆政府任期，相信是交給下一任政府落實，相信不論任何人出任下屆特首，都要處理今次提出的方向。
+
+<figure>
+<img src="https://web.archive.org/web/20211128180539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/林鄭-施政報告-20211006231017_9c9f_large.jpg" alt="">
+<figcaption>林鄭月娥表明要改善政府文宣，今次施政報告就印製多張小冊子，但出師不利，膠架因不勝施政報告及附編負荷散落在地上，需要新聞官收拾。陳暋柟攝</figcaption>
+</figure>
+
+長達三萬字的施政報告中儼如林鄭提早公布連任藍圖，包括透過發展新界北、新田要變「港版矽谷」、20年內100萬個房屋單位，主題也以「齊心同行」呼應2017年參選時的「同行」口號。在改組政府架構方面，林鄭建議分拆運輸及房屋局、升格創新及科技局成為創新科技及工業局、成立文化體育及旅遊局，民政局不再分管康文署後將重組為青年及地區事務局，處理地區及支持青年發展。施政報告同時提出探討設立民建聯等建議的副司長，處理新界北的規劃藍圖。
+
+雖然林鄭說部分問題如政府改組，可留待下屆政府自己決定，自己不會不顧政治倫理要下屆政府「硬食」，但她不時硬銷自己，或暗諷前上司梁振英。例如會否改組一事，林鄭說要看市民是否支持及下屆政府有無魄力、決心去做，又自詡「你可以話我是一個好負責任的人，不會因為任期即將結束，而放軟手腳不做事。」
+
+她質疑2003年後幾屆政府處理《基本法》23條「遮遮掩掩」，表明會「理所當然、理直氣壯為23條本地立法」。她晚上出席電視節目時，更表明不同意發展郊野公園邊陲用地而推翻梁政府政策。
+
+坊間目前觀望，明年3月可能只有一名特首候選人，目前被看好可能加入跑馬仔包括林鄭同財政司司長陳茂波。林鄭在早上宣讀施政報告尾聲少有地說，要講「幾句感性的話」，提及自己修例風波後承受前所未有的巨大壓力，支持她的動力先有「中央永遠是特區堅強後盾的諄諄囑咐」，就職時的不變初心，然後才到家人信任和支持，期間她一度哽咽。
+
+林鄭在記者會上四度被問及會否連任或新措施是否為連任舖路，她都採取迴避策略，甚至連丈夫林兆波是否曾勸她不連任都表明不會回應。不過，林鄭多次藉機擺出自己「大有為」的姿態，例如記者問及多個跨屆項目是否攸關連任，她則主動提及自己過去在政府任期尾聲提出「跨任期、有魄力」的大型項目，例如2007年任發展局局長提出起動九龍東，任政務司司長時提出故宮文化博物館。
+
+她直言：「希望大家唔好將我提出嘅嘢，連埋是否連任（掛鉤）；如果你要將佢掛鈎，你就同我呢個人、林鄭月娥呢個人掛鉤。我係好鍾意不停咁做事，我唔會理我剩返10日、8日，我都為香港爭取去做事。」
+
+林鄭雖然提出齊心同行，但晚上出席電子傳媒論壇時則說，自己在政府四十一年，每日只能問心無愧地推動工作，「如果太睇民望，或者做民望工程，呢個恐怕唔係我風格」。她又重申，在上任頭兩年已經做到修補社會撕裂，政府都有與反對政府的人盡力溝通，形容2019年後的問題不是社會深層次問題，而是有力量想破壞香港及利用香港破壞中國。
+
+她形容，一國兩制作為憲制原則，不能因為市民不滿，就割地賣給外部勢力，過去四年給她作為特首的新體驗，就是大是大非不容妥協。她說，今年是中國共產黨成立一百年，港人作為中國人應該感到驕傲，「唔係再去諗，自己鍾唔鍾意做中國人」。
+
+施政報告中也提及，要根據有能者居之的原則，在未來數月檢討公務員高層職位的選拔聘任機制。同時，施政報告亦稱，公務員事務局在「公務員忠誠度上嚴格把關」。
+
+林鄭在記者會上首度透露，將會考慮公務員高層由有抱負的公務員或外面的人擔任，但隨即「補飛」說政治團隊及公務員團隊仍然分開，「大體上都係公務員進入（高級）位置。」
+
+林鄭搬出港澳辦主任夏寶龍說，要找想幹事、會幹事、能幹事、幹成事的人，但當中最難「想幹事」，「點會令位處重要位置的人日日都想幹事⋯…唔係日日做返尋日做緊嘅工作」。她形容，公務員能幹事、會幹事，但「想幹事」的動力不足夠。
+
+香港高級公務員協會主席李方沖向眾新聞確認，公務員事務局局長聶德權在施政報告公布後曾會見他和其他公務員代表，並觸及外聘公務員首長問題。他引述聶德權舉例說可由政府現時已經容許的其他職系調任，或者直接外聘擔任部門首長。
+
+他提及聶德權席間曾經舉例，投資推廣處、公務員學院、體育專員等因政策新崗位，可能由外面直接聘請。他表示，會方認為有能者居之，相信如果由外間人士擔任新設不同範疇的事務專員等，做法都未必是不正常。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128180539/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,48 @@
+---
+title: "【晚上11:56更新】記協周日遊行　張建宗不批准豁免限聚"
+date: "2020-11-14"
+last_updated: "2020-11-14 00:12:38"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "遊行"
+  - "遊行示威"
+  - "記協"
+  - "香港記者協會"
+  - "蔡玉玲"
+url: "https://web.archive.org/web/20210924233913/https://www.hkcnews.com/article/35589/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35592/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1156%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35589/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35592/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1156%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【晚上11:56更新】記協周日遊行　張建宗不批准豁免限聚
+
+**【晚上11:56更新】政務司司長辦公室發言人回應查詢，指「就記協所提供的資料，政府未能確立擬進行的遊行符合第599G章相關條文的條件」，換言之未能批准豁免限聚令。發言人稱︰「香港的疫情亦十分嚴峻，有惡化趨勢。為保障公眾健康，衞生署不建議舉辦任何涉及大量群眾聚集的活動。」**
+
+記協計劃周日舉辦遊行，對港台鏗鏘集編導蔡玉玲因查冊而被捕表達不滿。遊行早前被警方反對，記協今日提出上訴，獲有條件批准，需要在明日午夜之前得到政務司司長張建宗批准豁免遵守限聚令。
+
+即使疫張建宗批准豁免，遊行亦需受限於苛刻的條件，包括只容許記協會員、新聞從業員及大專學院新聞系師生參加，不開放予公眾參與，並需實名報名，屆時參加者須出示記者證或學生證。記協指，是次遊行的事先登記安排，實屬迫不得已，目的只為達到高水平的防疫要求，在沒有疫情的情況下，絕不宜再次採用。
+
+<figure>
+<img src="https://web.archive.org/web/20210924233913im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/遊行-記協-20201113214858_224b_large.png" alt="">
+<figcaption>記協副主席陳朗昇（右）指，遊行獲有條件批准，記協需先得到張建宗批准豁免遵守限聚令。港台直播截圖</figcaption>
+</figure>
+
+記協擬周日舉辦遊行，昨日收到警方以限聚令等理由反對。記協向公眾集會及遊行上訴委員會提出上訴，獲有條件批准：記協需要在明晚11時59分前，得到政務司司長張建宗批准豁免遵守限聚令，否則遊行將取消。陳朗昇表示，對於上訴獲批准感高興，呼籲張建宗盡快回應訴求批准豁免。
+
+陳朗昇指，雖然是次成功上訴獲批，但記協承諾的條件非常苛刻，包括只容許記協會員、新聞從業員及大專學院新聞系師生參加，並需要實名制報名，記協會檢查參加者的記者證或學生證；參加者須量體溫及全程戴口罩，亦要填寫健康申報表，並提供同行朋友的姓名及電話，方便一旦有人確診可盡快追查。另外記協亦會在場拍攝。
+
+**陳指，報名表格只會由記協保留，並只有有權限人士才可查看，記協不會將報名表格交予其他部門。** 記協其後的聲明補充，登記表格只供記協內部備存14天，期滿後會立即銷毀，除非涉及追蹤確診者或密切接觸者的法定理由，否則有關資料絕不會交予任何人士。聲明又指，是次遊行的事先登記安排，目的只為達到高水平的防疫要求，實屬迫不得已，在沒有疫情的情況下，絕不宜再次採用。
+
+陳朗昇說，謝絕公眾人士參與遊行是艱難決定，因為新聞自由是所有港人的資產，正常情況不可能拒絕市民的支持，但為了讓遊行達到比正常聚集更高的防疫措施要求，故記協答應此要求。
+
+至於會否擔心政務司司長張建宗拖延不作回覆，陳朗昇表示，記協一直都擔心， **已四次聯絡張建宗及其新聞秘書，但都未能成功，希望張建宗盡快作出合理決定** 。他認為，即使在限聚令下，若有防疫措施，公眾地方聚集應被容許，指記協的措施比目前婚宴及教會聚會等的防疫措施更嚴苛，政府沒有理據拖延。
+
+遊行路線暫定為港灣道到律政中心，沿途經過警察總部及特首辦。陳朗昇指，屆時將會交信予特首林鄭月娥，要求政府盡快澄清記者可以進行查冊，以及撤銷對蔡玉玲的檢控。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924233913/https://www.hkcnews.com/aboutus/#subscribe)

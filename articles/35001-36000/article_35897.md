@@ -1,0 +1,42 @@
+---
+title: "香港選民大陸投票續「研究」　明日大嶼前期撥款周五闖財會"
+date: "2020-11-25"
+last_updated: "2020-11-25 18:52:07"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "施政報告"
+url: "https://web.archive.org/web/20210729211420/https://www.hkcnews.com/article/35897/2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35906/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35897/2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35906/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港選民大陸投票續「研究」　明日大嶼前期撥款周五闖財會
+
+<figure>
+<img src="https://web.archive.org/web/20210729211420im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/境外投票-20201125153534_19e7_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+特首林鄭月娥周三宣讀施政報告，但缺乏主要亮點，大部分政策先前已預告或者吹風。原先預期是未來一年主要任務的大陸境外投票，在民主派總辭後突然降溫，林鄭在施政報告只概括地提及，政制及內地事務局稍後會就選舉管理委員會10月建議提出修訂條例草案，未有具體提及境外投票。施政報告附編中只是提及「研究」在內地設票站，未再如10月底政制局長曾國䘙提及「積極研究」建議。
+
+在施政報告的附編中全文提及，政制局「研究在內地設立投票兼點票站，方便已登記選民在2021年立法會換屆選舉投票」。相反，同樣在選舉事務處報告提及的電子選民登記冊（即電子派票），則有具體提及「目標是在2021年立法會換屆選舉落實相關措施。」
+
+林鄭月娥在記者會上表示，居住大陸港人有訴求要求投票，但今日不能具體說草擬法案情況如何，或者能否趕及2021年立法會換屆選舉。林鄭說：「如果有足夠支持，技術上可以克服到，我們可以嘗試做；但如果因素不出現，有如果很多不支持，一定困難難以克服，都無得勉強。」她強調，事件純粹是香港自身議題，無關中央，只是實際落實時需要中央政府配合。
+
+翻查資料，曾國䘙10月28日回覆查詢時表示，因應社會關注，政制及內地事務局已開始聯同律政司及選舉事務處探討意見，並「積極研究」選管報告書就選舉安排，當中也包括境外投票的可行性。
+
+儘管如此，林鄭月娥未放棄另一項爭議項目、涉及1000公頃的明日大嶼填海項目。林鄭強調，為了香港的未來，現屆政府不會放棄「明日大嶼願景」 的工作， 會努力爭取盡快開展前期有關研究。她聲稱，承諾在研究過程中，會繼續聆聽各方意見，並探討新的融資方案。
+
+她在記者會上否認明日大嶼方案會令公共財政惡劣，且不點名引述前TOM集團執董及行政總裁商人王兟早前在報章自資登報，提出「創新公私營合作」方案，表示政府現時不會採納方案，但會同時考慮各種方案。
+
+由於林鄭同時順應建制派要求，撤回包括首長級在內、正待審批的人事編制建議，導致明日大嶼前期撥款在星期五財委會變成第一位審議項目，預計當日闖關。
+
+### [2020施政報告相關文章](https://web.archive.org/web/20210729211420/https://www.hkcnews.com/event/97)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729211420/https://www.hkcnews.com/aboutus/#subscribe)

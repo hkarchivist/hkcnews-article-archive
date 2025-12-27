@@ -1,0 +1,71 @@
+---
+title: "陳淑莊等涉違限聚令結案陳詞　控方指酒吧落半閘仍屬公眾地方　爭拗「禁酒吧令」會議可否屬豁免"
+date: "2021-06-02"
+last_updated: "2021-06-02 14:37:38"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "陳淑莊"
+  - "Tanya CHAN"
+  - "限聚令"
+  - "林瑞華"
+url: "https://web.archive.org/web/20210726174610/https://www.hkcnews.com/article/41951/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41951/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳淑莊等涉違限聚令結案陳詞　控方指酒吧落半閘仍屬公眾地方　爭拗「禁酒吧令」會議可否屬豁免
+
+前立法會議員陳淑莊及香港中小企食店聯盟召集人林瑞華，涉嫌去年4月在旺角「HANDS」酒吧與多人開會，被控違反限聚令。酒吧負責人陳偉才則被控明知而容許受禁羣組聚集，以及未有遵從酒吧的防疫規例。3人否認4項傳票控罪，由大律師關百安代表，今早在九龍城裁判法院作結案陳詞。
+
+控方強調根據限聚令對公眾地方的定義，即使案發時酒吧「落半閘」和貼上「private」字句，仍屬於公眾地方。控辯雙方又爭議，案發當晚的會議討論「禁酒吧令」是否符合限令下宣揚防疫訊息的豁免條文。裁判官鄭念慈決定將案件押後至6月18日作裁決。
+
+<figure>
+<img src="https://web.archive.org/web/20210726174610im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/陳淑莊-限聚令-20210602133447_ca47_large.jpg" alt="">
+<figcaption>前立法會議員陳淑莊離開法院。鄭啟智攝</figcaption>
+</figure>
+
+### 控方︰酒吧落半閘貼「private」字仍屬公眾地方
+
+控方首先作結案陳詞，指出根據《預防及控制疾病(禁止羣組聚集)規例》，公眾地方是指公眾可以不時在繳費或不繳費下進入的地方。控方強調，此定義重點在於「不時」二字，指出限聚令為防疫採取較寬鬆的定義。控方提出在此定義下，涉案的「HANDS」酒吧在營業時間內都容許公眾不時進入，即使酒吧在案發時有「落半閘」或在門外貼上「private」字眼，仍然屬於公眾地方。控方續指，案發時酒吧仍有營業，包括兩名控方證人正在光顧，仍屬於條例下的公眾地方。
+
+控方一度在庭上提出，「HANDS」酒吧當時有為入內人士量度體溫，以及安排與會人士不多於4人同坐一枱，證明被告亦認知酒吧當時屬法例下受限的公眾地方。裁判官鄭念慈回應指：「有啲難以接受」，直言與會人士為公共衛生「做多啲」，不代表他們認為酒吧屬公眾地方。
+
+### 控辯爭拗會議目的　討論「禁酒吧令」可否豁免
+
+辯方提出，案發當晚的會議目的，是向酒吧業界講解禁酒吧令，符合限聚令下「為傳揚有助於預防及控制指明疾病的資訊或技巧」的群組聚集可獲豁免。控方陳詞時反駁，會上一眾酒吧業界主要討論在禁酒吧令下如何生存，只屬商業目的。控方又指出，根據控方證人的供詞，曾聽到與會人士提及選舉事宜，認為會議性質在中後段有改變，變成林瑞華的選舉集會。
+
+鄭官聞言指出，會議可以有多於一個目的，當晚會議有解釋當時新實施的禁酒吧令，而酒吧業界商討如何生存，即使有商業目的，同時也是討論如何配合防疫規例。鄭官又指出，控方證人聽到會上討論選舉事宜只有3句，可能只是有與會人士「抽水」，不影響會議目的。控方回應指，法庭需裁定當晚會議的主要目的是甚麼，如法庭裁定當晚主要是宣揚防疫信息，則相關豁免適用於本案。
+
+<figure>
+<img src="https://web.archive.org/web/20210726174610im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/林瑞華-限聚令-20210602133514_a07e_large.jpg" alt="">
+<figcaption>香港中小企食店聯盟召集人林瑞華。鄭啟智攝</figcaption>
+</figure>
+
+辯方另外提出，「於工作地點為工作而進行的群組聚集」可適用於林瑞華，因他當時正進行身為中小企食店聯盟召集人的工作。惟控方反駁如果林到全港不同餐廳開會均可獲豁免，則限聚令會「蕩然無存」。
+
+辯方亦指出有關立法會程序可獲豁免限聚令適用於時任立法會議員陳淑莊，稱她當時正進行議員職務。控方則強調該條款是豁免立法會整個機關，而非豁免個別立法會議員，因此不適用於陳淑莊。
+
+辯方在結案陳詞亦提出，被告可能真誠地誤會限聚令的條文，以為立法會議員出席群組聚集可獲豁免，以及酒吧「落半閘」和貼上「private」字句即不被視作公眾地方。控方引用終審法院案例，指出真誠地誤會法例不能視作合理辯解。鄭官亦質疑，陳淑莊和酒吧負責人陳偉才未有出庭作供，不能確定他們誤解法律的原因。
+
+<figure>
+<img src="https://web.archive.org/web/20210726174610im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/林瑞華-陳淑莊-限聚令-20210602133544_120d_large.jpg" alt="">
+<figcaption>涉案「HANDS」酒吧負責人陳偉才。鄭啟智攝</figcaption>
+</figure>
+
+### 辯方質疑控方證人有不良目的  可信性成疑
+
+控方表示本案4名控方證人的供詞，雖然並非盡善盡美，但在關鍵議題的供詞不受辯方爭議，包括酒吧內當時有逾20人聚集、有提供酒精類飲品等。
+
+辯方大律師關百安則質疑，4名控方證人當時帶有不良目的，旨在跟蹤林瑞華或陳淑莊，有可能誇大供詞，可信性成疑。控方反駁當日會議在開始前約3小時才臨時組織，加上陳淑莊在證人報警後才到場，認為4名證人不可能預知會議舉行和陳淑莊會遲到。
+
+案情指陳淑莊和林瑞華於去年4月2日至3日，在旺角大南街「HANDS」酒吧參與受禁群組聚集；陳偉才於去年4月2日至3日，營運在內有受禁羣組聚集進行的「HANDS」酒吧，明知而容許受禁羣組聚集，以及未有為進入酒吧的人量度體溫和容許多於4人同坐一桌。
+
+案件編號：KCS 526408-411/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726174610/https://www.hkcnews.com/aboutus/#subscribe)

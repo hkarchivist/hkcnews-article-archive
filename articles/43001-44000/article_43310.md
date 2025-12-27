@@ -1,0 +1,80 @@
+---
+title: "【721白衣人暴動案】4名罪成被告求情　官稱月台施襲「完全喪失理智」　無差別對待男女老幼"
+date: "2021-07-13"
+last_updated: "2021-07-13 17:43:42"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "元朗白衣人"
+  - "白衣人"
+  - "721白衣人暴動案"
+url: "https://web.archive.org/web/20210920164251/https://hkcnews.com/article/43310/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43319/%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43310/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43319/%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【721白衣人暴動案】4名罪成被告求情　官稱月台施襲「完全喪失理智」　無差別對待男女老幼
+
+**7.21元朗白衣人無差別襲擊，其中4名暴動罪成白衣人今（13日）在區域法院求情。法官葉佐文明言，當日在月台發生的襲擊非常嚴重，施襲者無差別對待車廂內的男女老幼，市民被困無法離開，難以理解這種「完全喪失理智」的施擊。葉官又形容，當日有些市民「好有勇氣」去阻擋攻擊，「（影像）睇到好令人傷感」。**
+
+**葉官稱，不覺得在坐被告都是壞人，他們全部都有家人朋友、「正常人一個」，但案發當晚卻失去控制，「距離正常人會做嘅野是有一段距離，唔識的人都咁打，完全不能解釋。」**
+
+**被告吳偉南「飛天南」、黃英傑、林觀良及蔡立基的家人均有到庭旁聽。散庭後，其中幾名親友用手機攝錄在場記者樣貌，一名男子多次故意走近不同記者，以極近距離拍攝記者大頭，另有兩名「飛天南」的女親友不時高呼「國家法，影近啲，我影到你㗎」、「國安法出咗㗎喇」、「今日就上國安局，拉晒佢哋班仆街」，又斥責戴口罩的記者「做咩要遮樣啫，唔洗遮喎」。**
+
+
+{{< video src="https://web.archive.org/web/20210920164251if_/https://www.youtube.com/embed/uBu8Hj5w9nA" >}}
+
+
+8名白衣人的暴動案早前審結，除了第一被告王志榮無罪釋放，其餘5名不認罪被告全部暴動或串謀暴動等罪成；另有二人承認暴動等罪。其中被告黃英傑、林觀良、吳偉南「飛天南」及蔡立基早前已提交書面求情，今早在庭上進一步解釋。
+
+### 官稱車廂市民與白衣人「武器不對等」
+
+第三被告林觀良開審前承認當日在大堂及月台施襲。法官葉佐文庭上形容，月台的襲擊是本案最嚴重的部分。他表示，「所有人在車廂入面，都無法可以（走）⋯⋯如果初初有人不歡迎來元朗搞事，或者覺得多是非，不鍾意你們來擾亂我，我明白的，我未必認同，（但）如果我住喺度⋯⋯個心態可以解釋。」
+
+葉官續指，「上到月台，人哋都走⋯⋯人哋都走，你仲打，人哋都走啦，你都仲打喎，我覺得月台真是好嚴重，對方基本上是無差別人士，男女老幼，困住無得走，因為襲擊者在門口，（與）裡面的人武器是不對等，啲遮都扑爛咗。」葉官又覺得，有些市民「好有勇氣」阻擋攻擊，「（影像）睇到好令人傷感」，明言「我理解不到點解會做啲咁嘅嘢，完全解釋不到，好似是完全喪失咗理智。」
+
+代表林觀良的大律師陳韋君強調被告已有悔意，望公開代表他向受害者鄭重道歉。陳韋君又表示，被告在還柙這兩年間成為基督徒，積極參與更新活動，願意對家人及社會負責任，3名牧師及其未婚妻亦有撰寫求情信，望法庭輕判。葉官再次重申月台襲擊事件的嚴重性，形容林觀良認罪算是有最後一絲底線，但仍在考慮判以較高刑期。
+
+<figure>
+<img src="https://web.archive.org/web/20210920164251im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/元朗白衣人-721白衣人暴動案-20210713140913_1d4a_large.png" alt="">
+<figcaption>法官葉佐文庭上形容，月台的襲擊是本案最嚴重的部分。立場新聞直播截圖</figcaption>
+</figure>
+
+### 可能是做了壞事　「好似有啲報應」
+
+對於第六被告吳偉南「飛天南」一方求情指，他當日是被人或物件擊中，因而昏倒在地差點斃命，葉官庭上表示證供根本沒有看到他因遇襲暈倒，要求其代表大律師劉啟賢澄清，又指如果他真的被打至「瞓低」或者也會覺得他可憐，但若沒有證據證明，情況就可能是「他做咗啲壞事，好似有啲報應。」
+
+劉啟賢再三重申被告有遭擊中，但可能是細小物件，葉官打斷謂「唔會囉」，因呈堂片段已清晰顯示被告沒有遭受「打到暈低斃命」般嚴重的襲擊。劉啟賢另提到，被告的姪女及18歲正讀大學的細女等都有撰寫求情信，形容被告非常照顧家庭。葉官回應指，被告沒有牽涉非法禁錮行為，犯案時間及案情較第五被告鄧懷琛輕，但即使英龍圍事件不及大堂、月台、形點天橋等嚴重，也不代表被告罪責不重。
+
+<figure>
+<img src="https://web.archive.org/web/20210920164251im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/飛天南-20210618145433_1559_large.jpg" alt="">
+<figcaption>吳偉南「飛天南」一方求情指，他當日是被人或物件擊中，因而昏倒在地差點斃命，葉官庭上表示證供根本沒有看到他因遇襲暈倒。資料圖片</figcaption>
+</figure>
+
+### 與正常人會做的事有一段距離
+
+第八被告蔡立基的代表大律師陳家昇表示，被告本身「日出而作，日入而息」，孝順父母，上次犯案已是多年前。葉官稱，不是覺得在座被告都是壞人，全部都有家人朋友，「都係正常人一個嚟嘅」，但不知為何案發當晚「個個都失控」，「距離正常人會做嘅野是有一段距離，唔識的人都咁打，完全不能解釋。」葉官續指，元朗範圍很大，出現的人不一定會到被告家，除非被告事先「問清楚」，情況現時看來是「無差別對待」。
+
+就蔡立基所涉行為，葉官形容他是「活躍參與者」，在樓梯間連同多人施襲，甚至在受害人倒地後繼續打，是一件「好差的事」，難以給予輕判理由。陳家昇希望法庭只將部分刑期分期執行，得悉葉官打算將暴動及傷人罪同期執行後，陳在庭上鬆一口氣。
+
+代表第二被告黃英傑的大律師王詠文求情指，被告本來絕對有使用暴力的機會，但他並沒順手施襲，在本案角色相對輕微，被捕後亦已向警方招認部分案情。葉官回應指，看過黃的背景報告覺得他「不是一個壞人」，在本案只是鼓勵者、非重大角色，但要謹記「他最後都是不認罪」。
+
+葉官另表示，有求情信提到被告參與義工服務多年，但欠缺相關詳情，強調辯方需提出實際詳情，並指若有被告以家庭情況為「人道理由」求情，同樣要清晰表明狀況。各被告均表示不打算以「人道理由」求情。
+
+<figure>
+<img src="https://web.archive.org/web/20210920164251im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/721白衣人暴動案-元朗白衣人-20210325163904_16e7_large.jpg" alt="">
+<figcaption>法官葉佐文表示，看過黃的背景報告覺得他「不是一個壞人」，但要不能否認「他最後都是不認罪」。資料圖片</figcaption>
+</figure>
+
+除了早前認罪的林觀良（48歲，商人）及林啟明（43歲，商人），6名受審被告為王志榮（54歲，運輸公司東主）、黃英傑（48歲，工程公司東主）、鄧懷琛（60歲，燒烤場東主）、「飛天南」吳偉南（57歲）、鄧英斌（61歲）及蔡立基（40歲，機械技工）。其中王志榮早前已獲無罪釋放。
+
+黃英傑、林觀良、林啟明、鄧英斌及蔡立基，被控於元朗西鐵站大堂參與暴動及有意圖傷人；鄧懷琛及吳偉南「飛天南」被控於元朗西鐵站J出口（英龍圍一帶）參與暴動及串謀有意圖傷人；鄧懷琛另於元朗形點商場內參與暴動及有意圖傷人。
+
+【案件編號：DCCC888/2019、DCCC11/2020 、DCCC 734/2020（已合併）】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920164251/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,72 @@
+---
+title: "微公益是慈善籌款的大趨勢"
+date: "2021-09-02"
+last_updated: "2021-09-03 12:12:53"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "慈善籌款"
+  - "籌款社交平台"
+  - "慈善機構"
+url: "https://web.archive.org/web/20211026090250/https://hkcnews.com/article/44944/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44944/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 微公益是慈善籌款的大趨勢
+
+<figure>
+<img src="https://web.archive.org/web/20211026090250im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/慈善籌款-籌款社交平台-專業和你傾-20210902111550_292e_large.png" alt="">
+</figure>
+
+【撰文：籌款社交平台創辦人蔡子瑜】
+
+賣旗籌款是沿用至今的籌款方法，既簡單又能集腋成裘。可是，隨着時代與科技急速的發展，而且面對僧多粥少的局面，慈善機構也不能再墨守成規地籌募經費。但要改變一直以來的傳統、改變被灌輸的心態及長久的習慣十分難，要付出時間及精神、更可能換來大串批評及輕視。人天生害怕失敗、討厭批評、迴避不肯定因素，偏偏改變就是會擴大以上種種出現的機率。俗語有話「辦法總比困難多」，為的是：香港值得擁有更多的行善模式。
+
+<figure>
+<img src="https://web.archive.org/web/20211026090250im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賣旗籌款-慈善籌款-慈善機構-20210901185548_2c5c_large.jpg" alt="">
+<figcaption>賣旗籌款是傳統的籌款方法。網上圖片</figcaption>
+</figure>
+
+近年大眾做善事變得小心，街上終日見到穿著不同制服於港鐵站出口對你招手 的慈善大使，積極向你介紹代表的團體，瞬間出現遇到地產樓盤經紀的錯覺。加上利用慈善行騙的事件亦屢見不鮮，大家漸漸習慣抱着懷疑的心態對待不熟悉的慈善籌款活動，害怕被騙而收起善心，猜疑已成為阻止大家行善的原因。你，有多久沒與陌生人一起為共同關心的事堅持？
+
+### 疫情期間慈善機構面對經濟困難
+
+有感香港社會有不同的問題陸續浮現，有迫切需要的人士得不同援助，不少慈善機構於疫情期間亦面對經濟困難。慈善機構不同商業公司，於經濟下滑時的需求是有增無減，但物資及金錢來源又會受社會大環境影響。不少依賴大眾捐款的小型慈善機構，都相繼面臨資源短缺但求助個案急增的困局。慈善機構是沒有後退的空間，不能因物資短缺便減少對受助人的付出，因為很多受助人面前是影響生存的問題。但香港是世界上最富裕的城市之一，每當鄰近地方有天災人禍，香港人總是熱心幫忙的，為何現在香港內部出現的社會問題會落得求救無門？沒可能香港人亦救不到其他香港人，究竟香港欠缺的是甚麼？
+
+<figure>
+<img src="https://web.archive.org/web/20211026090250im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/籌款-捐款-慈善機構-20210901185622_2561_large.jpg" alt="">
+<figcaption>不少依賴大眾捐款的小型慈善機構資源短缺。</figcaption>
+</figure>
+
+透過社交平台去籌款並非新鮮事，外國已經有不少成功例子如GoFundMe.匯聚需要求助的人及有善心的人，亦冀望透過不同的網上挑戰去將惻隱之心透過人際網絡延伸得更遠。就好像賣旗一樣，有不同的人於街上不同的角落接觸經過的人，開始時總是戰戰兢兢，害怕被拒絕，但只要願意向陌生人伸手，回應是會令你驚訝的。我們亦相信做善事可以有好多方法，可以與時並進，令慈善數碼化，大支 票時代已過時，做好事應該如上網購物一樣簡單方便又滿足。
+
+### 打破固有網上籌款形式
+
+香港人對關心的事是充滿熱誠的，難題是現在並沒有供小型慈善機構及公眾集中報導及分享有籌款需要的事情，往往只可透過私人網絡分享。常用的社交平台亦因演算法限制了預算緊絀的團體去接觸新觀眾群，造成塘水滾塘魚，不能擴展至更闊的受眾。想打破固有的網上籌款形式，透過人脈及輕鬆的挑戰片去接觸不同圈子的善心人。好像大家都玩過的，為漸凍人症患者籌款的「Ice Bucket Challenge 冰桶挑戰」，近日香港也開始有 [社交平台Little Flags籌款](https://web.archive.org/web/20211026090250/https://www.littleflags.org/zh/) ，大家可以轉到網上利用自己的創意，及社交網絡再次演繹賣旗者的角色，甚至可以化身為發起人，為身邊有需要的人發起籌款，讓他們得到金錢上的援助，於平台上各人可自由支持各人認同的事情以及以不同的身份參與慈善。
+
+<figure>
+<img src="https://web.archive.org/web/20211026090250im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/慈善籌款-冰桶挑戰-漸凍人症-20210901185514_25d0_large.jpg" alt="">
+<figcaption>早年的冰桶挑戰為漸凍人症患者籌款。網上圖片</figcaption>
+</figure>
+
+「慈善」對大部份人是沉悶，遙遠與及事不關己的，往往要到自己及身邊人有緊急需要時才會去發聲，但可能已發現時間太少求救無門。與其望天打卦，倒不如 及早培養慈善界的新勢力，利用大家的行動打破慈善是富有階層的遊戲，成就普通人互助的新生態。想影響身邊人做善事，不一定要講一大串道理，現在可以利用自己的魅力，令朋友明白慈善亦不一定是老土。
+
+與其慨嘆社會上的不公，不如換個方式，利用自己的影響力令香港改變舊時代思維與經濟模式。相信只要肯努力，就會有機會改變，就可以用自己的一分力去幫更多有需要的人。
+
+**作者簡介：** 蔡子瑜，Little Flags籌款社交平台創辦人，2000年於澳洲悉尼大學畢業回港，之後創辦音樂串流平台，透過歌詞牽動人心、喚醒回憶。2020年眼見香港飽受疫情影響，社會分裂，於是決心創辦旗跡社Little Flags，以嶄新的方式促進陌生人互相幫助，顛覆慈善界守舊的營運模式，令籌款變得有趣。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026090250/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20211026090250im_/https://hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

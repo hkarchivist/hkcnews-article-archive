@@ -1,0 +1,64 @@
+---
+title: "女嬰死亡揭保母情侶虐兒　掌摑、藤條鞭打、狗鏈綁起獨留在家　沒人被控謀殺誤殺"
+date: "2021-10-15"
+last_updated: "2021-10-15 21:16:12"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "虐兒"
+  - "高等法院"
+url: "https://web.archive.org/web/20211128182254/https://www.hkcnews.com/article/46529/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46529/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 女嬰死亡揭保母情侶虐兒　掌摑、藤條鞭打、狗鏈綁起獨留在家　沒人被控謀殺誤殺
+
+一對三十多歲情侶代朋友照料女嬰，前年一夜女嬰緊急送院，不治喪生。未足兩歲的女嬰被發現遍體麟傷，營養不良，頭部多處疑受硬物所傷。警方調查發現這對「保母情侶」經常掌摑和用藤條鞭打女嬰，甚至間中用鐵狗鏈綁著女嬰獨留在家，最終以虐兒罪起訴，沒人被控謀殺或誤殺。男女被告今在高等法院認罪，控方披露，女嬰不時遭女被告被打至口腔出血，而男被告曾發短訊說「啱啱我差啲殺咗佢」。兩人還柙等候求情及判刑。
+
+女被告柯靜雯（36歲）和男被告蕭國偉（33歲）未有被控誤殺或謀殺。辯方大律師指，雖然解剖醫生推斷女嬰死於頭部受傷，但未有說明確實成因，沒有指是被告造成，據被告所說女嬰送院當天試過頭向下倒地，而其他專家對死因有不同意見。法官黃崇厚將案押後至下周二(19日)，聽取辯方求情和進一步陳詞。
+
+<figure>
+<img src="https://web.archive.org/web/20211128182254im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/虐兒-20211015211109_222d_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 女嬰母25歲育四孩　兩被告本身有3年幼子女
+
+案情以洋名Heiley稱呼死去的柯姓女嬰。Heiley的母親張紀顏（譯音，25歲）有兩子兩女，與女被告認識6年。2018年8月開始，兩被告間中為張照顧3歲兒子和8個月大的Heiley，每次數天至數周不等。案情未有說明張女託兒的原因，亦未提及女嬰的親生父親。
+
+兩被告本身育有三名5個月至8歲大的子女。前年4月女被告向張索取3千元作為Heiley的照顧費，又指張影響她的生計，催促張「找數」。案情指張探望Heiley時，間中注意到Heiley有瘀傷，女被告稱是Heiley自己造成或只是蚊叮。
+
+### 全家外出遺留女嬰　用狗鏈綁稱免生危險
+
+Heiley前年6月20日凌晨死亡。女被告被捕後告訴警方，主要由她照料Heiley，Heiley一向聽話，但最近兩個月託管期間變得難照顧，她怒不可遏時便會打Heiley，有三四次掌摑，原因例如Heiley夜間無故哭喊、不在桶上小便而在地上瀨尿。她也用藤條打Heiley，因為Heiley多手四處摸，她怕打碎玻璃傷及家中其他小孩。
+
+女被告透露曾用金屬狗鏈綁著Heiley，有次是因為她要外出接女兒放學，由於她生育後感背痛，不想全程抱著或背著Heiley，故獨留Heiley在家大半個小時，用一米長狗鏈綁著讓她躺在床上，免生危險。另一次則是全家外出用膳，但Heiley不想行，而截5人的士比較難，於是留下Heiley在家。
+
+<figure>
+<img src="https://web.archive.org/web/20211128182254im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/高等法院-20180622153926_2d33_large.jpg" alt="">
+<figcaption>兩被告今在高院承認虐兒罪。</figcaption>
+</figure>
+
+### 男被告向警稱輕力掌摑　短訊自言「差啲殺咗佢」
+
+男被告承認在前年曾摑Heiley的臉五六次，又會打屁股和手掌。他自言僅是輕力，因為用盡全力恐會打死女嬰。他最後一次打Heiley是送院前的晚上，Heiley玩耍時踢他的女兒，又不理勸阻，於是他掌摑Heiley。他回想，通常Heiley被打會哭，但這次出奇地沒有。   
+   
+ 男被告稱知道女被告掌摑過Heiley八九次，但不清楚來龍去脈，約有三份之一次數Heiley口腔會出血。他亦見過女被告用藤條體罰，有時他袖手旁觀，但有次他不忍，把Heiley抱開。他並說，女被告兩度叫他用狗鏈綁住Heiley，但他拒絕。
+
+警方從被告的電話找到談論打Heiley的訊息，有次女被告抱怨Heiley行動太慢，「你睇唔睇X到佢嘅速度呀，你睇唔睇X到佢嗰個輕挑呀」，直言想拳打Heiley。前年5月，男被告發短訊給女被告，叫她稍後處理Heiley，自言「啱啱我差啲殺咗佢」。翌月兩被告討論Heiley偷東西吃，男被告拍照顯示臉瘀的Heiley站在床上，女被告說「打X到佢仆街」。
+
+### 吃豬骨粥當晚出事　聲稱以為女嬰哽喉
+
+據被告所說，前年6月19號日間，女被告和朋友及女兒去醫院，有帶同Heiley，聲稱當日Heiley昏昏欲睡，不願步行，下車時頭向下墜向地，女被告及時抱住。但上樓時，Heiley在家門外跌在地上，女被告稱不知道如何發生。晚上一家人到粥店吃粥，女被告說懷疑Heiley沒多咬便吞下豬的軟骨。
+
+男被告說吃完粥回家後，Heiley曾發出嘔吐聲和深呼吸聲，他檢查過有沒有東西卡在她的喉嚨。到午夜，他們發現Heiley面色蒼白，軀體冰冷，沒有反應。女被告懷疑Heiley哽喉，嘗試按壓急救，並叫朋友前來協助，最終召救護車送院，惟搶救不治。
+
+案件編號：HCCC99/21
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128182254/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,91 @@
+---
+title: "警直播記者身份證40秒　私隱專員裁定違例：目的與截查無關、促警務處尊重個人資料"
+date: "2020-12-22"
+last_updated: "2020-12-22 19:32:03"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "立場新聞"
+  - "立場"
+  - "stand news"
+  - "the stand news"
+  - "私隱專員公署"
+  - "大埔超級城"
+url: "https://web.archive.org/web/20211203001951/https://hkcnews.com/article/36660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD40%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/36660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD40%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警直播記者身份證40秒　私隱專員裁定違例：目的與截查無關、促警務處尊重個人資料
+
+**《立場新聞》記者去年12月26日在大埔超級城採訪期間，遭警員截查並在直播鏡頭前展示其個人身份證長達40秒，個人資料遭外洩。事隔近一年，私隱專員裁定涉事警員違反《個人資料私隱條例》，提醒前線警務人員必須尊重及保障受查人士的個人資料。**
+
+**調查報告指出，從客觀證據來看，涉事警員在鏡頭前展示身份證的目的，並非與核實身份有關，外洩個人資料亦非意外。記者多番表明不同意將身份證向鏡頭展示，警員沒取得記者同意而披露對方個人資料。專員未能找到充分證據支持，如不在鏡頭前展示身份證，便損害偵測罪行，因此豁免條款亦不適用。**
+
+**警方接納私隱專員的調查報告，認同涉事人員的行為有「不足之處」，已作出「訓斥」，將參考調查報告內容就事件進行紀律覆檢。**
+
+<figure>
+<img src="https://web.archive.org/web/20211203001951im_/https://hkcnews.com/news_新聞/hk-discuss/2020/12/立場記者-20201222182312_80ea_large.png" alt="">
+</figure>
+
+調查報告指出，根據保障資料第3(1)原則規定，涉事警員只可將記者身份證使用於核實身份目的，除非取得記者的「訂明同意」，或引用《私隱條例》下的豁免條款，才可在沒有記者的「訂明同意」下，將其身份證個人資料使用新目的。
+
+### 在鏡頭前展示身份證　目的並非核實身份
+
+警務處表示，涉事警員為了核實該名記者的身份，而要求對方出示身份證。根據保障資料第3(1)原則規定，涉事警員只可使用該身份證在核實身份目的上。為達致此目的， **涉事警員理應只須接過身份證，將身份證面向自己核對有關資料便可。**
+
+警務處曾解釋，涉事警員將身份證向外展示，目的讓記者確認身份證是否屬於他本人的。 **專員認為，即使涉事警員懷疑該身份證屬於他人，而希望該名記者作出確認，大可向該名記者讀出身份證上的姓名，而無需在鏡頭前展示該身份證。**
+
+警務處又指出，由於涉事警員截查該記者時，對方沒有停止錄影，該身份證個人資料是意外外洩予正在觀看直播的公眾人士。 **專員指出，理解事發時情況混亂，但有關片段顯示，該名記者當時手持攝錄器材，涉事警員鏡頭前展示記者身份證長達約40秒。**
+
+#### 從客觀證據看來，涉事警員在鏡頭前展示身份證的目的並非與核實身份有關，屬一項新目的，而該身份證上的個人資料亦非是意外外洩予公眾人士。
+
+### 記者多次表明反對　警員無取得同意披露個人資料
+
+私隱專員注意到，直播片段中該名記者多番表示，不同意涉事警員將其身份證向鏡頭展示。根據保障資料第3(1)原則規定，如涉事警員沒有取得記者的「訂明同意」，不得將該記者的身份證資料使用新目的，包括披露個人資料。
+
+根據《私隱條例》第2(3)條，訂明同意是指「明確」及「自願」同意，應足夠清晰和具體，「默許」或「暗示」同意並不屬於訂明同意。從片段可見，記者當場已就涉事警員在鏡頭前展示身份證的行為提出反對。
+
+警務處指，若該名記者不同意其身份證出現於片段中，理應立即停止攝錄；或事後從網上刪除顯示有他身份證的片段。 **專員認為，即使記者沒有暫停攝錄，這不等同於涉事警員已取得記者的「訂明同意」，而可將身份證上的個人資料用於與截查無關的新目的上，即在鏡頭前展示記者的身份證。**
+
+#### 綜上所述，專員認為涉事警員未取得記者的訂明同意下，將身份證資料用於與截查無關的新目的上，將身份證資料在鏡頭前展示。
+
+<figure>
+<img src="https://web.archive.org/web/20211203001951im_/https://hkcnews.com/news_新聞/hk-discuss/2019/12/查身分證-立場記者-私隱-20191226214007_2ced_large.png" alt="">
+<figcaption>港台截圖</figcaption>
+</figure>
+
+### 展示身份證與防止罪行不相稱　豁免條款不適用
+
+專員認為，假設涉事警員當時有合理理由懷疑該名記者干犯任何罪行，《私隱條例》的第8部第58條可豁免涉事警員，在某些特定情況下遵從保障資料第3原則的規定。引用豁免的先決條件是：披露個人資料新目的是防止、偵測罪行、拘捕、檢控犯罪者；不披露該個人資料相當可能損害防止或偵測罪行。明顯地，有關豁免是為公眾利益而設。
+
+資料使用者如何「證明」其合理相信的基礎，專員指出，正如高等法院案例，任何嘗試引用豁免條款的人，不可空口講白話（bare allegation），必須提出強而有力的證據（cogent evidence）。披露個人資料與否？最終披露程度為何？是否真的為達成相關執法目的所必要？成為其中一個重要的考慮因素。
+
+本案中，雖然警務處解釋該記者的行為可能干犯「阻礙警務人員執行職務」罪，而涉事警員當時有需要向該名記者作出截查以確實其身份，即涉事警員紀錄該名記者的個人資料的做法是為了防止和偵查罪行； **但是，涉事警員理應只須接過身份證，將身份證面向自己核對有關資料，再將該名記者的個人資料記錄在警察記事冊上，便可達致防止和偵查罪行的目的。**
+
+#### 專員未能找到充分及強而有力的證據支持如涉事警員不在鏡頭前展示記者身份證，便相當可能會損害防止或偵測罪行目的。專員認為，涉事警員在鏡頭前展示記者身份證的做法，與防止或偵測罪行目的並不相稱，亦沒有直接關係。因此，《私隱條例》第58條的豁免條款並不適用。
+
+
+{{< video src="//web.archive.org/web/20211203001951if_/https://www.youtube.com/embed/bV3vxGDZ8fE" >}}
+
+
+### 鼓勵警務處加強培訓　建尊重個人資料私隱文化
+
+報告顯示，警務處處長鄧炳強曾形容「有同事不當地將一些人士的身份證向鏡頭前展露」、「可能有啲同事做嘢嘅時間係太過投入，亦都係可能會例如將一啲人嘅身份證明文件係鏡頭上展示。面對呢啲做錯或者做得唔好嘅地方，第一時間我哋要話俾同事呢啲係唔正確，係制止咗先。」警務處表示已「訓斥」有關警員，但認為是個別事件，相關片段或會引起公眾誤解，誤以為警員刻意向外展示個別人士身份證。
+
+私隱專員提醒前線警務人員必須尊重及保障受查人士的個人資料，包括身份證上的資料，建議警務處考慮修訂《程序手冊》，加入保障資料第3原則及第4原則的規定，確保警員注意並遵守。
+
+專員建議警務處針對前線警務人員進行截停搜查的實際情況，作出風險評估，從而制定清晰的政策和指引，以保障受查人士的個人資料私隱；同時鼓勵警務處繼續加強培訓，建立持續的尊重個人資料私隱文化，進一步提升警隊的專業形象及服務質素。
+
+### 警：接納調查報告　將進行紀律覆檢
+
+警方發言人回應指，接納個人資料私隱專員的調查報告，亦會跟進報告中的四項建議，檢討有關政策及指引，加強對人員的培訓，確保各級人員理解並遵從《私隱條例》及相關保障資料原則。
+
+警方強調一向十分重視個人資料私隱，就資訊保安及個人資料保護方面，警隊有清晰及嚴格的指引和程序，規管人員執勤期間就個人資料的處理和使用。警方認同涉事人員在事件中，展示記者身分證的行為有不足之處，已對有關人員作出訓斥，亦會參考調查報告的內容就事件進行紀律覆檢。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203001951/https://hkcnews.com/aboutus/#subscribe)

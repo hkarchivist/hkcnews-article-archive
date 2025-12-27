@@ -1,0 +1,48 @@
+---
+title: "面由人畀假自丟　自吹自擂得啖笑"
+date: "2021-10-05"
+last_updated: "2021-10-05 20:09:14"
+author: "羅家聰"
+category: "眾說"
+tags:
+  - "陳茂波"
+  - "發展局局長"
+  - "Secretary for Development"
+  - "羅家聰"
+  - "香港營商環境報告"
+url: "https://web.archive.org/web/20211205083617/https://hkcnews.com/article/46147/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46196/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46147/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46196/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 面由人畀假自丟　自吹自擂得啖笑
+
+<figure>
+<img src="https://web.archive.org/web/20211205083617im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/陳茂波-羅家聰-香港營商環境報告-20211005182924_25ee_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+港財爺上週發表了《香港營商環境報告》。這些政治騷本不值得浪費篇幅去討論，但確有幾個位不笑不快。首先，營商環境之類報告，在有商業之地都由民間智庫包辦，由政府官員親自出面老鼠跌落天秤，只有共產陣營那類自說自話自拍掌的唔知醜才會。還是中共稍為高章：買通那些國金中心排名機構甚至插手干預世銀的營商排名報告。
+
+其次，這不是個常規報告，在西方要撤資時煞有介事推，司馬昭之心已路人盡見。第三，政府出報告素有既定做法，譬如經濟報告有經濟顧問、主責宏觀的首席經濟師和統計處長三人開記招。其他記招也有類似規矩。今次？其上之特首（對手）固然無份，其下商經局也無份，直接關事的金管局、統計處、經濟顧問俱無份，僅其下一員有。
+
+第四而最重要的，是反駁理據單薄。還以為有什麼大數據拿出來，原來只是存款、外儲、新股集資等舊料。早已多番指出，全球狂印銀紙，各地存款、外儲都水漲船高，問題是誰高得快而已。一比之下，香港顯然跑輸。說集資則更好笑，若非中概被美股DQ，那班共貴也貪花旗吃香，還輪到港香？二人上台強將壞事說好，更似做楝篤笑。
+
+港官被迫讀出中共寫好的台詞，聲言背靠祖國機遇無限，但偏偏西方現最厭惡的，正是偉大祖國那行事作風和敗壞霸道。目下所見，債話不追就不追，連電也話停就停，機遇是否處處大家心照，但風險處處卻眼見為實。做此生意，不是血本無歸便共富貴。還叫人別移民？若非政府多行不義，哪有這麼多人逃難？大灣區還是留予港官好了。
+
+本週出PMI和美國就業。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205083617/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 羅家聰](https://web.archive.org/web/20211205083617im_/https://hkcnews.com/uploads/avatars/c3ce8859-7e68-4803-9232-df57a4cd24f4.png?835679720)
+
+**博客 | 羅家聰**
+
+【羅家聰・一名經人】香港經濟學家、財經專欄作家，有「香港末日博士」之稱，愛研究歷史經濟數據尋出經濟大趨勢。此欄將每周回顧前瞻，從中分析你最要知的經濟數據及重點。FB專頁：facebook.com/kachung.law.988｜電郵：[email protected]

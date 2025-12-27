@@ -1,0 +1,41 @@
+---
+title: "【國安法首案】唐英傑罪成囚9年提上訴　指原審誤解及忽略重要證供　明年3.22審理"
+date: "2021-11-26"
+last_updated: "2021-11-26 12:50:30"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "唐英傑"
+  - "恐怖活動罪"
+url: "https://web.archive.org/web/20220117034413/https://www.hkcnews.com/article/48195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD322%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD322%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法首案】唐英傑罪成囚9年提上訴　指原審誤解及忽略重要證供　明年3.22審理
+
+首宗國安法案件的24歲被告唐英傑早前受審，被裁定煽動他人分裂國家、恐怖活動兩罪成立，判囚9年。唐就定罪及刑期提出上訴，上訴庭今（26日）作指示聆訊。上訴方指三名原審法官誤解及沒有處理部份重要證供，包括數名警員證人及控方專家證人劉智鵬的證供，希望索取原審錄音謄本供上訴庭比對參考。國安法指定法官彭偉昌批准申請，上訴聆訊定於明年3月22日進行。
+
+彭官並下令，上訴方須於明年1月24日或之前呈交書面陳詞，律政司則須於14日內回應。
+
+<figure>
+<img src="https://web.archive.org/web/20220117034413im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/唐英傑-20210219170659_1fed_large.jpg" alt="">
+<figcaption>唐英傑</figcaption>
+</figure>
+
+### 趙家賢受襲案主控加入唐英傑律師團隊
+
+今庭上所見，原審代表唐英傑的資深大律師郭兆銘（Clive Grossman）及大律師陳碧琪繼續留任，在民主派初選案被控的大律師劉偉聰則不再在陣，加入大律師關文渭。關文渭近日正擔任中年男子涉襲擊趙家賢等4人一案的主控。
+
+律政司繼續由高級助理刑事檢控專員周天行及高級檢控官張卓勤代表。
+
+眾新聞日前報道，原審時經法援署委聘的伍展邦律師行，上訴階段遭署方撤換，改派杜偉強律師事務所代表。該行網頁稱，創辦人及合夥人杜偉強是天津市政協常委及深圳市政協常委，而官方資料顯示杜已卸任。
+
+<figure>
+<img src="https://web.archive.org/web/20220117034413im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/唐英傑-20211126104201_145d_large.jpg" alt="">
+<figcaption>大律師關文渭（網上圖片）</figcaption>
+</figure>
+
+唐英傑被控於去年7月1日駕駛插有「光復香港 時代革命」旗幟的電單車，撞向三名警員。他經審訊後，被國安法指定法官杜麗冰、彭寶琴、陳嘉信裁定煽動他人分裂國家、恐怖活動兩罪成立，判囚9年及停牌10年。
+
+案件編號：CACC175/21

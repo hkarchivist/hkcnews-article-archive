@@ -1,0 +1,56 @@
+---
+title: "那天中午，吳靄儀與年輕人的距離"
+date: "2020-04-19"
+last_updated: "2020-04-19 14:33:41"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "吳靄儀"
+  - "大搜捕民主派"
+  - "418大搜捕"
+url: "https://web.archive.org/web/20210805035557/https://www.hkcnews.com/article/29121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-418%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29123/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-418%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29123/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 那天中午，吳靄儀與年輕人的距離
+
+【撰文：張地生】   
+ ***本文轉載自筆者Facebook，標題由編輯所擬***
+
+那日中午，我與摰友，還有Margaret（吳靄儀），三人一同用膳。午飯過後，我們跟 Margaret 說，不如參與遊行，Margaret 一如既往，亮聲說好。然而，我們人在中環，如果要參與遊行，要不逆流而行，要不搭車到銅鑼灣。我跟摰友打趣道：「Margaret要行，開條私家路俾佢都得啦。」
+
+就這樣，我們便充當成她的貼身侍衛，為她開路。走著才發現，原來是多此一舉，吳靄儀所經之處，旁人都停下來向她伸手、問好，在肺炎尚未爆發的日子，握手還是恰如其分的社交禮儀。Margaret 則有求必應，也伸出雙手，爽朗答謝，我不知道她的手是否也讓人全身感受到溫暖，但她總是咧嘴而笑，眼神總是肯定，而她的一聲「加油」，自耳邊傳來總是響亮。有時候，她會拍一拍來者的肩膊，要知道她個子不高，在旁看起來，是很逗趣的畫面。
+
+我與摰友古靈精怪，每當聽見沒有人喊口號時，便會大喊「光復香港，時代革命」。其實，我們只是想聽 Margaret 喊出這句，她當然有一同附和，我們則在 Margaret 背後做起握拳手勢，滿有成功感。此時，旁邊有人跟我們遞上連豬貼紙，上面寫著「光復香港　時代革命」，Margaret 二話不說貼上，我當然借機跟她拍照留念。
+
+<figure>
+<img src="https://web.archive.org/web/20210805035557im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/吳靄儀-大搜捕民主派-418大搜捕-20200419125655_2712_large.jpg" alt="">
+<figcaption>Margaret手臂上貼上「光復香港　時代革命」連豬貼紙。照片由筆者提供</figcaption>
+</figure>
+
+我們現在經常強調國際戰線的重要，其實吳靄儀早在九十年代已經在踢世界盃。她在九五至九七年出訪各國，向各國政要講述香港問題。在她的自傳《拱心石下》裡，Margaret 寫到：
+
+> **香港人有決心捍衛香港，努力使香港成功，我自己就是這樣的一個香港人，樂觀與悲觀對我毫無意義，因為這是我的家，我決定了留下來，就要盡力而為。**
+
+
+這句讀來教人感受尤深，如果由去年4月17日的立法會會議開始計起，反送中運動已經歷時一年，經歷無數街頭抗暴，甚至失去手足，香港人依然屹立，意志不弱絲毫，勇氣未減半分，不就是因為香港是我們的家，我們無論如何也要堅守這片土地嗎？
+
+認識 Margaret 只有數年，然而無論處境如何險峻，我也從未見她垂下頭來。有時候，我會向她解釋，局勢如何不利，她便會拋下一句：「係吖，咁又點？」問到我啞口無言為止，然後她會問：「你試咗咁做未？」我輕聲說還沒有，她便會說：「咁咪係囉。」在吳靄儀的字典裡，從來沒有收錄「棄械投降」一詞。而她，已經堅持了五十載。
+
+遊行當日，我與摰友跟在Margaret後面，我發現她總是微微抬著頭，眺望著遠方，即使那天下著雨，像今日的香港一樣。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805035557/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20210805035557im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

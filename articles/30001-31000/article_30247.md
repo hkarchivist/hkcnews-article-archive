@@ -1,0 +1,69 @@
+---
+title: "馬道立指「高尚情操」判決觀感偏頗　郭偉健暫不處理政治案件"
+date: "2020-05-25"
+last_updated: "2020-05-25 17:32:10"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "馬道立"
+  - "終審法院"
+  - "香港終審法院"
+  - "連儂牆"
+  - "郭偉健"
+url: "https://web.archive.org/web/20210921211617/https://hkcnews.com/article/30247/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30264/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/30247/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30264/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 馬道立指「高尚情操」判決觀感偏頗　郭偉健暫不處理政治案件
+
+<figure>
+<img src="https://web.archive.org/web/20210921211617im_/https://hkcnews.com/news_新聞/hk-discuss/2020/05/馬道立-20200525122252_925f_large.jpg" alt="">
+</figure>
+
+區域法院法官郭偉健早前在將軍澳「連儂牆」斬人案裁決中力數示威者，反而讚揚被告洪震認罪有「高尚情操」。終審法院法官馬道立周一（25日）發表聲明，表示郭官裁決可能令人覺得沒有遵守法官不可偏頗、不可發表政見的原則，因而給人偏頗的觀感，經與區域法院首席法官同意後，「決定郭（偉健）法官暫時不應審理任何涉及類似政治背景的案件」。
+
+馬道立在聲明中指出，如果不依循上述原則，會削弱公眾對司法機構獨立運作及公正的信心及觀感，並已與郭偉健法官傾談提醒有關原則的重要性，郭官表示同意。
+
+<figure>
+<img src="https://web.archive.org/web/20210921211617im_/https://hkcnews.com/news_新聞/hk-discuss/2020/01/法律年度開啟典禮-終審法院首席法官-馬道立-20200113224529_bb5e_large.jpg" alt="">
+<figcaption>馬道立在聲明強調，司法獨立及司法公正是法治的基石。資料圖片</figcaption>
+</figure>
+
+今次是馬道立在被告洪震及律政司均無申請上訴覆核45個月刑期後，首度開腔回應事件，亦是罕有有法官要公開迴避某類案件。多名資深大律師如駱應淦、余若薇早前均質疑，郭官在裁決發表不當意見，包括批評反修例運動中示威者有如恐怖主義、被告反而是「被這場社會運動弄至為滿身鮮血及奄奄一息的垂死者」。
+
+事件源於郭偉健在今年4月就將軍澳連儂牆頒布量刑裁決，在裁決被告無預謀斬人時，郭官 [花了836字](https://web.archive.org/web/20210921211617/https://bit.ly/2X0gBse) 描述示威者「使用種種文革式的極端主義行為」。
+
+馬道立今日在聲明中首先強調，司法獨立及司法公正是法治的基石，法律面前人人平等，當中其中重要一環，是法官絕不可偏頗或觀感上不可被視為對任何人或因有偏頗。
+
+「因此，法官及司法人員必須避免就社會中具爭議或可能訴諸法院的議題，非必要地在公開場合（包括於判辭中）發表任何意見，尤其是任何一種政見。」馬道立說。
+
+如果發表意見的話，馬道立說必須慎重及經過斟酌衡量，不超過處理案件爭議合理需要。「一名法官或司法人員公開發表不適當或無必要的政見，有機會損害自己不偏不倚的形象，亦會影響他審理那些可合理地被視為與他個人政治立場有關的案件的公信力。」
+
+馬道立在中文聲明續指，郭官在「連儂牆」的判刑理由爭議在於它可能令人合理地認為，「前述的重要原則並沒有被遵守，因而給人偏頗的觀感」。不過在英文聲明，馬道立則形容當時裁決有合理偏頗觀感的「風險」(risk），在中文聲明則以「可能」產生觀感提述。
+
+（註：聲明英文部分是「The Reasons for Sentence referred to earlier have caused controversy in that there is a risk that some reasonable, fair‑minded and well‑informed persons could reasonably take the view that the aforesaid principles may have been compromised in that a wrong perception was given.」）
+
+<figure>
+<img src="https://web.archive.org/web/20210921211617im_/https://hkcnews.com/news_新聞/hk-discuss/2020/04/區域法院-郭偉健-法官-20200427210651_2bb8_large.jpg" alt="">
+<figcaption>區域法院法官郭偉健暫時迴避處理有關政治風波的案件。</figcaption>
+</figure>
+
+聲明引述法官郭偉健同意馬道立所說，所以在得到首席區域法院法官高勁修同意後，馬道立決定郭官暫時（for the time）不審理任何涉及類似政治背景的案件。
+
+郭官過去曾多次處理區院有關修理風波案件的答辯，爆出爭議後，多宗案件改由高勁修處理。
+
+司法機構當時回應說，留意到社會上對郭官判刑理由爭議，所以現階段作出有關安排。上周四五，郭官亦曾開庭處理一宗醉駕答辯及另一個案件提訊，均與修例風波並無直接相關。
+
+建制大黨民建聯則質疑司法機構本身已經偏頗。該黨議員周浩鼎在立法會司法及法律事務委員會期間，在沒有提出證據下，稱有法官「在反修例運動中支持暴力行為」，及有法官簽名支持這些運動，質疑司法機構應同一尺度處理其他法官。委員會主席、基本法委員會委員梁美芬當時未有介入。
+
+路透社曾經訪問中兩次報道中引述資深法官，表達對《逃犯條例》通過後的憂慮，，及整體而言香港司法獨立可能面對中央政府壓力。
+
+此外，去年6月反修例示威爆發之前，高等法院法官李翰良曾在5月底參與港大校友關注組聯署，反對政府修訂《逃犯條例》。司法機構當時解釋，馬道立5月29日指出法官避免發表意見，而有關法官是個人名義參與，在馬道立發表聲明前參與聯署。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921211617/https://hkcnews.com/aboutus/#subscribe)

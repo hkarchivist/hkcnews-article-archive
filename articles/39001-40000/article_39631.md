@@ -1,0 +1,65 @@
+---
+title: "林鄭「阿叻」上身　踩盡前任特首　病源不見不理　林鄭月娥最叻"
+date: "2021-03-24"
+last_updated: "2021-03-24 23:13:15"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "leung chun ying"
+  - "梁振英"
+  - "689"
+  - "CY Leung"
+  - "思歪梁"
+  - "狼英"
+  - "梁特"
+  - "梁特首"
+  - "港獨之父"
+  - "老懵懂"
+  - "董建華"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+url: "https://web.archive.org/web/20210731022443/https://www.hkcnews.com/article/39631/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39633/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39631/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39633/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭「阿叻」上身　踩盡前任特首　病源不見不理　林鄭月娥最叻
+
+
+{{< video src="https://web.archive.org/web/20210731022443if_/https://www.youtube.com/embed/TqBcHNEBmpw" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210731022443/https://bit.ly/2Cj8v4t)
+
+特首林鄭月娥昨日（23日）出席一個經濟高峰會議時自信爆棚，「我可以大膽地說」，香港的「病源」是沒有全面落實一國兩制，包括未能夠堅持「一國」原則以及維護國家主權。林鄭認為，中央一直有留意到香港情況，一直保持容忍及理解的態度，「可惜二十多年來，不單止是特首或政府，很多人處於很重要的位置，可以從他們自身角度去完善制度，但他們都視而不見，或是見而不理，於是就製造了愈來愈積累的大問題。」
+
+林鄭沒有點名，但一竹篙打盡回歸後3位特首：董建華、曾蔭權、 梁振英。藝人陳百祥「阿叻」上身，「我至叻」。
+
+[政府新聞處：行政長官出席香港經濟峰會2021發言全文](https://web.archive.org/web/20210731022443/https://www.info.gov.hk/gia/general/202103/23/P2021032300546.htm)
+
+全國政協常委何柱國月初接受無綫電視台訪問時指，如果林鄭再參選，他一定會參選，「目的想找個機會和她辯論，因為她曾說過一句說話，她認為她建設多於破壞，我對這說話有些不同看法，所以我想看看她建設了甚麼。」何柱國「林鄭破壞多於建設」一句話已說到咀邊，他未有機會當面向林鄭質問，林鄭昨日先認叻，幾位前特首不願做、不敢做的，她做得到！
+
+她接著數香港還未做到的，第一，未能堅持「一國」的原則，否則為何會出現「港獨」、「自決」行為。她反問「為甚麼要求『愛國者治港』好像是一些新生的事物？」第二是未能維護國家主權、安全和發展利益，認為香港廿多年都任由外部勢力在興風作浪，危害國家的安全。第三點是未能將中央按中國憲法和基本法行使的權力和特別行政區獲 授權的高度自治權有機結合，令全國人大及其常委會按着《憲法》和基本法來為香港解決問題成為禁忌以及未能完善與基本法實施相關 的制度和機制。
+
+林鄭忽然化身「智者」，聲稱香港回歸20多年，中央一直看得清楚，香港制度不完善，過去特首或政府，「處於很重要的位置」人士（忠誠的廢物？），又「視而不見，或是見而不理」，彷彿一切與她無關。事實是，她回歸後一直在特區政府擔任要職，在梁振英政府任政務司司長，她應該公開解釋，她過去是否亦是「視而不見」，「見而不理」，假如看見的話，自己做了甚麼，假如甚麼都沒有，應有個說法。她今日跳出來扮演「事後孔明」，對被她批評的人並不公平，踩別人以抬高自己，做法低劣。
+
+林鄭擔任特首近4年，之前任政務司司長5年，香港走向沉淪，出現港人逃亡、父母紛紛送孩子到海外升學、經濟衰退、西方國家不再認為香港享有自由、高度自治等等敗象，她不但需要負上一定的責任。2019年，她推出逃犯條例修訂，更一手將香港推進深淵，社會大分裂。中央訂立港版國安法，自由急速萎縮，再進行選舉制度大手術，選舉只徒具形式，已無公平競爭之實。特區先有「一男子」，再有「一女子」，不斷製造搞破壞、少建設，香港雞犬不寧。
+
+林鄭指香港「病之處」、「弊之源」，核心是「港人民心不回歸，仍抗拒中央，再多的生機也恐怕難以落實和發揮。」她沒有深刻反省民心背向、抗拒中央、對她表現打「零分」的原因， 有多少是她個人責任。中央對林鄭「有破壞、冇建設」「視而不見」，「見而不理」，最終亦要為香港沉淪負上歷史責任。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210731022443/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210731022443im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

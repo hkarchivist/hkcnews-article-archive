@@ -1,0 +1,56 @@
+---
+title: "【金馬獎58】《時代革命》奪最佳紀錄片　周冠威哽咽：屬於每一個有良知、公義、流過淚的香港人"
+date: "2021-11-27"
+last_updated: "2021-11-27 23:02:07"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "金馬獎"
+  - "紀錄片"
+  - "紀綠片"
+  - "周冠威"
+  - "時代革命"
+url: "https://web.archive.org/web/20220117165325/https://hkcnews.com/article/48238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48243/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48243/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【金馬獎58】《時代革命》奪最佳紀錄片　周冠威哽咽：屬於每一個有良知、公義、流過淚的香港人
+
+《時代革命》在萬眾矚目下，奪得第58屆金馬獎最佳紀錄片，揭曉名單當下，頒獎人陳湘琪在台上更一度哽咽。現場響起如雷掌聲，席間更有人高喊「香港加油」；周冠威透過預錄影片方式發表感言，他說，《時代革命》屬於每一個有良知、有公義，為香港流過眼淚的香港人；他忍不住激動情緒，祈求天父，縱使在香港、流亡海外的朋友看不到影片，但希望單單電影的存在，就是一份安慰和擁抱。
+
+
+{{< video src="https://web.archive.org/web/20220117165325if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F430224835212427%2F&show_text=false&width=560&t=0" >}}
+
+
+《時代革命》得獎，在片中的受訪者「阿爸」人在台灣，他接受眾新聞訪問表示，聽到得獎消息，五味雜陳，說不出話來，但這是「替香港打氣的一劑最好強心針」；他哽咽著說，「沒有想到香港這個小島，可以讓世界看見」。他現在最希望的，就是留在香港的導演能夠一切安好。
+
+周冠威致詞時說，「謝謝台灣，謝謝金馬獎，《時代革命》最後片尾，我寫上『香港人』作品，我很希望這部作品是屬於每一個有良知、有公義，為香港流過眼淚的香港人」。
+
+「我特別要感謝每位在電影裡接受訪問及拍攝的人，其中一位是16歲的中學生，他是個勇武手足，他在理工大學時，我跟他一起被困好幾天，之後他回到學校，他的身分已經被很多人知道，他戰戰兢兢走進課室，他很害怕，但他進到課室後，每一個同學，包括老師，都擁抱他，整間課室都是眼淚，整間課室都是哭泣聲」。
+
+周冠威說，「我很希望將這個畫面放在《時代革命》裡，但我不能夠做到；但我很希望《時代革命》可以像這份擁抱」。
+
+<figure>
+<img src="https://web.archive.org/web/20220117165325im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/時代革命-金馬獎-周冠威-20211127223035_567b_large.png" alt="">
+<figcaption>周冠威說《時代革命》獻給每一位有良知、公義、為香港流過淚的香港人。金馬執委會影片截圖</figcaption>
+</figure>
+
+「我製作這部電影的過程當中，我哭過很多次，好幾次我都靠這部電影來自我安慰，宣洩我的憤怒、仇恨，去面對我的恐懼與創傷。」說到此，周冠威深吸一口氣，停頓了幾秒，聲音哽咽。
+
+周冠威最後說：「仍然留在香港的，包括我，很多流亡海外的，或者現在在監獄裡面的朋友，縱使你們沒有機會看得到，但我很希望，我祈求天父，單單是這部電影的存在，都可以給予一份安慰，一份擁抱，謝謝。」
+
+《時代革命》在今年7月以「神秘影片」現身 [法國康城影展](https://web.archive.org/web/20220117165325/https://bit.ly/36GvJiG) ，引發國際關注；隨後到本月初，東京FilmEx電影節再次在無預先宣傳下，在影展突襲放映；上周，荷蘭「阿姆斯特丹國際紀錄片電影節」（IDFA 2021）也放映此片。今年金馬影展原本安排放映4場次，極快時間售罄後，加映2場，戲票亦在數分鐘內被秒殺，
+
+《時代革命》的內容，不僅從宏觀角度記錄反修例運動的重要事件與脈絡，更從微觀角度訪談一群抗爭者，闡述他們內心的無力感與最後宛如一家人的轉折與真實感受。電影在金馬影展放映期間，更是一票難求，當電影播放《願榮光歸香港》歌曲時，有人起立聆聽，觀眾在映後不僅熱烈鼓掌，亦高喊「光復香港、時代革命」口號，場面令人動容。
+
+相關報道： [《時代革命》台灣首映　觀眾映後放聲哭泣齊喊口號　觀片港人泛淚：Hongkongers一直都在，不會遺忘](https://web.archive.org/web/20220117165325/https://bit.ly/3oPTNrT)
+
+根據《時代革命》在Facebook專頁提供的資訊，將在今年12月10日至16日在紐約戲院上映，一共21場，這也是全球首度公開在戲院放映，觀眾可到 [https://bit.ly/30TuWuQ](https://web.archive.org/web/20220117165325/https://bit.ly/30TuWuQ) 購票。粉絲專頁亦表示，之後也會陸續公布其他城市的放映詳情。
+
+金馬影展今年改以線上方式舉行觀眾票選排行榜，《時代革命》自放映首日，就蟬聯最受歡迎影片榜首至今。影片放映過程，不分港人或台灣觀眾，啜泣聲與映後掌聲不斷，亦有觀眾高喊「光復香港，時代革命」口號，其情景就如影片中抗爭者所說「Nobody is everybody」，大家莫忘煲底之約，即使be water散居四方，仍不忘齊上齊落的堅定與決心。
+
+周冠威早前在《時代革命》映後座談表示，影片曝光，他的名字公開後，他確實失去了許多工作，也有演員因此退出，但就如同片中受訪者對他的信任，他就像一塊反光板，有責任把這些勇敢故事說給世界上的人聽。他亦提到自己人身是安全的，他希望影片播出後，能像他的孩子跟他說「希望政府看了這部電影，會變回好的政府」，也希望「一起留在香港，將香港變回美麗的香港」。
+
+相關報道：   
+ [【導演專訪】為《時代革命》開名　周冠威的第一場戰爭](https://web.archive.org/web/20220117165325/https://bit.ly/3zfOw0g)   
+ [《時代革命》觸手可及之痛　周冠威用鏡頭與受苦者同行](https://web.archive.org/web/20220117165325/https://youtu.be/VpnJMzEZfiM)

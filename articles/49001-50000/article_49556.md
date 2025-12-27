@@ -1,0 +1,52 @@
+---
+title: "候任議員新丁參觀立法會　現大樓辦公室不足　部分需租用毗鄰中信大廈　狄志遠、邱達根憂欠私隱"
+date: "2021-12-23"
+last_updated: "2021-12-24 00:56:32"
+author: "記者盧珮瑤"
+category: "眾聞"
+tags:
+  - "立法會議員"
+  - "狄志遠"
+  - "梁君彥"
+  - "Andrew Leung"
+  - "Andrew LEUNG Kwan-yuen"
+  - "立法會主席"
+url: "https://web.archive.org/web/20220517163027/https://www.hkcnews.com/article/49556/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49579/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49556/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49579/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 候任議員新丁參觀立法會　現大樓辦公室不足　部分需租用毗鄰中信大廈　狄志遠、邱達根憂欠私隱
+
+一眾候任立法會議員下月宣誓就任，由於今屆有部分為政治素人，加上新增的選委會界別，令「立會新丁」人數激增。立法會秘書處今（23日）安排兩場參觀活動，讓一眾新議員一睹立法會大樓運作，當中約有50名議員出席。
+
+不過，由於今屆議員人數增加至90席，惟立法會大樓原本只有75間議員辦公室，需要進行加建工程。工程完成前，部份議員需暫用毗鄰中信大廈的辦公室。然而，自稱是非建制派的候任社福界議員、新思維狄志遠指，部份辦公空間是公共空間，需與其他議員共用，有欠私隱度，認為不能接受。
+
+立法會參觀活動分為上下午兩節，分別有20多名議員出席。立法會主席梁君彥全日在場，與一眾議員一同參觀。眾人遊走立法會會議廳、辦公室等位置，隨後再經中信天橋到中信大廈新租用的議員辦公樓層參觀。
+
+<figure>
+<img src="https://web.archive.org/web/20220517163027im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/立法會議員-2021立法會選舉-20211223233617_11ae_large.jpg" alt="">
+<figcaption>約50名候任立法會議員今日參觀立法會。盧珮瑤攝</figcaption>
+</figure>
+
+### 狄志遠被梁君彥斥「唔睇報紙」
+
+於上午參觀活動中，一眾新議員包括民建聯梁熙、新思維狄志遠、香港新方向張欣宇、專業動力林素蔚等均有出席。他們參觀會議廳時表現興奮，有議員拿手機自拍。立法會秘書長陳維安向眾人講解會議廳完成加建工程，新增了兩排座位，並解釋選擇座位的程序。有議員隨即笑指著主席位置，笑說要選這個座位。
+
+參觀期間，狄志遠與立法會主席梁君彥交談，並指向會議廳中早前被換上的國徽，梁隨即動怒指「你都唔睇報紙嘅，我講咗啦！」，並再解釋宣誓後會換回區徽，梁熙及多名議員哄堂大笑。
+
+<figure>
+<img src="https://web.archive.org/web/20220517163027im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/立法會議員-2021立法會選舉-20211223233545_10ad_large.jpg" alt="">
+<figcaption>部份候任立法會議員合照，部分為新丁，部分為舊人，亦有被DQ後重返議會的。盧珮瑤攝</figcaption>
+</figure>
+
+### 中信大廈辦公室被批「陽光下辦公」欠私隱
+
+參觀過後，梁君彥與狄志遠繼續針鋒相對。由於在中信大廈租用的辦公室，有部份位置屬公共空間。狄志遠參觀後形容，議員雖然有一個獨立房間，但其他職員或要在公共空間工作，形容每張桌子的距離不遠，「即係我擺埋鏡，都可以睇到後面嗰個部電腦做緊乜，電話講到幾細聲，隔籬嗰個都實聽到」。
+
+狄認為，假如要與其他政黨共用辦公室是不能接受，「作為一個議員，辦公嘅地方有個合理嘅保密條件，我覺得係必須嘅，陽光之下嘅辦公地方我做唔到」。他指，希望建制大政黨可幫忙協調。
+
+不過，立法會主席梁君彥認為不是太大問題。他於參觀活動後向記者表示，中信辦公室的上一手租客是一所國際會計師行，「你覺得人哋私隱要求好低咩？（記者：會計師無分開建制、非建制）會計師行嗰啲數字呀，畀隔籬人睇到，佢炒賣股票都得㗎嘛！」
+
+他續指，辦公室中分開不同單位種類，議員可以使用一人單位，「有議員驚呢樣驚嗰樣，事實上呢個係政府租到最好嘅地方，畀佢哋用嘅」。
+
+創新科技界候任議員邱達根今日在業界見面會也苦笑，中信辦公室私隱度有待提高，「好似co-working space」，做法未必太適合。他又擔心，目前中信電梯安排多人輪候，可能影響到立法會會議的投票，「助理去攞文件可能都要半個鐘」，可能都要在大樓「打墩」才可。

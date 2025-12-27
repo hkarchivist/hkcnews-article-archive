@@ -1,0 +1,47 @@
+---
+title: "賣「自救口罩」違商品說明條例罰2萬元　黃店及董事覆核成功改罰1萬元"
+date: "2021-12-09"
+last_updated: "2021-12-09 19:08:01"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "香港眾志"
+  - "Demosistō"
+  - "口罩短缺"
+  - "本地生產口罩"
+url: "https://web.archive.org/web/20221002221558/https://www.hkcnews.com/article/48839/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48839/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48854/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 賣「自救口罩」違商品說明條例罰2萬元　黃店及董事覆核成功改罰1萬元
+
+觀塘黃店餐廳「朝花夕拾」售賣前香港眾志採購及包裝的「自救口罩」，餐廳董事上月承認口罩防護規格不達標，與公司各被罰款1萬元，合共2萬元。餐廳今（9日）申請覆核刑罰，指管有935盒口罩的眾志判罰1萬，而餐廳僅管有少量口罩，刑罰偏重。辯方澄清，早前指該935盒口罩與餐廳的控罪「出於同一事件」，僅指是同一款口罩，並非指該批口罩屬於餐廳。暫委裁判官曹欣慈考慮辯方澄清後，改判餐廳及董事各罰款5,000元，金額減半。
+
+<figure>
+<img src="https://web.archive.org/web/20221002221558im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/香港眾志-自救口罩-20210930132322_2f3a_large.png" alt="">
+<figcaption>涉案「自救口罩」包裝上印有「NOT MADE IN CHINA」字樣。(資料圖片)</figcaption>
+</figure>
+
+### 被告稱本業非賣口罩　重犯機會低
+
+控罪指，「朝花夕拾有限公司」於去年4月21日在觀塘開聯工業中心一單位內，在營商過程或業務中供應已應用虛假商品說明的外科口罩。其董事梁百豪另被票控同意公司違反上述控罪，可歸於其疏忽。梁於上月11日認罪後，與「朝花夕拾」各被判罰1萬元。
+
+控方今向法庭呈交多個裁判法院案例，均涉及本地公司售賣觸犯「虛假商品說明」的口罩。辯方反駁，案例的被告均是藥房或貿易公司，且有同類案底，而本案被告沒案底，本業亦非售賣口罩，重犯機會低。
+
+### 辯方指被告在誤導下訂購
+
+辯方又指，香港眾志經營的「衝刺有限公司」作為涉案口罩供應商，實際上是一個「類近政黨嘅團體」。案發時「衝刺」稱成功從外國搜羅到涉案口罩，公開呼籲有需要的市民訂購，「朝花夕拾」才在誤導下訂購。
+
+辯方強調，「朝花夕拾」並非打算以售賣口罩作為主要業務，亦非因「貪平」而購入涉案口罩，當發現口罩不妥後，已立即停止售賣。
+
+至於海關在「衝刺」倉庫檢獲的935盒口罩，辯方強調並非打算供應給「朝花夕拾」。惟曹官質疑，控辯雙方於上次判刑時，均表示該935盒口罩與「朝花夕拾」面對的控罪「出於同一事件」。辯方向法庭致歉，澄清「出於同一事件」僅指屬於同一款口罩；控方不反對說法。
+
+### 官：誤解案情屬「不幸」
+
+曹官裁決時指，口罩能否達標，對使用者的健康非常重要及關鍵。案發時本港口罩供應嚴重短缺，不論「朝花夕拾」是在疏忽或遭誤導下購入涉案口罩，均不應該在供應商未提供規格證明前，向公眾發售。`
+
+對於案情上的誤解，曹官形容為「不幸」，稱上次控辯雙方均同意「衝刺」管有的935盒口罩，與「朝花夕拾」面對的控罪屬「出於同一事件」，令法庭誤會。經今日澄清後，法庭決定批准辯方的覆核申請，改判「朝花夕拾」及其董事各罰款5,000元。
+
+案情指去年4月21日，海關關員到涉案店舖購買了6盒包裝寫有「ASTM Level-1」防護規格的「自救口罩」，經測試發現口罩未達所聲稱的規格，觸犯「虛假商品說明」。董事梁百豪承認向餐廳顧客售賣口罩時沒確保規格達標。
+
+案件編號：KTS17873-17874/20

@@ -1,0 +1,63 @@
+---
+title: "控方播14年12月「佔中三子」自首記者會　戴耀廷聞朱牧語庭上抽泣"
+date: "2018-11-22"
+last_updated: "2018-11-22 18:30:30"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "戴耀廷"
+  - "佔中三子"
+  - "朱耀明"
+url: "https://web.archive.org/web/20210727061828/https://www.hkcnews.com/article/16636/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16640/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/16636/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16640/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 控方播14年12月「佔中三子」自首記者會　戴耀廷聞朱牧語庭上抽泣
+
+【審訊第四天：2018年11月22日（周四）】
+
+「佔中九子案」今日續聆訊，控方上午退庭前播放完所有呈堂片段。最後一條呈堂片段，取自2014年12月2日無綫電視新聞直播「『佔中』發起人記者會」，「佔中三子」於會上宣布翌日自首、呼籲佔領人士退場。片段中，朱耀明回答記者提問時指：「戴教授話今日係個時刻，我們不再想有人被傷害，為此我們覺得已經脫離咗我們愛與和平，我們一定要作出我們的決定⋯⋯ 」。庭內的戴耀廷，這時已經伏在前面的的椅背上。
+
+片段裏的朱耀明雙手緊拿着咪、流着淚續說話，庭內伏低了的戴耀廷則哭了起來，從被告欄傳出抽泣的聲音，身旁的朱耀明拿出橙色的手帕抹淚。直到片中由陳健民回答記者提問，這時庭內的戴耀廷抬起了頭，哭得滿臉通紅，待情緒稍為平伏，再望向家屬席報上一個微笑。
+
+以下片段為DBC於2014年12月2日上載Youtube的「佔中三子宣布自首記者會」，內容與呈堂片段所記錄的記者會一樣。
+
+
+{{< video src="https://web.archive.org/web/20210727061828if_/https://www.youtube.com/embed/YKxl4l8hikE" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20210727061828im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/umbrella%20revolution-戴耀廷-佔中三子-20181122170355_2afa_large.jpg" alt="">
+<figcaption>「佔中三子」於2014年12月2日召開記者會宣布自首安排。蘋果日報照片</figcaption>
+</figure>
+
+該呈堂片段長41分33秒，是「佔中三子」宣布自首的記者會片段。在控方開案陳詞中，該片只是引用作事實陳述，指三人於2014年12月2日召開記者會並於翌日自首。記者會首先由朱耀明發言，指和平佔中在廿多個月前開始推動，期間衍生了兩個多月的雨傘運動，「佔中三子」經過一個多月的掙扎與努力，有了決定，之後交由戴耀廷讀出 [《佔中三子告市民書》](https://web.archive.org/web/20210727061828/http://oclp.hk/index.php?route=occupy/activity_detail&activity_id=125) 。
+
+片中，戴耀廷表示：「佔中三子和一些支持者決定明天（12月 3日）到警署自首，體現這種承擔精神。佔中三子一生奉公守法，但為了挑戰不公義的制度，願意面對一切後果。自首，是承擔刑責、尊重法治的做法。自首不是懦弱，是履行承諾的勇氣。自首不是失敗，是對政府不仁的無聲控訴。」他續道：「呼籲學生撤離，將運動轉化至社區深耕細作，延續雨傘運動的精神。」
+
+陳健民其後讀出《佔中三子告市民書》下半部分，指和平佔中決定把工作方向轉化如下：法庭、專業組織的辯論、社區工作、資助民主教育、社會約章 (social charter) 。
+
+記者會上，戴耀廷表示自首時會承認「參與咗未經批准的公眾集結」，但不排除其後被起訴更嚴重的罪行。有記者問關於煽動罪，戴答「首先要看看他煽動相關罪行，因為所有煽動必須要同實質罪行扣連埋一齊。我們要看看他煽動罪行同邊一個實質行動扣連埋一齊，我們再去判斷我們會不會承認煽動的相關罪行」。
+
+朱耀明則於記者會上表示，2014年10月5日已經想過自首，那晚「佔中三子」躺在地上，覺得運動已經喚醒了香港人，「佔中三子」的任務及責任已經結束，「後來有種種原因要我們協助、處理」，所以未有選擇在當時自首。
+
+<figure>
+<img src="https://web.archive.org/web/20210727061828im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/佔中三子-公眾妨擾罪-朱耀明-20181122170916_17c9_large.jpg" alt="">
+<figcaption>朱耀明。資料圖片</figcaption>
+</figure>
+
+片段中記者會甫開始，朱耀明發言時已經哽咽難言。其後記者問到哽咽的原因，他指警方毆打手無寸鐵的佔領人士，「我自己係不忍心。我覺得呢個政權不但係無誠信，甚至係無恥的政權，無理性」。
+
+「60幾日來，對各種訴求無正面回應，最後施以警棍、催淚彈，我為着呢個城市覺得悲哀。但亦都為着呢班年輕人、呢班市民，無懼催淚彈去表達這種決心，我係驕傲⋯⋯一想到好多人在手無寸鐵之下被毆打，無論在現場定電視畫面，都使到我呢位70歲的老人家傷痛。」法庭內播放着這片段，被告欄內三子與陳淑莊、邵家臻都定睛看着。
+
+片內朱牧哽咽續道：「一旦可能無法子可以保護、帶領所有人都能夠不受傷害、能夠平安回家，我們作為成年人、作為年長的長者，我們一定會作出一個決定，係守護所有參與人的安全。因此我自己一想到他們頭破血流、被拖在地上拳打腳踢嘅時候，我心裏面係非常哀痛。」戴耀廷這時候抽泣得緊要，陳淑莊也以紙巾抹淚，邵家臻則掩着口鼻、其後望向天花板。
+
+【案件編號：DCCC 480/17】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727061828/https://www.hkcnews.com/aboutus/#subscribe)

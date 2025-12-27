@@ -1,0 +1,73 @@
+---
+title: "7.28上環暴動第二案開審　控方僅對11名被告有直接證據　「赴湯杜火」為23名被告送平安符"
+date: "2021-02-22"
+last_updated: "2021-05-13 23:18:00"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "郭棟明"
+  - "728上環衝突"
+url: "https://web.archive.org/web/20210727041857/https://www.hkcnews.com/article/38430/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41335/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/38430/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41335/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 7.28上環暴動第二案開審　控方僅對11名被告有直接證據　「赴湯杜火」為23名被告送平安符
+
+前年有44人於7.28上環衝突中被捕後，遭政府一律控以暴動罪，並在警署獲准保釋翌日提堂，是當年首次大規模告暴動罪。其中一案涉24人，當中有一人已認罪，其餘23人不認罪。案件今日開審，控方資深大律師郭棟明開案陳詞，指控23名被告以不同方式參與暴動，即：親身參與暴動，或有共同犯罪計劃，又或協助及教唆他人參與暴動。郭棟明強調示威者當日高呼口號包括「香港警察，知法犯法」、「死黑警」等，但陳詞當中隻字未提當日遊行主題是為追究警方7.21在上環開槍。
+
+而且，控方列舉的各名被告裝備，多數是防具，例如防毒面罩、手套、手袖，亦有索帶、生理鹽水、噴漆等，只有一人被搜出鎅刀及萬用刀。控方並表示，只對其中11名被告有直接證據指證。
+
+木案預計審期為60天，但控方出庭作供的證人將由原定的約150人大幅削減至約56人，未知對審期有何影響。
+
+<figure>
+<img src="https://web.archive.org/web/20210727041857im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/728上環衝突-催淚彈-20190912044816_21f2_large.jpg" alt="">
+<figcaption>7.28上環衝突，警方當日共施放408枚催淚彈、95發橡膠子彈、50發海綿彈及2枚布袋彈。美聯社圖片</figcaption>
+</figure>
+
+2019年的7月28日，上環衝突有44人被捕後被控暴動罪。案件提堂的早上，大批市民冒雨到法院聲援，深懼44人被即時還柙。法庭後來決定將44人分成三案處理並批出保釋。首案被告是「赴湯杜火」的湯氏夫婦與李姓少女共3人，案件去年7月審結，暴動罪名不成立。第二宗案件涉24名被告，其中一人去年5月已認罪，還柙至今9個月。
+
+23名被告再加上律師團隊，至少有50、60人，被告欄坐滿之餘還要再加一行櫈在被告欄外，大狀們亦都要坐在律師席的走道上，甚至公眾席。庭內家屬席的位置亦不多，來旁聽的約20人，甚少能入內，並要借用旁邊的法庭作為延伸部分。
+
+控方郭棟明首先開案陳詞，光是讀出控罪詳情、23名被告被指參與暴動罪的證據，已經花去近一個半鐘。23人被控暴動，其中，莫卓煇另被控一項襲警罪，徐慶鈞另被控一項無牌管有無線電通訊器具罪。
+
+案情指，警方批出了7.28中環遮打花園集會的「不反對通知書」（附條件），但拒絕為遊行批出該通知書。當日下午3時集會開始，不久後有大批市民違反通知書的訂明條件，離開遮打花園，沿馬路向中聯辦步去，期間高叫口號「香港警察，知法犯法」、「死黑警」。群眾與警方對峙，最後雙方衝突，23人在上環遭拘捕。
+
+根據法例，任何參與非法集結者破壞社會安寧，該集結即屬暴動，最高刑罰可被判處監禁10年。
+
+<figure>
+<img src="https://web.archive.org/web/20210727041857im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/728上環衝突-暴動罪-20210222201328_19dd_large.png" alt="">
+<figcaption>「赴湯杜火」湯氏夫婦今日亦都有到庭旁聽，並為每位被告送上平安符。周滿鏗攝</figcaption>
+</figure>
+
+郭棟明在開案陳詞指控被告以下列其中一種方式參與暴動：一、親身參與；二、共同的犯罪計劃，指不論被告是否有親身參與，但他們與親身參與暴動的人有共同目的、有共同的犯罪計劃或協議，有共同犯罪意圖，藉其所擔當的角色達到犯罪目的；三、協助及教唆他人參與暴動，指蓄意地憑著「身在現場」以鼓勵參與暴動的人，並實際上鼓勵了參與暴動的人。
+
+控方並稱，有直接的證據指證其中11名被告，另外又邀請法庭根據被告的被捕地點、過程、衣著、裝備、「逃匿證據」，裁定被告參與暴動。郭棟明續讀出各被告被指參與暴動的證據，惟絕大部分只有防具，「逃匿證據」則相信是指被捕時反抗。
+
+<figure>
+<img src="https://web.archive.org/web/20210727041857im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/郭棟明-20180222194445_1cbc_large.jpg" alt="">
+<figcaption>代表控方的資深大律師郭棟明。資料圖片</figcaption>
+</figure>
+
+郭棟明完成開案陳詞後，隨即傳召控方第一位證人——現任灣仔區指揮官、7.28時任新界南總區應變大隊指揮官陳思達。控方主問過程，集中指出警方向集結群眾發出多次警告及勸喻，兼具中、英語，惟群眾未有散去。陳思達又指，警方當時的計劃是在干諾道西、德輔道西、皇后大道西分別設防線，由西環向上環方向推進，一旦遇襲即展開掃蕩，而在控方其後播出的片段，顯示示威者向干諾道西防線的警員投擲雜物。
+
+<figure>
+<img src="https://web.archive.org/web/20210727041857im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/728上環衝突-暴動罪-20210222213451_6615_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+三道防線持續推進，群眾退至皇后街前，陳思達下令拘捕。他解釋，示威者趁消防車與救護車駛至時，向警方防線推進，他評估行為具敵意；再者，有同事告知他，一些穿深色衫、戴頭盔、口罩或防毒面具人士繞到警方防線後方，陳認為若被包圍會好大威脅；第三，是見到疑似記者被示威者雜物擲中，頭部流血。陳續供稱：「基於頭先嘅原因，我認為繼續掃蕩，係制止唔到呢個暴亂，唯一方法，就係令到違法嘅人士付出代價，所以我決定要做呢個拘捕的行動。」
+
+在郭棟明細問下，陳思達續指出，考慮到干諾道西、德輔道西的示威者再後退就會匯合，繼而增加驅散或拘捕的困難，遂認為皇后街前是最後拘捕機會，於是下令拘捕。
+
+前年7月21日，民陣發起港島區遊行，部分示威者離開原定遊行路線後行至中聯辦門口，向中國國徽擲漆彈、雞蛋。警員驅散上環示威者時被拍到無預警下由天橋發射橡膠子彈。7月28日，網民遂針對7.21警方上環清場行動發起「追究上環開槍大遊行」。郭棟明未有提及這遊行背景，但特別指出示威者高叫口號「香港警察，知法犯法」、「死黑警」、「光復香港，時代革命」。
+
+郭棟明最後向法官提出，因本審訊所涉人數眾多，想改審訊時間為上午8時45分至下午1時45分，以避開法院人流高峯時間。惟法官陳仲衡拋下一句「我唔諗住咁做」，即拂袖而去。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727041857/https://www.hkcnews.com/aboutus/#subscribe)

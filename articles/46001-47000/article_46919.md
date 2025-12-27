@@ -1,0 +1,110 @@
+---
+title: "HBO奧利佛脫口秀首談台灣　重現唐若韞訪世衛顧問「斷線」片段喻台處境　1天吸逾260萬觀看"
+date: "2021-10-26"
+last_updated: "2021-10-26 23:02:59"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "John Oliver"
+  - "Last Week Tonight"
+url: "https://web.archive.org/web/20220127083038/https://www.hkcnews.com/article/46919/john_oliver-last_week_tonight-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46937/hbo%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD260%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46919/john_oliver-last_week_tonight-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46937/hbo%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD260%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# HBO奧利佛脫口秀首談台灣　重現唐若韞訪世衛顧問「斷線」片段喻台處境　1天吸逾260萬觀看
+
+美國HBO招牌政治脫口秀「上週今夜秀」（Last Week Tonight）最新一集節目中，首次以「台灣」為主題，主持人約翰．奧利佛（John Oliver）暢談台海緊張局勢、台灣國際地位現狀與困境及美國戰略模糊政策等緣由；影片也重現香港電台前記者唐若韞去年訪世界衛生組織顧問「斷線視訊」片段，凸顯台灣在國際間面臨處境。奧利佛最後說：「別再把台灣當籌碼，台灣人有權自行決定未來」。該集影片上傳YouTube後點閱急速增加，24小時內已突破264萬點閱。
+
+
+{{< video src="https://web.archive.org/web/20220127083038if_/https://www.youtube.com/embed/9Y18-07g39g" >}}
+
+
+「上週今夜秀」最新一集節目在25日上傳YouTube頻道，奧立佛在節目中首先稱，竟還沒聊過珍珠奶茶發源地台灣，也提到台灣有各式各樣的吉祥物。接著話鋒一轉，提到台灣最近與中國關係而成為新聞焦點，
+
+節目片段引用中共總書記習近平聲稱「祖國必須統一，也必然統一」影片，奧利佛稱，中國派出近150架次戰機擾台，讓外界愈來愈擔憂台灣的處境；奧利佛清楚說明，台灣現有民主選出的領導人、獨立軍隊及憲法，中國卻堅持台灣是其不可分割的一部分，並宣稱台灣不可能是獨立國家。
+
+<figure>
+<img src="https://web.archive.org/web/20220127083038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/John%20Oliver-台灣-Last%20Week%20Tonight-20211026190827_2ee5_large.png" alt="">
+<figcaption>奧利佛節目製作「台灣」專題，上傳YouTube一天已吸引260萬觀看次數。取自Last Week Tonight YouTube</figcaption>
+</figure>
+
+奧利佛舉了多個例子表示中國對此的強烈態度，包括世界摔角娛樂（WWE）明星選手約翰希南（John Cena）在宣傳《F9狂野時速》（Fast and Furious 9，台譯《玩命關頭9》）時，稱台灣為「國家」遭中國網民抗議後，在微博放上以中文道歉的影片。
+
+另外，湯告魯斯（Tom Cruise，台譯湯姆克魯斯）新片《壯志凌雲2：獨行俠》（Top Gun: Maverick，台譯《捍衛戰士：獨行俠》），在35年前的帥氣飛行夾克背後的青天白日滿地紅旗，也因政治因素干擾，在新片中被換掉；連流行品牌GAP也因T恤上的中國地圖少了台灣，被迫道歉。
+
+奧利佛接著開始說明台灣四百年歷史的發展，從荷蘭、西班牙殖民時期，到清朝接收、又在甲午戰爭割讓台灣給日本，以及國共內戰、國民黨撤退至台灣成為流亡的中華民國政府等。
+
+奧利佛說明，西方國家原本將台灣視為反共堡壘，但國民黨的蔣介石殘暴的獨裁統治，卻讓台灣籠罩在白色恐怖，只因批評政府的言論，讓數千人遭槍決、拘禁。
+
+<figure>
+<img src="https://web.archive.org/web/20220127083038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/白色恐怖-柏楊-John%20Oliver-20211026183101_8c9b_large.png" alt="">
+<figcaption>柏楊因翻譯大力水手漫畫而坐了近9年政治牢獄。取自Last Week Tonight YouTube</figcaption>
+</figure>
+
+奧利佛也舉了知名作家柏楊因翻譯「大力水手卜派」漫畫，內容提到卜派與兒子兩人流亡至孤島，決意在島上競選總統；柏楊將卜派發表演說的「Fellows…」翻譯成「全國軍民同胞們」，被認為是影射蔣介石與蔣經國父子，面臨被判處死刑威脅，最後被送至綠島坐了近9年的政治牢獄，才被釋放。
+
+奧利佛也提到國民黨後來解嚴、開啟民主之門，讓台灣從專制轉向「活力十足」（Vibrant）的民主體制，並舉台灣立法院打群架、丟水球，甚至丟豬內臟等議場杯葛行為佐證；他同時也提到台灣在全球供應鏈扮演重要角色，「特別是在半導體，從汽車到情趣用品，都要感謝台灣」。
+
+奧利佛說，但這就是問題所在，「台灣是一個高度發展的『國家』，卻沒人這樣稱呼它」，因為中國聲稱台灣是其不可分割的領土，所以從John Cena到各大企業，連參加奧運，都因國際奧會擔心激怒中國的情況下，台灣只能以「中華台北」名義及會旗參賽。
+
+<figure>
+<img src="https://web.archive.org/web/20220127083038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/Last%20Week%20Tonight-John%20Oliver-中華台北-20211026183127_e27c_large.png" alt="">
+<figcaption>奧利佛說明中華台北的緣由。取自Last Week Tonight YouTube</figcaption>
+</figure>
+
+奧利佛也說，可不是所有台灣人都對此心懷感激，像是重金屬樂團主唱（林昶佐）就在演唱會批評，「台灣都被稱為『中華X的台北』」，節目還自製梗圖，把X的變成動詞：「中華X台北」。
+
+<figure>
+<img src="https://web.archive.org/web/20220127083038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/世界衛生組織-John%20Oliver-唐若韞-20211026183023_22ff_large.png" alt="">
+<figcaption>唐若韞訪問WHO高級顧問艾沃德片段。取自Last Week Tonight YouTube</figcaption>
+</figure>
+
+為了表達台灣在國際間遭受的孤立處境，節目也找回去年香港電台《脈動》（The Pulse）主持人唐若韞訪問世界衛生組織（WHO）高級顧問艾沃德（Bruce Aylward）的影片片段。該影片目前已遭港台下架。
+
+唐若韞提問，WHO是否考慮讓台灣加入成為會員？艾沃德卻假裝沒聽到問題、在被追問下，想直接跳到下一個問題，後來竟然索性切掉視訊「斷線」；後來唐若韞再度與艾沃德連線，並請他評論台灣在對抗疫情的表現，艾沃德此時卻回答：「我們已與中國討論過了」，這也讓奧利佛直批，這擺明就是在逃避問題。
+
+奧利佛也提到，不只企業和世衛，國際間多數政府也都如此對待台灣；台灣原本是西方盟友的民主堡壘，自1970年代以後，情況開始轉變，因為中國不接受建交國同時承認中華民國的存在，所以到目前台灣僅剩14個邦交國，加上教廷。
+
+奧利佛說明，為何美國採取「戰略模糊」政策，並引用學者說法稱，美國認知（acknowledged）中國聲稱台灣是其領土的立場，但又不接受中國對台擁有主權，從美國的立場來看，台灣仍處於「地位未定論」。
+
+接著奧利佛提到1979年美國通過《台灣關係法（Taiwan Relations Act）》，承諾協助台灣維持自我防衛能力，但問題是，美國政府卻不說清楚，當中共武力犯台時，是否會出兵防衛台灣，沒人知道所謂美國的「關注」會是何種程度？這過去40年都是如此。
+
+奧利佛坦言，不管外界如何看待台灣，就算只看台灣民眾如何看待這個問題？也不容易回答；但目前台灣人目前選出的是對中國「保持距離』的政府，前面提到、支持獨立的金屬樂團主唱（林昶佐）現在已是國會立法委員。
+
+他也提到蔡英文總統如何小心翼翼地回答有關「台灣獨立」的問題，蔡英文在影片中接受BBC記者訪問提到：「就功能面來看，我們已是獨立國家」；當被問到「是否會宣布台灣獨立？」蔡英文說：「事實上我們不需要宣布獨立，我們已是獨立國家」。
+
+奧利佛舉例回應蔡英文的說法，就有如你去見岳父母，就算大家都心知肚明，總不能對他們正式宣告說：「我常X你的女兒」，這勢必讓大家都感到彆扭。
+
+奧利佛也引用台灣民調指出，87%民眾傾向各種定義的維持現狀，即使面臨擁有核子武器的軍事強權和軍機繞台威脅，人民還是如常生活，「視而不見」。
+
+但問題是，這種狀況可以永久維持嗎？特別當習近平聲稱，統一問題不能「一代一代傳下去」，台灣也思考自身防衛能力，「美國也趁機賣了鉅額軍售給台灣，可見要維持戰略模糊是要付出代價的」。
+
+但就算如此，台灣軍力對中國而言，還是極為薄弱，節目引用台灣軍方一支募兵影片，片中軍人身著軍裝跳著整齊劃一的舞步，讓奧利佛也驚嘆：「我實在不認為這有幫助，看起來就像一群伴舞」。
+
+所以，現在到底可以或應該做什麼？奧利佛說，全世界面對這問題已半世紀，現在答案似乎與世衛的回應唐若韞的提問一樣：「呃…下一題」。
+
+他也提到，模糊的現狀確實讓人很無言，特別對美國人來說，台灣形式上與實際上都是個｢國家」，但卻奇怪、可笑地不把它視為一個「國家」。他也說，從實際角度來看，這樣是否更好？就算台灣人選擇現狀，是否就是最好的選擇？他不是台灣人，所以無從解答。
+
+他最後結論，「歷史上，台灣一直被不是台灣人在做決定」最好的做法是別再把台灣視為籌碼，別再把台灣視為對抗紅色威脅的英勇堡壘，也別把台灣視為島嶼這般大的威而鋼，只為讓中國重獲年輕活力，「台灣2300萬人正面臨極大的發展機會，他們建立了自由民主社會，有權以任何方式決定自己的未來」。
+
+<figure>
+<img src="https://web.archive.org/web/20220127083038im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/臺灣-John%20Oliver-Last%20Week%20Tonight-20211026182952_2582_large.png" alt="">
+<figcaption>奧利佛曾在2018年製作「習近平」專題，遭全面封殺。取自Last Week Tonight YouTube</figcaption>
+</figure>
+
+奧利佛「上週今夜秀」節目內容以嘲諷美國時事為主，也會討論國際重要議題；他在2018年便曾以中共總書記習近平為主題，嘲諷習廢除任期制、禁止卡通影片小熊維尼播出及全面封殺劉曉波獲頒諾貝爾和平獎等爭議；這集節目後來在中國境內遭全面下架；根據監測網站GreatFire.org公布資訊，連HBO網站目前也是遭封鎖狀態。
+
+
+{{< video src="https://web.archive.org/web/20220127083038if_/https://www.youtube.com/embed/OubM8bD9kck" >}}
+
+
+奧利佛過去曾製作新疆維吾爾族、達賴喇嘛等人權與種族專題，也曾討論香港反送中運動等議題。眾新聞以John Oliver、約翰奧利佛或其網路名「冏橄欖」等名字在新浪微搏搜索，都只能找到無關上述政治內容的討論。
+
+
+{{< video src="https://web.archive.org/web/20220127083038if_/https://www.youtube.com/embed/rmHU3TUn2Kw" >}}
+
+
+奧利佛是美國艾美獎（Emmy Awards）常勝軍，曾拿下3座艾美獎最佳編劇；他主持的「上週今夜秀」，更自2016年起，連拿6屆艾美獎最佳綜藝脫口秀節目獎；奧利佛以誇張嘲諷時事風格，在HBO頻道首播收視群衆高達1百萬人；該節目上傳YouTube的精華版影片，每支也至少有3百萬到千萬以上點閱。

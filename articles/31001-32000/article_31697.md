@@ -1,0 +1,36 @@
+---
+title: "【武漢肺炎】美國上周新增個案激增27%　近半州份檢測陽性高於世衛警戒線"
+date: "2020-07-07"
+last_updated: "2020-07-07 16:47:30"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "美國"
+  - "美利堅合眾國"
+  - "武漢肺炎"
+url: "https://web.archive.org/web/20220125051137/https://www.hkcnews.com/article/31697/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31698/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD27-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31697/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31698/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD27-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【武漢肺炎】美國上周新增個案激增27%　近半州份檢測陽性高於世衛警戒線
+
+<figure>
+<img src="https://web.archive.org/web/20220125051137im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/美國-武漢肺炎-20200707162150_1130_large.jpg" alt="">
+<figcaption>在佛羅里達州，工作人員為民眾進行病毒檢測。</figcaption>
+</figure>
+
+美國在截至7月5日的一個星期，新增武漢肺炎個案比對上7天激增27%。中央社報道，路透社病毒追蹤計劃COVID-Tracking Project顯示，全美上星期檢測結果呈陽性個案佔檢測總數7.5%，較之前一星期的7%、之前兩星期的5%為高。世界衛生組織認為，若檢測結果呈陽性佔檢測人數的5%以上，社區可能有更多個案未被發現。目前全美有24個州的檢測陽性比率，超過世衛這項標準。
+
+美國約翰霍普金斯大學統計，美國至今有逾291萬人感染，死亡人數13萬。白宮衛生顧問福奇指，疫情在美國南部及西南部擴散，確診病例暴增並非第二波疫情，而是今年早前的疫情延續，美國必須立即解決此一嚴重情況。
+
+路透社報道，亞利桑那州最近一星期檢測結果呈陽性比率為26%，較前一星期的24%上升；佛羅里達州這一星期是19%、前一星期是16%；密西西比州這一星期17%、前一星期13%，都呈現上升趨勢。截至7月5日的一個星期，美國新增個案死亡人數下降至3447人，不過，仍有一些州份通報，至少連續兩星期病死人數增加，包括阿拉巴馬、佛羅里達、南卡羅來納、德與田納西。
+
+全美的染疫病例已連續5星期攀升；分析發現，33個州上星期通報新增個案比前一星期多，大多在西部與南部地區。有許多州已經暫緩解封經濟活動，或下令關閉部分商業活動。加州、堪薩斯、俄勒岡、西維珍尼亞最近規定民眾在公共場所必須戴口罩，但至少有30州並未全境實施，包括佛羅里達。以星期為統計單位，美國東北部染疫病例持續下滑，但中西部一些州則見病例增加，包括伊利諾、密西根、俄亥俄與與威斯康辛。
+
+### 若大學改網上授課　外國留學生不獲簽證或必須離境
+
+美國國土安全部轄下移民及海關執法局的 [「學生和交流訪問者計劃」（Student and Exchange Visitor Program, SEVP）](https://web.archive.org/web/20220125051137/https://www.ice.gov/news/releases/sevp-modifies-temporary-exemptions-nonimmigrant-students-taking-online-courses-during) 宣布，由於受到武漢肺炎疫情影響，在美國上學的外國學生，如果其大學全部改為網上授課，這些外國學生不能留在美國或入境美國。
+
+根據SEVP網頁上載的新規定，持有非移民F-1及M-1簽證的外國學生，就讀學校若是完全網上授課，他們將不能留在美國。新規定又指，國務院不會為今年秋季學期全部網上授課的外國學生發出簽證，海關也不會允許這些學生入境美國。目前已在美國註冊這類課程的外國學生必須離開美國，如要繼續留在美國，就須轉學到其他並非完全網上授課的學校，或採取其他措施以保持合法身份，否則將面臨遣返。
+
+新規定包括，持非移民F-1簽證的外國學生，在面授課程的學校就讀時，受現行聯邦法規約束，最多可在網上修一門課或三個學分。如果學校在今年秋季學期，將本來的面授課程改為全部網上授課，或是持非移民簽證的學生改變他們的課程選擇，變成完全網上授課，學校需在10日內通知有關部門。

@@ -1,0 +1,123 @@
+---
+title: "【國安法後】第三季34宗港人尋英國庇護　去年同期僅3宗飆升10倍　一男生未成年近12年首例"
+date: "2020-12-22"
+last_updated: "2020-12-22 02:36:20"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "BNO"
+  - "bno passport"
+  - "bno 護照"
+  - "英國"
+  - "UK"
+  - "united kingdom"
+  - "the uk"
+  - "戴卓爾"
+  - "大不列顛及北愛爾蘭聯合王國"
+  - "政治庇護"
+  - "流亡港人"
+url: "https://web.archive.org/web/20210802051424/https://www.hkcnews.com/article/36637/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD34%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36637/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD34%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法後】第三季34宗港人尋英國庇護　去年同期僅3宗飆升10倍　一男生未成年近12年首例
+
+**這一年，很多人離開香港。英國內政部今年第三季，收到34宗香港人申請庇護的個案，比起去年同期只有3宗，飆升10倍，其中1人更是未成年男性，翻查內政部過去12年數據，未曾出現過未成年的香港申請人。今年第三季正是港區國安法生效之後。**
+
+**曾被中國內地行政拘留的英國駐港總領事館前職員鄭文傑，今年6月獲得英國批出庇護。他認為申請數字反映香港人權狀況急速惡化，亦是國安法帶來的實質影響。他推測部分申請人沒有經濟能力或情況危急，寧願選擇庇護，都不考慮BNO移民計劃。**
+
+**他提到一點，數字同樣反映，如果國際不針對香港情況考慮「救生艇計劃」，或要面臨大量港人尋求庇護的難題。**
+
+<figure>
+<img src="https://web.archive.org/web/20210802051424im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/庇護-20201221223950_17c1_large.png" alt="">
+</figure>
+
+### 第三季急增至34宗　30歲以下佔六成
+
+根據英國內政部的數據顯示，2020年首兩季分別接獲3宗和7宗香港人尋求庇護的申請，但今年第三季急增至34宗，佔22男12女，其中22人在抵達機場等邊境後即時尋求庇護，另外12人則是入境後再向內政部申請。
+
+在年齡方面，有一名男子未夠18歲，記者翻查自2008年的內政部資料，也不見有未成年香港人尋求庇護。其餘年齡分布：18至29歲佔19人，14男5女；30至49歲佔9人，4男5女；50至69歲佔5人，3男2女。整體而言，30歲以下的申請人佔接近六成。
+
+相比2019年四季分別有2宗、1宗、3宗和7宗申請，全年合共只有13宗，單是2020年第三季已是去年全年一倍半。
+
+### 登記做英國公民　第三季比上季急增一倍
+
+至於香港人申請入籍英國成為當地公民（British citizenship），無論透過歸化（Naturalisation）抑或登記（Registration）的申請數字，同樣出現上升趨勢。今年頭三季，英國內政部合共收到424宗申請，已逼近去年全年合共465宗申請數字。
+
+所謂歸化，即是要住滿一定年期，再申請入籍，一般香港人都是循這途徑成為英國公民。至於登記，通常指前英聯邦國家、前英國殖民地的人，目前已經失去或放棄公民身份，屬於無國籍人士，尤其是九七回歸前的印巴人士，就可循登記入籍；又或申請人在2006年7月1日前英國以外地區出生，但父母已成為英國公民，自己亦持有BNO，都可以申請登記入籍成為英國公民。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051424im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/庇護-20201221221012_23dd_large.png" alt="">
+</figure>
+
+單計登記（Registration）的申請數字，2020年首三季分別為72宗、52宗、129宗，第三季比上季急升一倍多，也較去年同期增加近一倍。從去年6月反送中爆發之後，申請成為英國公民的數字比起2018年，大致持續上升。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051424im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/庇護-20201221221003_66a0_large.png" alt="">
+</figure>
+
+### 鄭文傑：香港人權急速惡化　國安法帶來影響
+
+英國駐港總領事館前職員鄭文傑，去年8月在香港西九龍高鐵站內，遭中國內地人員帶走行政拘留15日，今年6月獲得英國批出庇護。他認為，申請庇護的人數上升是預期之內，由去年6月反送中運動起，原先累計20多宗庇護申請，但單是今年第三季已超越累積數字，估計連同第四季將累計超過100宗，反映的是香港人權狀況急速惡化，國安法落實後帶來明顯憂慮和實際影響。
+
+三十年前，六四之後出現「黃雀行動」，香港成為重要的中轉站，營救內地異見人士；豈料三十年後，反送中之後出現「救生艇行動」，呼籲各國接收香港人。
+
+一直倡議「救生艇計劃」、推動各國設立接收港人方案的鄭文傑說，今次數字正好反映，如果國際間不針對香港情況，開設特定的移民計劃，會令很多港人轉為尋求庇護，同樣留下難題。他透露，有尋求庇護的個案在申請過程，被內政部職員建議考慮申請專為港人而設的BNO「特別簽證」移民計劃。
+
+根據第三季的統計數字顯示，六成申請人都是30歲以下的年輕人，但也不乏30歲以上的申請者，理應合資格擁有BNO，為何不循BNO取得居留權，而要尋求庇護？鄭文傑推測，BNO移民始終需要「入場費」，申請人未必有財政能力；加上部分申請人很年輕，根本沒有BNO，其父母也可能沒有BNO，就算有亦不一定會一同赴英；又或者具體情況很危急，可能是前線抗爭者需急切離開，因而尋求庇護。
+
+### 能否擺脫心態　與敘利亞難民同住？
+
+他接觸的求助當中，不少前線抗爭者曾經被紀錄身份證，身邊陸續有戰友被調查和拘捕，令他們萌生離開的想法。他透露，很多高風險的前線抗爭者已在較早時間離開，要走的都走了，推測在第三季尋求庇護的人，可能是第二、三線的前線，同樣都很後生。「其實他們很脆弱，以為比起一線前線很安全，但他們就是保護措施做得最不足的一群。」
+
+飄泊異鄉，尋求庇護，等待過程往往最難熬。鄭文傑形容，部分申請人的心理狀況較為焦慮，昔日在香港街頭面對的恐懼，並無因為來到異地而消失，因為「如果被遣返咁點？」入住的宿舍可能是二、三線的偏遠城市，與來自敘利亞、面對恐怖襲撃的人同住，申請人能否擺脫固有的意識想法？能否融入陌生的環境？再加上語言能力，都是他們要面對的事。
+
+這也是今年第三季，一名未成年男生要面對的事情。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051424im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/移民-HK-尖沙咀-20190713003638_972f_large.jpg" alt="">
+</figure>
+
+### 解構申請庇護程序　兩面試一問卷
+
+獲得英國批出庇護的鄭文傑解釋，申請庇護有兩種途徑，可在機場直接向海關聲明來英國的目的，或者入境英國後再致電內政部申請。今年第三季當中，就有22人抵達機場後即時尋求庇護。他認為愈快申請愈好，否則日後面試或會被質疑，為何沒有即時申請庇護，是否意味沒有即時危險？
+
+如果在機場申請庇護，形式上會即時被執法人員拘留，其後再獲保釋，轉由內政部職員進行第一輪面試。對方會問尋求庇護的原因，也會查問需不需要翻譯和義務律師？一般而言，主要了解申請人的背景，不會當場拒絕，過程需時三至五個小時處理。
+
+申請人需要顯示銀行戶口的財政狀況，有沒有錢？有沒有被凍結？如證實申請人身無分文，當局會為申請人安排食宿，申請人需要定期向內政部報到。但如果申請人有足夠經濟能力，則不獲批食宿，自行找地方住。申請人的護照會被沒收，改獲發一張如臨時身分證的ARC卡（Application Registration Card），期間不能工作，但有援助金。
+
+申請人之後會收到一份問卷，查問如何受逼害？如何受恐嚇？有沒有證據顯示有關說法？因此，申請人要確保地址可與內政部通訊。進入第二輪面試，主要是審批員與申請人問答，反覆問問題，查看申請人的說法是否前後一致，從而評估申請人的可信度。
+
+### 約半年有結果　住滿年期可申請成為公民
+
+大約半年左右就有結果，英國當局會出現四種決定：1）符合聯合國列明情況下批出庇護申請、2）針對聯合國未涵蓋的情況，如人口販賣的受害者等，而批出人道保護、3）內政大臣行使酌情權給予居留、4）拒絕申請。如果當局批出居留，毋須解說理由，但如果當局拒絕申請就要說明理由。申請人如果不同意決定，還有一個機會可以找律師上訴，都有近半案例成功推翻內政部的結果，但屆時申請人的資料或會在法庭公開。
+
+當申請人獲得庇護居留後，可以工作、讀書和享有社會福利，住滿五年，符合有關規定後，亦可考試，申請入籍成為英國公民。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051424im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/中英關係-Joint%20Declaration-20201221224040_cb02_large.jpg" alt="">
+<figcaption>美聯社</figcaption>
+</figure>
+
+### 英「救生艇」為港人設「特別簽證」　明年1.31接受申請
+
+英國政府今年7月宣布，擁有BNO身份的港人及其近親，明年1月31日起可以申請「特別簽證」，不設限額。當局表明不會拒絕，因非暴力抗議或行使言論自由等活動，而被定罪的人申請。
+
+[「特別簽證」](https://web.archive.org/web/20210802051424/https://www.gov.uk/guidance/british-nationals-overseas-in-hong-kong) 可一次過留英五年，或分開兩次，每次為期30個月，期間可以工作或讀書，但不獲社會福利等保障，並要繳稅及繳交國民保險。五年後如能滿足若干要求，可申請定居身分，再定居一年就可以正式申請英國公民。
+
+**特別簽證申請資格**
+
+．申請人須擁有BNO的身份，並不需要持有有效BNO護照，若BNO護照過期或遺失，毋須特別補領   
+ ．通常在香港居住   
+ ．證明財政上足夠支持在英國生活最少6個月   
+ ．承諾會學習英文（最初不設英語能力要求，但如果申請人選擇5年後申請定居，須具備良好英語知識）   
+ ．從英國內政部批准的診所獲得結核病測試證書   
+ ．支付移民健康附加費
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802051424/https://www.hkcnews.com/aboutus/#subscribe)

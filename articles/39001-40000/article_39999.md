@@ -1,0 +1,51 @@
+---
+title: "線上談：政改平行時空下的政治新聞採訪"
+date: "2021-04-04"
+last_updated: "2021-04-04 21:56:10"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "林妙茵"
+  - "完善香港選舉制度"
+  - "線上談"
+url: "https://web.archive.org/web/20210724213923/https://www.hkcnews.com/article/39999/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39999/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 線上談：政改平行時空下的政治新聞採訪
+
+
+{{< video src="https://web.archive.org/web/20210724213923if_/https://www.youtube.com/embed/Z3IYJ2Nhmhw" >}}
+
+
+### [《線上談》結集](https://web.archive.org/web/20210724213923/https://bit.ly/3lWpDBw)
+
+疫情沒完沒了，抗疫令人疲勞。過去兩年，政情、 疫情新聞令人窒息，政治新聞恐怕應該在播出前附上提馨提示： 內容可能令人焦慮、不安、煩燥。林妙茵（阿妙）是前有線新聞港聞組助理總採訪主任，是去年12月有線新聞部大裁員，即日集體辭職的其中一人，1月正式離職，長期採訪政治新聞。
+
+「阿妙」暫時離開新聞最前線，多了一點從公眾視角看最近的新一輪政制改革（官方說法是完善選舉制度），感到社會氣氛有點像「平行時空」，她在眾新聞線上談說，選舉大手術「明明很大件事」，但走到街上，完全感受不到，只有無奈，「是但喇！佢（中央）話點就點；但作為新聞工作者，有使命將件事重要性、內容，用一個長遠角度，讓公眾理解。」
+
+林妙茵從大學實習、畢業後一直在有線新聞工作，跟進政制發展的變化起伏，按基本法條文白紙黑字「循序漸進」 向前走，其後人大常委又有所謂「五步曲」啟動政改過程，之後又原地踏步，特首林鄭月娥上任後不再講政改，她說，「諗都唔好諗」，原來她當日說真話、再搞政改，香港真的陷入災難！
+
+踏入2021年，中央恢復行使香港主權「五十年不變」保證期接近上半部份尾，中央一句政改「我話事」，人大拍板「 311」決定，不但「回到起點」，過去已做的，「一筆勾銷」。
+
+歷史不能一筆勾銷，回到過去，take two再來一次，林妙茵說2021年的「完善」選舉制度修訂，從任何角度看，都是倒退，並非「完善」，記者應做的，是將知道的背景、比較修改後與以前制度的比較，客觀報道，讓公眾知道，很多過去的原則被拋棄，不再有「政改五步曲」，「當下次講政改時，可能參考點只是2021年「311」決定，「五步曲」成為歷史，報道只會說：「從前人大常委會曾經訂下政改五步曲，第一步是由⋯⋯」
+
+林妙茵說採訪政治新聞變得越來越困難，官員更多官話，「反對派」願意講的少了，官司纏身的不方便講。立法會是制度重要部份，但會內只有一把聲音，政制事務官員出席，建制派議員發問時間並非發問，或要求官員交代方案細節、回應社會關注，而是表態贊成方案，讚賞小冊子印刷精美，沒有火花，「沒有新聞元素，記者很難做」；「阿妙」認為政治新聞越來越難做，但「永遠有政治新聞」。
+
+北京「清場」，收回主導權，林妙茵說，中央似有意恢復英殖民地時代委任制，新時代下， 吸納愛國精英管治香港，1500人組成的選舉委員會擁有更多權力，包括選出40位立法會議員，一定「爭位爭崩頭」，亦會出現「 新泛民」，「誰是忠誠的廢物會更清楚」。她說：「普選劃上休止符，但很多事情仍要監察：新聞自由、藝文界，所有都是政治，仍會有政治新聞。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724213923/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210724213923im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

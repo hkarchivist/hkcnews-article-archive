@@ -1,0 +1,108 @@
+---
+title: "「一二・三事件」，港澳殊途命運的起點"
+date: "2018-12-03"
+last_updated: "2018-12-03 21:07:22"
+author: "程翔"
+category: "眾說"
+tags:
+  - "消失的檔案"
+  - "文化大革命"
+  - "澳門一二三事件"
+url: "https://web.archive.org/web/20210917070815/https://www.hkcnews.com/article/16895/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16908/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/16895/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16908/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「一二・三事件」，港澳殊途命運的起點
+
+**【編者按：今天是澳門「一二・三事件」52周年，本文原刊 [《端》（2016-12-03）](https://web.archive.org/web/20210917070815/https://theinitium.com/article/20161203-opinion-chingcheong-123/) ；眾新聞編輯更新了內文提到的年期。】**
+
+
+{{< video src="https://web.archive.org/web/20210917070815if_/https://www.youtube.com/embed/WEODqVK3Tn4" >}}
+
+
+香港很多朋友可能沒有注意到，香港和澳門這兩個中國的「特別行政區」，有一個重要的政治差別：香港的《基本法》賦予香港通過「普選」產生特首和立法會議員的權利（雖然這個權利已經被中共拖延了21年，至今仍然未有落實），但澳門的《基本法》卻根本就沒有這個安排。換言之，同屬中國的特區，香港人和澳門人的政治待遇有很大差別。
+
+<figure>
+<img src="https://web.archive.org/web/20210917070815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/文化大革命-澳門一二三事件-消失的檔案-20181203204724_293a_large.jpg" alt="">
+<figcaption>澳門群眾拉倒銅像，高叫「帝國主義是紙老虎」。網上圖片，取自《澳門日報》出版《反對葡帝在澳門的血暴行》。《消失的檔案》提供</figcaption>
+</figure>
+
+這個政治待遇的差別，可以溯源至52年前（1966年）在澳門發生的「 [一二・三 事件](https://web.archive.org/web/20210917070815/https://zh.wikipedia.org/zh-hk/%E4%B8%80%E4%BA%8C%C2%B7%E4%B8%89%E4%BA%8B%E4%BB%B6) 」；以及翌年在香港發生的「六七暴動」。這兩宗事件的共同點，都是當地的左派組織藉着中國大陸「文革」的風暴，引入「文革」式鬥爭手段，通過所謂「反殖愛國」鬥爭，企圖奪取兩個殖民地政府的權力。不過，兩者有個很大的不同：澳葡和港英的應對方法不同。當年「澳葡當局認罪道歉」，而「港英當局則絕不妥協」，一直堅持平亂直到中共強行下令香港左派終止暴動為止。這兩種不同的應對手段，直接導致這兩個殖民地在暴亂後長達20年截然不同的發展軌跡，從而奠定了兩地的政治差異，而這種政治差異，則造成了兩地「回歸」後的政治待遇迥異。
+
+<figure>
+<img src="https://web.archive.org/web/20210917070815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/文化大革命-澳門一二三事件-消失的檔案-20181203204746_20fc_large.jpg" alt="">
+<figcaption>港澳工委梁威林親到澳門指揮鬥爭，街頭處處都是集會。網上圖片，取自《澳門日報》出版《反對葡帝在澳門的血暴行》。《消失的檔案》提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210917070815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/文化大革命-澳門一二三事件-消失的檔案-20181203204752_179e_large.jpg" alt="">
+<figcaption>戒嚴下的澳門彷如死市。1966年12月6日《工商日報》。《消失的檔案》提供</figcaption>
+</figure>
+
+### 澳門淪為「半個解放區」
+
+葡萄牙政府投降後，澳門葡萄牙當局已經失去主權，政治上一切都要以中共的意圖為依歸，例如配合中共清洗國民黨在澳門的勢力等。我記得，那時香港人都嘲笑澳門實質上已經淪為「半個解放區」。澳門親中共的何賢先生成為事實上的「影子澳督」。
+
+葡萄牙大權旁落後，迅速失去統治意志，這使到它主動在1975年提出歸還澳門，但鑑於當時中國大陸的文革尚未結束，全國一片混亂，根本沒有心思去考慮收回澳門的問題，所以即使葡萄牙主動歸還，中共還是不敢接收。
+
+葡萄牙政府失去統治意志後，澳門就陷於政治、經濟、社會、文化各方面全面停頓的狀態。上世紀七八十年代是全世界資本主義經濟高速發展的黃金20年，香港、台灣、新加坡、南韓就在這20年間發展成為「亞洲四小龍」。相比之下，澳門的停滯、沒落就顯得特別突出。
+
+### 中共收回澳門過程順利
+
+澳門在全面處於停滯、沒落的情況下，對「回歸」產生三個明顯的影響：
+
+第一，從民心看，澳門居民盼望「回歸」，希望藉「回歸」來改變澳葡政府不作為的局面，至少可以改善治安狀況。所以，與香港不同，澳門居民不反對「回歸」。
+
+第二，從客觀條件看，由於經濟社會文化的全盤停滯，沒有太多的籌碼來與中央政府討價還價。所以在中葡關於澳門「回歸」的談判過程中，澳門人基本上提不出任何值得中央重視的方案或要求。
+
+第三，從人民質素這個主觀條件看，由於長期落後的影響，加上身處「半解放區」的政治現實，澳門居民仍然是受封建式的「臣民意識」及殖民地式的「順民心態」影響，所以澳門社會至今無法孕育出一個健康的公民社會。現代公民社會追求的自由、民主、法治、人權這些中共所討厭的「西方價值觀」，都難以在澳門生根發育。這使到在整個中葡談判過程中，澳門人的聲音十分微弱。
+
+基於這三個原因（民心、客觀籌碼、主觀要求），中共在收回澳門的過程中相對順利，也不必對澳門人的民主訴求予以重視，這就說明為什麼同是特區，澳門並沒有得到「普選」的承諾。
+
+### 港英政府挫敗六七暴動，推動改革
+
+相比之下，香港就完全不同。港英政府挫敗左派暴動後，統治意志非常堅定，而且民望高企。這使得它有信心也有威望來檢討「六七暴動」的深層次原因，並進行相關的大規模政治、經濟、社會領域的深刻改革，例如：
+
+一、實行以行政吸納政治，主動開拓本地人參政的管道，這使得香港在殖民地制度下缺乏民主的遺憾得到緩和；
+
+二、建立 [廉政公署](https://web.archive.org/web/20210917070815/https://www.icac.org.hk/tc/about/history/index.html) ，主動消除最為民所詬病的貪污問題，這就解決了在殖民地專制下權力不受制約而產生的腐敗問題；
+
+三、設立「冤情大使」職位（現改稱「 [申訴專員公署](https://web.archive.org/web/20210917070815/https://zh.wikipedia.org/zh-hk/%E7%94%B3%E8%A8%B4%E5%B0%88%E5%93%A1%E5%85%AC%E7%BD%B2) 」）來處理及解決公營部門行政失當所引致的不滿和引發的問題，從而解決了殖民地非民主政制下老百姓「有冤無路訴」的弊病；
+
+四、根據 [《麥健時報告書》](https://web.archive.org/web/20210917070815/https://zh.wikipedia.org/zh-hk/%E9%BA%A5%E5%81%A5%E6%99%82%E5%A0%B1%E5%91%8A%E6%9B%B8) 全面推動行政系統的改革；使政府更加高效、便民和更能應對急劇變化的環境；
+
+五、制定大規模建屋計劃，改革醫療和教育制度，解決人民生活的迫切問題，使社會趨於穩定。
+
+正是這些改革，使香港能夠抓住全球資本主義經濟高速發展的黃金20年，發展成為「亞洲四小龍」之一。也正是這些改革，令港英政府反而鞏固了統治合法性，以及深獲香港人的民心。很多人至今仍懷念殖民地時期，與這些改革有直接關係。
+
+這些改革，使香港公民社會迅速發展，也使香港人不再視香港為「借來的時間、借來的地方」，而是自己的家鄉。「六七暴動」竟然意外地成為香港本土意識發育過程中的第一次「集體歷史記憶」。
+
+### 中共承諾普選按撫香港回歸
+
+同澳門的情況相比，這些改革對「回歸」產生的影響，恰恰相反：
+
+一、從「民心」的角度看，香港人不但不盼望「回歸」，甚至擔心「回歸」，希望能通過移民獲取「政治保險」；
+
+二、從「主觀條件」看，香港人不甘心做局外人，而是希望參與「回歸」談判（儘管中共一再反對所謂「三腳凳」的談判模式，即不讓香港人參與），並且提出「在民主的基礎上回歸」這些建議，表明我們是「有條件地接受『回歸』」的；
+
+三、從「客觀條件」看，前途談判時，香港已經發展成為一個在世界上舉足輕重的金融中心，對中國來說具有非常重要的政治、經濟、軍事上的戰略價值，這使得中共在收回香港的過程中需要非常小心，否則會對中國本身造成很大的損失。這些條件無形中成為香港的談判籌碼。
+
+基於這三個原因（民心、主觀條件、客觀條件），香港與澳門的情況完全相反。為保障香港能夠平穩過渡，中共只好承諾在「回歸」後給予香港民主，這就是為什麼香港的《基本法》承諾有「普選」的安排，而澳門則沒有。
+
+所以，從澳門《基本法》沒有「普選」承諾這個角度看，52年前的「一二・三事件」，是直接導致今天澳門人民沒有民主的主因。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210917070815/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 程翔](https://web.archive.org/web/20210917070815im_/https://www.hkcnews.com/uploads/avatars/ca16b019-7305-4775-b054-5cbe15c2c28c.png?1976131125)
+
+**博客 | 程翔**
+
+【程翔專欄】資深傳媒人

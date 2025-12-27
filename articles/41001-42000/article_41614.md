@@ -1,0 +1,77 @@
+---
+title: "【梁凌杰死因研訊】警：拯救如「逆水行舟，事倍功半」　死因裁判官：陪審團勿認定「某些人必然犯錯」"
+date: "2021-05-24"
+last_updated: "2021-05-24 19:13:48"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "梁凌杰"
+  - "高偉雄"
+  - "梁凌杰死因研訊"
+url: "https://web.archive.org/web/20210802032751/https://hkcnews.com/article/41614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41626/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【梁凌杰死因研訊】警：拯救如「逆水行舟，事倍功半」　死因裁判官：陪審團勿認定「某些人必然犯錯」
+
+梁凌杰死因研訊踏入尾聲，代表警方的大律師熊健民陳詞指出，警方不懷疑前立法會議員鄺俊宇當天要求協助遊說的好意，但警方最後基於安全考慮而拒絕是「合情合理」和「有必要」，又指若鄺俊宇和凌杰不幸雙雙墮樓，外界會否反斥警方決定輕率。熊健民認為人們對事件急轉直下的批評只是「事後孔明的講法」，認為不應單以拯救行動的成效作評論。
+
+<figure>
+<img src="https://web.archive.org/web/20210802032751im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-梁凌杰-20210524164306_d729_large.png" alt="">
+</figure>
+
+研訊已上周已傳召全部25名證人出庭，呈遞70件證物，今早先由代表警務處的大律師熊健民及代表消防處的大律師陳碧琪陳詞。熊健民結案陳詞時以「凌杰」作稱呼，先代表處方對其離世表示惋惜，並向缺席研訊的家屬致以慰問。
+
+熊健民指出，事發後有人因凌杰的政治立場、寫下針對警方的標語，質疑他當天有否得到應得的救助，惟指事發當天（6月15日）為星期六，幾位救援及談判警員本來休假，得悉事件即趕往現場協助，其中一人本來正與家人在酒店吃自助餐。他強調，社會不少人抱持「少做少錯，唔做唔錯」的工作態度，但本案的休假警員並沒計較個人榮辱得失，只想盡力拯救寶貴生命。熊健民認為外界評價警方時，不應基於政治立場而要警方背負莫須有的罪名，否定他們的努力，否則是不公平及不合乎現實。
+
+就有說法質疑假如讓鄺俊宇協助遊說，或可避免悲劇，熊健民認為這「一連串的如果，可以指向美好的結局，但這是一廂情願的願景」，因為很多現實往往不如人意，假如鄺俊宇與凌杰交談期間，凌杰突然跳樓或用鎅刀傷害鄺俊宇，二人最終「雙雙墮樓」，外界又會否反過來批評警方做法輕率。
+
+熊健民續指，鄺俊宇雖是社工，但他過往處理輕生個案的經驗，前提都是認識事主或其家屬，今次事件卻對凌杰身份一無所知，更不知他曾手持鎅刀，只一心救人而「自動請纓」，並沒考慮自身安危。熊健民形容，警方「不懷疑鄺議員的好意」，但當時須確保凌杰及鄺俊宇的安全，拒絕其見面要求是「合情合理」和「有必要」。
+
+<figure>
+<img src="https://web.archive.org/web/20210802032751im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-熊健民-20210524164646_64ec_large.jpg" alt="">
+<figcaption>代表警務處的大律師熊健民。邢穎琦攝</figcaption>
+</figure>
+
+熊健民表示「死亡已是最壞結局」，或許有人認為人命攸關，是否甚麼方法都應試一試？但以談判專家判斷，遊說工作至晚上約9時仍正面發展，之後才始料不及地急轉直下。熊健民重申警方及消防已盡力營救，「批評都是事後孔明的講法」，認為不應單以行動成效作評論。
+
+就凌杰爬出欄杆的行為，熊健民形容危機一觸即發，但因為凌杰作出掙扎，拯救行動就如「逆水行舟，事倍功半」，在凌杰可能「死志已決」的情況下，事情未必能靠外力阻止。熊健民最後指出，警方不論任何政治立場，都會珍惜每一條生命，願考慮陪審團的任何建議，抱著「有錯則改，無則加勉」的原則。
+
+### 消防代表：警方與消防計劃清晰，目標一致
+
+大律師陳碧琪代表消防處，同樣稱呼死者為「凌杰」。她重申，警方與消防當天的行動計劃非常清晰，目標一致，每個部門都有保持專業。她表示，消防當天做法與一般從高處墮下案件無異，都是以遊說事主自行返回安全位置為原則，消防亦有詳細內部指引及守則。
+
+至於救生氣墊未能放在凌杰正下方的情況，陳碧琪重申消防要在短時間設置氣墊，環境不容許他們即時移除阻礙氣墊的行人路欄杆；消防處現時的救生氣墊尺寸較適合香港街道，而在今次事件，即使使用外國尺寸最小、約闊3米的氣墊，也不足以放在只有約1米闊的行人路，或保護從約17米高處墮下的凌杰。
+
+陳碧琪形容事件「絕對是個不幸」，行人路原本闊約6米、足夠放置氣墊，但因太古廣場外牆維修工程，路面只餘下約1米闊的狹窄通道；在凌杰突然爬出鐵架後，消防曾捉住他的手臂和手腕，卻「得不到正面回應」，若非他猛烈掙扎，現場消防均有信心將他拉回安全位置。
+
+陳碧琪最後表示，今次研訊協助各方了解未能阻止不幸事件的因果，以及現場人員遇到的困難，消防處對未能成功拯救深感遺憾，對所有因凌杰離世事件影響的人致以慰問。
+
+<figure>
+<img src="https://web.archive.org/web/20210802032751im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-梁凌杰-20210517194635_3049_large.png" alt="">
+<figcaption>當天參與救援的消防員作供提到，若梁凌杰沒有掙扎、配合救援，消防有信心可將他拉回安全位置。網上影片截圖</figcaption>
+</figure>
+
+### 死因裁判官：陪審員不應認定某些人必然犯錯
+
+死因裁判官高偉雄花約2小時總結研訊證供，稱呼死者為「梁凌杰先生或者凌杰」。高偉雄提到，研訊只能依賴梁父母及妹妹的證人供詞了解其個人背景，「但似乎都片面啲」，有關他生前興趣及閒時消遣的資訊「完全空白」。
+
+高偉雄陳詞時特別指出，明白本案背景與社會事件有關，不同人會有不同觀感，但提醒陪審員不應認定某些人必然犯錯，抱著某些人做事「背後一定有原因」的「陰謀論」。他重申，陪審員應參考相對可能性的原則，決定採納研訊的哪些證供；本案沒有任何證供顯示梁凌杰危站期間的內心想法，陪審員只能從他事前的行為及準備作推論，判斷死者有沒有相關意圖。
+
+就梁凌杰在事發前的行為，高偉雄提到他在6月初曾致電查詢兩份保險何時到期，其中一份相信是保額300萬的人籌保險，受益人為其父母，條款列明在投保一年內（即2018年1月至2019年1月）自殺身亡只會退還已付保費，保單正本最後在梁凌杰當天的隨身物品中找到。
+
+高偉雄又提到，梁凌杰於6月12日在手機建立題為「惡法殺港」的備忘錄，最後編輯時間為6月14日，內文的字句最後有被寫上黃衣雨衣，即是他在危站前3天，似乎已在考慮製造相關字句；他曾上網搜尋「反送中」的英文字眼，與他在白色直幡寫上的字句吻合。
+
+至於事發當天的行蹤，高偉雄表示梁凌杰住在元朗，但手機相片定位顯示他早上似乎身在佐敦，事前曾上網搜尋「旺角跳樓2019」、「金鐘跳樓」、旺角賓館等資訊，陪審員可推論他當時會否是在選擇在旺角抑或金鐘行動、他的最後選擇又是甚麼。
+
+研訊明早再續，由死因裁判官高偉雄引度陪審團裁決，預計陪審團將會退庭商議。高偉雄又再次提醒，死因庭的權力有限，並非處理民事或刑事訴訟，而是了解死亡事件的詳情及作出結論。
+
+【案件編號：CCDI-481/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802032751/https://hkcnews.com/aboutus/#subscribe)

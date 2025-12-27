@@ -1,0 +1,68 @@
+---
+title: "【咬甩趙家賢耳仔案】傷人襲擊等4罪全部成立　明年2月9日求情　法官曾不滿辯方表現一度提出重審"
+date: "2021-12-08"
+last_updated: "2021-12-08 19:18:11"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "咬甩耳朵"
+url: "https://web.archive.org/web/20220117194608/https://hkcnews.com/article/48746/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48794/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48746/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48794/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【咬甩趙家賢耳仔案】傷人襲擊等4罪全部成立　明年2月9日求情　法官曾不滿辯方表現一度提出重審
+
+前年11月中年漢涉於太古城刀刺傷夫婦，並咬甩時任區議員趙家賢左耳，他否認3項有意圖傷人罪及1項普通襲擊罪，於高等法院受審。四女三男陪審員今早（8日）經過逾4小時退庭商議後，裁定被告全部控罪成立，被告聞判後至步入羈留室均表現冷靜。法官張慧玲押後明年2月9日聽取求情，期間為被告索取精神及心理報告，另為4名受害人索取進一步醫療及心理報告。
+
+陪審團一致裁定被告陳眞（現年51歲） 2項「有意圖傷人」罪及1項「普通襲擊」罪成，即於2019年11月3日在太古城中心外，有意圖使溫浩倫受嚴重傷害、有意圖使趙家賢外貌毁損而非法及惡意傷害他，及襲擊梁瑩瑩。陪審團另以6比1大比數，裁定被告餘下1項「有意圖傷人」罪，即他於同日同地，有意圖使梁碧琪身體受嚴重傷害。
+
+<figure>
+<img src="https://web.archive.org/web/20220117194608im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/張慧玲-20210913185253_e1e5_large.jpg" alt="">
+<figcaption>法官張慧玲</figcaption>
+</figure>
+
+### 法官曾質疑辯方大狀抗辯與被告指示不符　一度提出解散陪審團重審
+
+臨近審訊尾段，辯方大律師鄭從展欲在傳召最後一名證人、精神科專家前，呈上一份專家報告，惟報告內含其他不出庭作供的精神科醫生所撰寫的內容。法官張慧玲當時認為，辯方專家不能就「傳聞證供」作供，遂要求辯方修改報告。
+
+惟辯方經多次修訂，仍未達呈堂要求。張官對此大感不滿，認為辯方呈上的報告不妥當，因當中透露了被告過去曾用雙刀架在妻子頸上，「控方都唔提暴力事件，你冇理由自己擺上嚟呀，好唔邏輯喎」。而被告較早時在庭上自辯時稱：「我從來沒有暴力，跟太太吵架都很少，基本上只是辯論。」張官續指，一直有留意鄭大律師的表現，發現其辯護多次與被告指示不符，又提及辯方數次更改抗辯基礎，「最初打自衛已經唔合理，之後又改口打精神有問題」。
+
+張官質疑被告的公平審訊權利是否受保障，一度提出更換律師或解散陪審團重審。張官更提到換大律師的法援安排，鄭大律師澄清自己並非法援律師，張官再斥責：「唔係法援，咁你更加唔妥啦。」
+
+最終張官接納辯方於審訊尾段增聘資深大律師陸貽信，由陸負責向辯方專家發問及為餘下審訊作陳詞。
+
+### 多次在庭上以專家身份作供　曾以建制派身分任區議員及參選立法會
+
+辯方精神科專家證人黃以謙最初診斷被告患「病理學酒精醺醉」 （pathological alcohol intoxication），後來在控方及法官重重追問下稱，釐清被告喝酒份量及時間後，認為被告的症狀不脗合原先診斷。黃改口指被告酒精中毒引致急性神智不清（acute alcohol intoxication），認為可解釋被告案發時「爆炸性、具侵略性的行為」，以及他事後無法解釋其行為的失憶情況。
+
+法官引導陪審團時曾指，須考慮黃有否以謹慎小心的態度撰寫報告，而酒精中毒引致急性神智不清的診斷，是否在「退而求其次」下作出。
+
+黃以謙自1990年起，先後獲取澳洲新南威爾斯大學內外全科醫學士、英國皇家精神科醫學院院士、香港精神科醫學院院士及香港精神科專科學院院士專業資格。黃其後專注精神科法醫工作，多次以專家證人身分，在法庭為刑事案件作供。
+
+#### 1. 壹傳媒集團創辦人黎智英涉於2017年六四集會前，刑事恐嚇一名《東方日報》男記者
+
+**替涉事男記者診治。** 指記者患抑鬱心境適應障礙病症，須服用藥物治療抑鬱及失眠；黃不同意病症輕微，指很多時或會導致病人自殺。黎智英於審訊後被裁定罪名不成立，惟律政司其後提出上訴，今年10月尾展開聆訊，至今未有判決。
+
+#### 2. 女保鑣詹心桀2018年鰂魚涌公園開槍殺姨舅案
+
+**擔任辯方精神科專家。** 稱被告案發時可能患有重度抑鬱症，或受吸食冰毒影響，但不認為她患思覺失調。黃引述被告指案發日聽到家人說涼薄說話，感到被侮辱，被告及後對開槍一事已無印象。被告最終被裁定謀殺等罪成，判囚終身。
+
+#### 3. 年輕土木工程師城巴連刺33刀殺死女友案
+
+**任控方專家證人。** 認為被告案發時無精神失常，而其「情緒大起大落」不符患有嚴重抑鬱症。被告最終被裁定謀殺罪成，判囚終身。   
+   
+
+
+自由黨退黨後加入民建聯   
+ 精神科醫療工作以外，黃亦有從政。他於2000年至2015年間，曾分別以自由黨、社區18及民建聯成員身分，參選及當選4屆九龍城區議員；於2006年他曾任選舉委員會醫學界代表。但黃兩度無緣立法會議席，包括於2012年立法會選舉中參選九龍西直選落敗，2016年再報名參選醫學界功能組別，不敵唯一對手陳沛然，未能當選。
+
+<figure>
+<img src="https://web.archive.org/web/20220117194608im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/咬甩耳朵-20211130152002_e7d0_large.jpg" alt="">
+<figcaption>辯方精神科專家證人黃以謙</figcaption>
+</figure>
+
+### 四名受害人早前提出民事索償　申禁制令凍結被告售樓資產獲批
+
+去年2月24日，趙家賢連同另外3名受襲傷者入稟高等法院，向陳眞提出人身傷害索償；另為禁止對方出售太古城單位以轉移資產，向法庭申請禁制令，凍結被告售樓後部分資產，作為日後索償案件之用。法庭晚上緊急開庭審理申請，並決定批出臨時禁制令，直至法庭再下命令為止。民事索償最終分兩案處理，據悉趙家賢已透過律師達成和解。至於其餘3名事主的索償案，司法機構網站顯示暫未有排期聆訊。
+
+案件編號：HCCC204/20

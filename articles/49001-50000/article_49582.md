@@ -1,0 +1,108 @@
+---
+title: "再有大學移除六四雕像　中大、嶺大分別在清晨移走民主女神像、六四浮雕"
+date: "2021-12-24"
+last_updated: "2021-12-25 04:58:17"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "六四"
+  - "六四事件"
+  - "64 事件"
+  - "天安门事件"
+  - "89事件"
+  - "8964"
+  - "中文大學"
+  - "嶺南大學"
+  - "民主女神像"
+url: "https://web.archive.org/web/20220518030647/https://hkcnews.com/article/49582/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49641/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49582/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49641/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 再有大學移除六四雕像　中大、嶺大分別在清晨移走民主女神像、六四浮雕
+
+繼香港大學前日（22日）晚上通宵移除國殤之柱後，另外兩間大學都有動作，於清晨移除擺放大學校舍多年的六四相關物品。中大在今日清晨將民主女神像移走，嶺大亦是差不多時間移除了六四浮雕。
+
+中大原先擺放民主女神像的地方，已經剩下一遍空地，及放了一個小心地滑路牌。民女被拆走後，有人將一本最新一期11月號的中大學生報放在路牌上，該期學生報封面寫有「這不是中大」。中大移走雕像後發聲明回應，指從未准許雕像於校園展示，亦沒有任何組織為該雕像的維修及管理承擔責任。曾參與安排雕像於校園展示的兩個組織「香港市民支援愛國民主運動聯合會」及中大學生會現已解散或無實際運作。大學作為校園管理者，經內部評估後決定移走該雕像。
+
+嶺大亦是約清晨五時，圍封位於梁銶琚樓外空地的六四浮雕，學校工程部人員拆除後以膠紙層層包住並移走。嶺大發言人表示，大學最近重新檢視和評估校園內可能構成法律或安全風險的物品，為保障大學社群的整體利益，相關物品已被清除，或移除並妥為儲存。
+
+就各院校接連強拆六四紀念雕塑，大專學界包括嶺大、理工、教大、樹仁、科大、中大七間書院與中大學生報及校園電視台，於25日凌晨發布聯合聲明，當中提到三間院校在事件中沒有徵詢學生、校友、甚至創作人的意願，更指嶺大及中大校方偷雞摸狗漏夜拆除雕塑，堂堂高等學府，師生、校友無一席之地。聲明呼籲各大專院校停止打壓學生意見，盡快交代六四紀念雕塑的去向，並交由全體師生共同商討它們的未來去向。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/中大-20211224090046_2703_large.jpg" alt="">
+<figcaption>中大民主女神像移除後，只有一個小心地滑路牌，有人將大學學生報一期寫有「這不是中大」放在路牌上。丁心怡攝</figcaption>
+</figure>
+
+原先在港鐵大學站A出口對出，擺放中大民主女神像的地方已經沒有任何東西，只見一個小心地滑路牌。中大民女被拆走後，早上八時多眾新聞記者到場時，見有人將一本最新一期11月號的中大學生報放在路牌上，該中大學生報封面寫有「這不是中大」，但不夠一會，保安便拿走了該期學生報。
+
+有中大學生及職員表示早已預料民主女神像會被移除，但沒想過在毫無預料的情況下拆走。有中大校友得知民主女神像被移除後，專程回來拍照留念。
+
+在中大工作逾10年的職員表示，對校方清晨移除民主女神像的舉動感到驚訝，「當然預期都會有呢個舉動，冇諗過咁快同埋咁突然，好似全世界都無人知咁，拆左大家先知。」他原本對於消息也是半信半疑，因沒看到有什麼討論聲音，「港大國殤之柱迴響好大，中大呢個尋日仲喺度，今朝已經唔見咗仲要係無人知。」他對於中大此舉感到無奈，表示民主女神像已放置在中大逾10年，一直相安無事，質疑校方為何一定要移走。
+
+中大校友、現任沙田駿馬選區議員周曉嵐表示，今早得知民主女神像被移除同樣感到震驚，認為雕塑放置在中大都有一段時間，已成為中大一個重要的景點，「呢個位置都習以為常，呢個咁重要嘅現象都可以一夜之間唔見咗。」
+
+他表示校方固然有自己的說法，亦明白經過社會環境變遷後校方在各方面有立場變化，「相信背後嘅原因大家都好清楚，佢哋深知道民主女神象背後所代表的意義以及所產生嘅歷史。」
+
+就讀中大新傳系五年級的學生表示早已料到中大民主女神會將被拆除，不過對拆除的時間仍感到意外，「其實有預料到國殤柱之前吵咗一排，冇諗過中大民主女神像毫無預告先兆的情況下拆除。」
+
+她稱中大同學事前都不知道民主女神像將會拆除，形容校方在「無聲無色、夜麻麻下」搬走雕像感到無力，「對於同學黎講無能為力，連好簡單的道別儀式都冇。」
+
+她認為雕像對於中大學生有特別意義，已經是地標的存在，「每一年大型活動、其他悼念活動、同社運相關的活動、六四活動（民女）作為聚腳點，冇咗覺得好失落。」
+
+中大藝術系一年級學生昨日見到港大國殤之柱被拆除後，立即為民主女神像拍照留念。他對於民主女神像凌晨被拆除感到震驚，並形容校方「破壞第一道防線」，「冇諗過，但係呢個景況、呢個香港冇嘢預料到，都想每一刻見證住每一樣嘢。」
+
+已畢業42年中大校友鄧先生今早在社交媒體見到民主女神像被拆除，專程帶「Insta Grammar Nordic」回來拍照留念。他表示對於有預料民主女神像將被拆除，而書中的一句話特別適用於今日的情況，「唔緊要㗎，我們都好微小但仍可照亮。」（Even the smallest of star shines in the darkest）
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/中大民主女神像-20211224094514_1019_large.jpg" alt="">
+<figcaption>寫有「這不是中大」的最新一期11月號中大學生報只放了一會，便被保安拿走。趙婉婷攝</figcaption>
+</figure>
+
+中大工會對校方突然移走民主女神像一事，深感愕然。又指民主女神像自從2010年屹立大學站廣場至今11載，從未經校方插手管理。該雕像是校園內言論自由、員生共治、互相尊重的象徵。今日，校方在完全沒有徵求員生共識的前提下，突然趁校內假期、人流稀薄之際除去雕像，亦無交代其去向，對員生意向並不尊重。工會對此深感不滿。
+
+移走民女後三個鐘，中大就移走雕像發聲明回應，指中大今晨從大學站廣場移走一個未經許可擺放的雕像。2010年校方接獲中大學生會呈請，要求大學批准於校園展示該雕像，大學行政與計劃委員會一致決定不予批准，並對外闡明了校方立場。
+
+聲明又指大學從未准許該雕像於校園展示，亦沒有任何組織為該雕像的維修及管理承擔責任。曾參與安排雕像於校園展示的兩個組織「香港市民支援愛國民主運動聯合會」及中大學生會現已解散或無實際運作。大學作為校園管理者，經內部評估後決定移走該雕像。
+
+下午5時許，有中大學生在民女原擺放的位置附近舉行悼念儀式。有學生在昔日放置民女的位置燃點燭光，並設置「民女牆」寫下感言，亦有中大校友及學生獻上鮮花和手寫信，圍觀市民紛紛舉起電話拍照。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/嶺大學生會-20211224090018_2c1e_large.jpg" alt="">
+<figcaption>嶺大用圍板遮蓋原先六四浮雕的牆壁。讀者提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/嶺大六四浮雕-20211224094936_ea15_large.jpg" alt="">
+<figcaption>嶺大六四浮雕前後比較。嶺大臨編相片</figcaption>
+</figure>
+
+另外，嶺南大學，，位於梁銶琚樓外空地的六四浮雕亦於清晨約五時被圍封，由學校工程部人員拆除後以膠紙層層包住並移走。
+
+Y小姐是最早目擊「六四浮雕」被圍封的學生之一，當時她在圖書館欲步行至學生宿舍休息，但發現「六四浮雕」被壁報板圍封，便詢問在場保安情況，保安只回覆「有咩事就聽日問翻學校嗰邊。」而當她身邊的友人舉機想拍攝事發情況卻被職員用電筒以強光照射二人，並表示不要拍攝他們的樣子，否則他們便會「好唔開心」。她亦與學生會成員聯絡，學生會成員亦到場了解。
+
+而對於失去「六四浮雕」，Y小姐覺得以後再不能承傳歷史的意義，她認為社會近來正在「壓榨」六四的真相與歷史，她認為「六四」應由自己一代繼續承傳，而以往的迎新手冊也會述說「六四浮雕」的歷史，但如果大學失去了「六四浮雕」等代表物，歷史便難以承傳。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/嶺大六四浮雕-嶺大學生會-20211224180500_27c2_large.jpg" alt="">
+<figcaption>六四浮雕被分拆成數塊後，疑被移到地下工程部儲物室，有儲物室以鐵鍊上鎖，嶺南大學學生會代表會臨時行政委員會主席唐健樂表示以往大門是沒有鐵鍊的。黎家威攝</figcaption>
+</figure>
+
+嶺南大學學生會代表會臨時行政委員會主席唐健樂，在約清晨5時收到學生通知，六四浮雕被壁報板圍封，唐與幾名學生會成員到圍封地點視察，發現現場有約十名保安人員把守，亦有工人對六四浮雕進行清拆工作，而保安沒有回應學生會有關清拆的疑問，而據學生會了解，六四浮雕被分拆成數塊後，疑被移到附近「康樂樓」的其中一間地下工程部儲物室。而記者發現有工程部儲物室大門被鐵鍊鎖上，唐健樂表示以往大門是沒有鐵鍊的。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/嶺大學生會-嶺大六四浮雕-20211224180949_110c_large.jpg" alt="">
+<figcaption>學生會服務櫃檯上方原本有「民主女神像壁畫」，但現已被灰色油漆遮蓋。黎家威攝</figcaption>
+</figure>
+
+而到早上7時，學生會成員回到「康樂樓」學生會服務櫃檯辦公，但大樓突然出現大量保安並以「有工程要進行」為由，驅趕所有學生會成員及屬會成員離開，亦封鎖大樓1-3樓的地方並帶備油漆。而當保安解封後，學生會發現服務櫃檯上的「民主女神像壁畫」已被灰色油漆遮蓋。
+
+唐亦透露，10月至11月期間，校方曾與學生會商討有關「康樂樓」的翻新事宜，而相關工程會遮蓋壁畫，校方曾建議先遮蓋壁畫，亦答應學生會可在工程後重新畫上「民主女神像壁畫」，但結果校方卻在今日毫無通知地把壁畫遮蓋。
+
+<figure>
+<img src="https://web.archive.org/web/20220518030647im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/嶺大六四浮雕-嶺大學生會-20211224180442_29ab_large.jpg" alt="">
+<figcaption>唐健樂譴責嶺南大學成為抹殺歷史的幫兇。黎家威攝</figcaption>
+</figure>
+
+唐亦表示從沒預料會在無通知的情況下倉卒地進行，亦指校方選擇在清晨5時「個個訓哂覺，未起身」時進行工程，行徑十分鬼崇。他對校方今日的行動表示遺憾，嶺大沒有開過正式會議通知學生會，對比港大「移除國殤之柱都叫做有開過會」，嶺大絕不符合程序公義；對於唐健樂來說，他覺得「六四浮雕」以及「民主女神像壁畫」是一個六四事件的象徵，對同學來說是有教育以及傳承歷史的意義，他譴責香港嶺南大學成為抹殺歷史的幫兇。
+
+嶺大發言人表示，大學最近重新檢視和評估校園內可能構成法律或安全風險的物品，為保障大學社群的整體利益，相關物品已被清除，或移除並妥為儲存。

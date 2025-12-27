@@ -1,0 +1,61 @@
+---
+title: "馬仲儀移民英國：難忍香港環境轉變　政治決定凌駕科學專業"
+date: "2021-11-16"
+last_updated: "2021-11-16 07:39:47"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "移民"
+  - "香港公共醫療醫生協會"
+  - "馬仲儀"
+url: "https://web.archive.org/web/20220117160658/https://hkcnews.com/article/47744/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47744/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 馬仲儀移民英國：難忍香港環境轉變　政治決定凌駕科學專業
+
+**昔日在反修例運動關注年輕人受傷、醫護人員被捕；疫情爆發之初，頻頻指出醫護界的憂慮和社區傳播風險，香港公共醫療醫生協會前會長馬仲儀，目前已離開香港，移居英國。她向眾新聞透露，9月尾離開醫管局，10月辭任醫委會，11月初已抵達當地，並已在英國一間公立醫院工作。**
+
+**捱過社運和疫情，香港最艱難的時期，但最後都要選擇離開。她解釋，因為現在香港的環境，整個醫療系統都有轉變，不再純粹以科學為準，有時政治會凌駕專業而作出的決定，她希望找到一個跟自己信念相近的地方繼續生活。**
+
+<figure>
+<img src="https://web.archive.org/web/20220117160658im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/馬仲儀-20211116071327_13f6_large.jpg" alt="">
+</figure>
+
+### 轉投英國公立醫院工作　同屬老人科相關
+
+橫跨兩年的疫情，不難發現馬仲儀的蹤影，會上電視、上電台節目，提醒市民防疫，又會指出政策的漏洞和醫護界的憂慮。今年港府將修訂醫生註冊條例拋上立法會時，她亦有表明堅持現時的考試制度，但最終建制派壟斷的立法會還是三讀通過修例，放寬非本地醫生來港執業。
+
+中大醫學畢業、屬於老人科及復康科專科醫生的馬仲儀，坦言走得不算太急，早在香港尋找英國的工作已有一段時間，亦準備了幾個月。她在今年9月辭職，離開醫管局，10月辭任原定任期至2024年的醫委會委員，11月初抵達英國，目前在當地一間公立醫院工作了一個多星期，同樣與老人科相關。
+
+她說，不希望自己的離開令外界感到誠惶誠恐，因為她的人身一直都很安全，也沒有受到任何逼害而離開醫管局，只不過是香港現在的環境，整個醫療系統都有轉變，處事方式跟以往不同，並不是純粹以科學、臨床、專業為準，有時因為政治和政策，會凌駕科學和專業而作出決定，於是她想轉變環境，嘗試在其他地方工作，學得更多同時，也找到一個比較認同的處事方式。
+
+「離開，當然有捨棄。」
+
+馬仲儀在2003年沙士期間入行，為本港公營醫療服務近18載。香港和英國的醫療系統截然不同，醫生薪酬也有差別，她坦言自己在香港算擁有若干資歷，稱得上是收成期，原本已不是學習階段，現在要重新適應、重新建立，但始終覺得算是自己的堅持，希望找一個跟自己信念相近的地方，「係人工少啲，要重新起步，但都接受得到。」她直言，在香港工作了十幾年會有少少「滑咗牙」，現在要重新適應，反而有種初出茅廬的感覺，會有少少振奮，需要努力學習。
+
+跟很多離開的人一樣，她會不捨昔日在香港的光景，尤其是曾經有得參與、監察、發言的公民社會。她說以前在香港，看見黃店告急都會「想食、想幫襯」，現在最實質的不捨，就是去不到一些黃店，本來很微小可以做的事情都做不到。昔日在港，常常感到的無奈和不滿，現在走到英國，感覺不再強烈，好像有點「逃離」的感覺，無得再跟大家一起面對，但她明言仍有留意香港新聞，仍關心香港的一切。
+
+<figure>
+<img src="https://web.archive.org/web/20220117160658im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/醫護集會-醫護人員-20211116062813_28fc_large.jpg" alt="">
+<figcaption>反修例運動期間的醫護界集會。資料圖片</figcaption>
+</figure>
+
+### 反修例運動為醫護界站台　良知永遠是第一
+
+2019年反修例運動期間，中五學生曾志健「健仔」10月1日在荃灣被警方近距離槍傷左胸，公共醫療醫生協會當時發聲明譴責，質疑警方「蓄意射傷市民」，批評港府沒有認真解決社會問題，以武力消滅年輕人，警方協會隨即批評是顛倒是非。馬仲儀事後開腔：「中立是重要，但我將中立排在良知後面，良知永遠都是第一。」她表明作為醫生，將人道良知放在首位，不會有錯。
+
+同年11月，理大衝突演變圍城困局後，馬仲儀聯同其他醫護組織，在11月18日早上致電醫管局，要求派遣救援隊照顧校內傷者，但不成功，因為政府將理大定性為一個暴動場合，政治問題最終阻礙救援。
+
+兩度出任香港公共醫療醫生協會會長，經歷反修例風暴後，她仍擁有抱負想實踐，一度想過出戰立法會，當時還找來醫學界支持，豈料港區國安法空降、選舉制度重新改寫，令她不再幻想。馬仲儀今年6月接受眾新聞訪問時說，假如當年參加立法會選舉，今日可能正在某個地方被扣押。
+
+立法會提名期剛過，她覺得這場選舉不是為香港人而設，不知有何值得評論。她慨嘆的是，改制後的選舉，猶如活在平行時空，香港人的確沒有了主導權，但一切都不再執着，不再在乎誰人參選，反而關心香港人的公帑，日後會通過幾多與市民利益無關的議案和決定呢？
+
+<figure>
+<img src="https://web.archive.org/web/20220117160658im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/醫護人員-醫護集會-20211116062824_67c2_large.jpg" alt="">
+<figcaption>反修例運動期間的醫護界集會。資料圖片</figcaption>
+</figure>
+
+「不在這地，不再評頭品足。」
+
+她寄語，無論身在外地、香港、甚麼形式的生活也好，希望大家心中擁有平安。

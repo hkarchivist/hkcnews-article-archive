@@ -1,0 +1,50 @@
+---
+title: "COVID水晶球"
+date: "2021-06-02"
+last_updated: "2021-06-02 15:29:34"
+author: "薛達"
+category: "眾說"
+tags:
+  - "Covid-19 Vaccines"
+  - "疫苗接種"
+url: "https://web.archive.org/web/20210725155441/https://www.hkcnews.com/article/41948/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-covid19_vaccines-41961/covid%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41948/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-covid19_vaccines-41961/covid%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# COVID水晶球
+
+<figure>
+<img src="https://web.archive.org/web/20210725155441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/疫苗-BioNTech-復星醫藥-20210301165120_265c_large.jpg" alt="">
+</figure>
+
+縱使只求粗略估計，預測未來仍是至難之事。但智慧訓誨我們，應倚仗經驗、常識及現行趨勢為未來做好準備。基於同樣原則，我對Covid19未來情況有以下數點想法：
+
+一、高疫苗接種率的國家如美國和英國，將迅速進入後疫情時代，也就是低社區傳播，以及更低的住院比率及死亡率。當他們跨過群體免疫門檻之後，生活多少可恢復至疫情前的常態。這些國家當然會繼續有確診個案，甚至爆發疫情，但對社會整體的影響會減少。以色列——其中一個高接種率的亮麗例子——甚至可恢復到足以發動戰爭⋯⋯
+
+二、儘管如此，全球很多地方接種疫苗速度仍慢很多，對很多國家而言，原因是因為資金不足導致缺乏疫苗供應。不過，另一些地方如香港，公眾可悲地對疫苗接種反應平平。昔日讓我們早早戴上口罩的美德如今變成一種惡——很多人真心相信長期戴著口罩，便足以解決Covid19的問題。口罩不能長時間穿戴，保護程度較疫苗低，也不環保。
+
+三、疫苗接種率差強人意地方如香港面對兩難，大量金錢投放在測試追蹤及隔離措施，以維持目前脆弱的零確診狀態。每隔一段時間，疫情就會定期爆發。就連資源充足的醫療系統面對疫情都會受壓，台灣、新加坡、日本就是明證。
+
+四、那外遊呢？在短期內，旅行會日益取決於疫苗。香港與新加坡的旅遊氣泡總在爆破，凸顯旅行得依賴兩地疫情皆受控。高疫苗接種率的甲地，對接種率低的乙地施加嚴格的旅遊限制，做法完全合理。這是因為乙地來的旅客帶有Covid19的機會較高。與其他城市商討重開邊境時，香港的處境將日益不利，連跟中國大陸也是如此，別提更遠的地方了。
+
+這個城市裏流傳著「並不急於注射疫苗」的錯誤假設。反之，這根本十萬火急。良好、安全及優質的疫苗正快要到期了。
+
+不要等到有旅遊的誘因才注射疫苗。不受限制的旅行正建基於香港的疫情持續受控，唯有透過注射疫苗方能達到。
+
+香港有機會迅速進入後疫情時代，這令人欣羨。讓我們張開雙手迎接這個禮物，避免四處封鎖的黑暗時代。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725155441/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 薛達](https://web.archive.org/web/20210725155441im_/https://www.hkcnews.com/uploads/avatars/be44586d-dbb2-4707-a923-a6c6b171cb50.png?1316986173)
+
+**博客 | 薛達**
+
+【薛達專欄】Dr Siddharth Sridhar是香港大學微生物學系臨床助理教授。

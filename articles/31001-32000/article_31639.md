@@ -1,0 +1,70 @@
+---
+title: "港府發動圖書館戰爭，區議會應否決撥款反抗"
+date: "2020-07-05"
+last_updated: "2020-07-05 20:15:46"
+author: "林兆彬"
+category: "眾說"
+tags:
+  - "康文署"
+  - "康樂及文化事務署"
+  - "康文處"
+  - "康樂文化事務處"
+  - "lcsd"
+  - "Leisure and Cultural Services Department"
+  - "禁書"
+  - "港版國安法"
+url: "https://web.archive.org/web/20220124035310/https://www.hkcnews.com/article/31639/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31641/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31639/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31641/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港府發動圖書館戰爭，區議會應否決撥款反抗
+
+禁語禁書時代殺到，康文署轄下的公共圖書館突然收起黃之鋒、陳淑莊及陳雲合共9本著作，覆檢是否違反國安法，這令我聯想起日本小說《圖書館戰爭》（図書館戦争）。究竟香港人應該怎樣反抗？我作為區議員，先拋磚引玉，建議區議會應否決康文署的撥款申請，例如是與圖書館有關的撥款，直至「禁書」重新上架為止。
+
+<figure>
+<img src="https://web.archive.org/web/20220124035310im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/陳淑莊-禁書-黃之鋒-20200705185505_1526_large.png" alt="">
+<figcaption>部分突然被收起覆檢的書籍。</figcaption>
+</figure>
+
+《圖書館戰爭》故事講述1989年，日本政府為了控制人民思想，制訂了「媒體良化法」，「媒體良化隊」對不符合規定的書籍實施管制和銷毀。圖書館為了捍衛閱讀自由，成立了武裝組織「圖書隊」。「圖書隊」與「媒體良化隊」為了爭奪書籍，而在圖書館內進行大規模槍戰。而故事中所提及的《圖書館自由宣言》（図書館の自由に関する宣言）原來在日本是真實存在的。
+
+
+{{< video src="https://web.archive.org/web/20220124035310if_/https://www.youtube.com/embed/8oFQIu_c91s" >}}
+
+
+[《圖書館自由宣言》](https://web.archive.org/web/20220124035310/http://www.jla.or.jp/portals/0/html/jiyu/freedom_chinese.html)   
+ （一） 圖書館具有收集資料的自由。   
+ （二） 圖書館具有提供資料的自由。   
+ （三） 圖書館為利用者保守秘密。   
+ （四） 圖書館反對一切檢查。   
+ 來源：社團法人日本圖書館協會   
+   
+ 在戲中，日本中央政府（媒體良化隊）與地方政府（圖書隊）之間的政治角力，就好像北京政府和香港的民主派。政府為了限制人民自由而制訂了「媒體良化法」，對今日的香港來說，這個虛構的設定絕不天馬行空，因為在國安法之下，全港大大小小的圖書館將要「大審查」，進行一場不流血、不生火的焚書坑儒。   
+   
+ 另外，1949年，聯合國教科文組織首度發表 [《公共圖書館宣言》](https://web.archive.org/web/20220124035310/http://pedia.cloud.edu.tw/Entry/Detail/?title=聯合國教科文組織公共圖書館宣言) ，定義了公共圖書館的目的。而執筆之時， [香港公共圖書館網站](https://web.archive.org/web/20220124035310/https://www.hkpl.gov.hk/tc/about-us/intro/intro.html) 仍提到《宣言》所載的信念：
+
+> **公共圖書館是開展教育、傳播文化和提供資訊的有力工具，也是在市民的思想中，樹立和平觀念和豐富精神生活的重要工具。**
+
+
+這一段，或許很快就會被刪掉吧？   
+   
+ 再看《宣言》的其他段落：
+
+> **公共圖書館是記錄人類文明思想與創造力的寶庫。公共圖書館藉著豐富的館藏，可濯清民眾心靈，美化休閒生活，並協助學生擷取及時資訊。**
+
+
+香港政府今次將政治人物的書本下架，明顯違反《公共圖書館宣言》的精神，令香港進入禁書時代，異見聲音將會於公共圖書館絕跡。我們可以怎樣反抗？民主派主導了17個區議會，是反抗的最佳平台。否決政府撥款，不用等「立法會35+」，因為民主派在區議會層面，現時就已經有權力否決康文署的撥款申請。   
+   
+ 每年，區議會都會預留一定撥款給康文署舉辦活動，以我身處的 [油尖旺區議會](https://web.archive.org/web/20220124035310/https://www.districtcouncils.gov.hk/ytm/doc/2020_2023/tc/dc_meetings_doc/18330/YTM_DC_70_2020_TC_.pdf) 為例，2020/2021年度預留了831萬元，當中包括「文娛節目」67萬、「公共圖書館推廣活動」14萬和「康樂體育活動」750萬元。這831萬元，佔了區議會全年總財政預算2,935萬的約28%。
+
+我建議，如果康文署不將黃之鋒、陳淑莊及陳雲這些「禁書」重新上架，區議會應在將來否決康文署的撥款申請，表達強烈不滿又好，作為不合作運動抗爭也好，迫使康文署將「禁書」上架。至於否決全部撥款抑或部份撥款，可按形勢和民情再作考慮，例如只否決「公共圖書館推廣活動」的撥款申請。   
+   
+ 禁書時代殺到，香港人無得退，區議會中的代議士更加要抗爭，否則議會路線將會被人唾棄。
+
+---
+
+![博客 | 林兆彬](https://web.archive.org/web/20220124035310im_/https://www.hkcnews.com/uploads/avatars/84a6ab14-8ced-41eb-8dda-f7638d54447f.png?502377077)
+
+**博客 | 林兆彬**
+
+【林兆彬・政影雜評】90後，前區議員，喜歡電影和日劇。寫文章，只為了寫出更好的自己。Facebook: http://www.facebook.com/orochi.ben.lam

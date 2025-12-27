@@ -1,0 +1,40 @@
+---
+title: "不滿安倍晉三稱大陸攻台威脅日本　外交部緊急約見日本駐華大使"
+date: "2021-12-02"
+last_updated: "2021-12-02 19:09:51"
+author: "中國組記者廖樂欣"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "安倍晉三"
+  - "Abe Shinzo"
+  - "shinzo"
+url: "https://web.archive.org/web/20220117045827/https://www.hkcnews.com/article/48463/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48488/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48463/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48488/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 不滿安倍晉三稱大陸攻台威脅日本　外交部緊急約見日本駐華大使
+
+[日本前首相安倍晉三昨日以視像出席台灣民間智庫論壇](https://web.archive.org/web/20220117045827/https://www.hkcnews.com/article/48387/%E5%AE%89%E5%80%8D%E6%99%89%E4%B8%89-%E5%8D%B0%E5%A4%AA%E5%9C%B0%E5%8D%80-%E7%BE%8E%E6%97%A5%E9%97%9C%E4%BF%82-48387/%E6%97%A5%E6%9C%AC%E5%89%8D%E9%A6%96%E7%9B%B8%E5%AE%89%E5%80%8D%E6%99%89%E4%B8%89%EF%BC%9A%E5%8F%B0%E7%81%A3%E6%9C%89%E4%BA%8B%E3%80%81%E5%B0%B1%E6%98%AF%E7%BE%8E%E6%97%A5%E5%90%8C%E7%9B%9F%E7%9A%84%E4%BA%8B-%E7%B1%B2%E7%BF%92%E8%BF%91%E5%B9%B3%E7%B5%95%E5%B0%8D%E4%B8%8D%E8%83%BD%E8%AA%A4%E5%88%A4) ，期間發言稱「台灣有事等同日本有事」，外交部長助理華春瑩當晚緊急約見日本駐華大使垂秀夫，提出嚴正交涉。華春瑩批評安倍晉三粗暴干涉中國內政，呼籲日方不要在錯誤的道路上越走越遠，否則必將玩火自焚。
+
+安倍晉三昨日(1日)獲邀以視像形式參加台灣民間智庫國策研究院主辦的論壇，他發言時說稱大陸若以武力攻台，將對日本產生重大危險：「毫無疑問，(中國)侵佔台灣，將對日本在地理和空間上構成重大風險，台灣有事等同日本有事，亦等同日美同盟有事，中國領導層，尤其是主席習近平，對於這一點絕對不能誤判。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117045827im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/shinzo-20211202152915_2b5a_large.jpg" alt="">
+<figcaption>安倍晉三(中間)跟與會者合照。台灣國策研究院</figcaption>
+</figure>
+
+安倍晉三呼籲日台、以及所有民主國家敦促中共總書記習近平不要走錯路，否則採取軍事冒險行動將導致經濟自殺，重申大陸與台灣的和平關係是唯一選擇。他又說支持台灣加入跨太平洋夥伴全面進步協定(CPTPP)。
+
+華春瑩稱安倍晉三粗暴干涉中國內政，公然挑釁中國主權，悍然為台獨勢力撐腰，嚴重違反國際關係基本準則，和中日四個政治文件原則。她指日本發動侵華戰爭，對中國人民犯下滔天罪行，沒有任何資格和權利就台灣問題說三道四，強烈敦促日方深刻反省歷史，汲取教訓，不得以任何形式損害中國主權，不得向台獨勢力發出任何錯誤信號，不要在錯誤的道路上越走越遠，否則必將玩火自焚。
+
+綜合日本媒體報道，垂秀夫回應華春瑩說，對於兩岸議題，中國有必要理解日本國內有安倍這樣的想法，而且安倍已經不是日本政府官員，日本政府沒有立場，對非政府官員的發言一一說明。
+
+<figure>
+<img src="https://web.archive.org/web/20220117045827im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/華春瑩-20211202153119_f266_large.jpg" alt="">
+<figcaption>外交部長助理華春瑩。</figcaption>
+</figure>
+
+《環球時報》總編輯胡錫進嘲諷安倍晉三只敢在離任首相後攻擊中國：「這些惡毒的話，大概在安倍的肚子裡憋了很久，他們(如果)是日本當政者，絕對不敢向中國咆哮的，安倍只能離開首相職位後逞強過癮，這也反映出他日薄西山的焦慮感和失落感，日本在台灣「有事」時，貿然干涉將如以卵擊石，必將遭到毀滅性的回擊。」
+
+他斥責安倍晉三為了保持影響力，以威脅論欺騙日本人民，製造中日民意對立，形容他是日本的新罪人：「而日本如果執行這樣的台海政策，老胡要說將是日本的自殺，而且不光是經濟自殺，歷史將證明，製造中日民意對立的安倍之流，是日本的新罪人，他們將日本帶入了極其冒險的戰略方向。」

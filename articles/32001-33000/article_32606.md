@@ -1,0 +1,70 @@
+---
+title: "東方舒特拉"
+date: "2020-08-04"
+last_updated: "2020-09-05 13:14:48"
+author: "師潮作者群"
+category: "眾說"
+tags:
+  - "納粹大屠殺"
+  - "國際義人"
+  - "何鳳山"
+url: "https://web.archive.org/web/20210925035134/https://www.hkcnews.com/article/32606/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32606/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 東方舒特拉
+
+【撰文：曹綺雯】
+
+二次世界大戰時納粹德國對猶太人進行種族清洗大屠殺期間，有一位「義士」奧斯卡・舒特拉（Oskar Schindler），透過他經營的軍需企業工廠刻意僱用了不少猶太人，特意為他們提供保護，其中包括工人的妻兒子女，甚至殘障人士，他都堅稱他們為必要受聘的技術工人。舒特拉最後甚至千方百計，通過花費大量金錢，成功游說柏林的官員同意將工廠和工人，在緊急的情況下遷移到另一小鄉村，使工人逃過被送往毒氣室的厄運。而這份轉移工人的名單中，有1200名猶太人。因而他的故事拍成電影後，名為《舒特拉的名單》。
+
+當殺戮猶太人的魔咒在歐陸到處吹鳴時，竟有一位中國外交官竟膽敢跟掌權者唱反調，為猶太人帶來逃出生天的曙光！因此他被稱為「東方舒特拉」。他就是當年駐守奧地利維也納的 [中國總領使何鳳山](https://web.archive.org/web/20210925035134/https://zh.wikipedia.org/wiki/何凤山) 。
+
+
+{{< video src="https://web.archive.org/web/20210925035134if_/https://www.youtube.com/embed/Pm0OCivTsMs" >}}
+
+
+當納粹德國開始嚴厲打壓猶太人，將他們抓入集中營時，猶太人為免被捕，成千上萬的跑到不同的領使館申請簽證，希望藉此逃出納粹的魔爪。當時情勢危急，一張簽證就能夠拯救一條生命，因而被稱為「生命簽證」。可惜當年在法國埃維昂萊班召開的國際難民會議上，與會的美國、加拿大、澳大利亞、愛爾蘭和新西蘭等32 個國家都拒絕給猶太人發出簽證。惟何鳯山獨排眾議，他認為應本著人道精神為猶太人簽證。在德、奧合併之後近兩年內，他平均每月向猶太人簽發500份簽證。當時他的上司，中國駐柏林大使陳介，深恐此舉會危及中國與德國的關係，命令他收手。但他沒有遵從上司禁令，繼續發簽證。甚至納粹當局以總領事館原屬於猶太人房產為由，將總領事館收回，而國民政府又拒絕出資租房子，何鳳山就自掏腰包租下一套小公寓，把總領事館搬到那裏，繼續發放簽證。其後他被外交部記過一次，但他仍然堅持以大無畏的精神拯救生命。直至1940年被調任美國為止。
+
+十七歲的猶太青年艾瑞克・歌德斯德堡憶述當年他疲憊地花了數月的時間，走遍五十多個外國領事館都失望而回。可是，當他向中國領事館提出申請簽證時，何鳳山竟給他簽發了二十份前往上海的簽證，讓他整個家族得以順利離開奧地利！曾任世界猶太人組織秘書長的伊斯雷爾・辛格的父母當年也是憑着何鳳山發的簽證出境，然後入境古巴，再進入美國，伊斯雷爾就在紐約出生。難怪一位猶太人大屠殺的倖存者說：
+
+> **有些人雖然早已不在人間，但他們的光輝仍照亮世界；這些人是月黑之夜的星光，為人類照亮了前程。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20210925035134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/國際義人-猶太人-何鳳山-20200531181531_c524_large.jpg" alt="">
+<figcaption>何鳳山當時簽發的到上海簽證。</figcaption>
+</figure>
+
+有人認為當時上海是日軍佔領區，根本不需要中華民國外交部的簽證入境，為什麼何鳳山還要發放這樣的簽證呢？原來當時納粹只關注猶太人是否有去處，而簽證是最好的證明，猶太人拿到上海簽證後，證件令他們即使被捕也因得到通往上海的通行證，而獲得釋放離開歐洲。其實他們大多轉而前往巴勒斯坦避難，也有很多人去了美國或其他國家。
+
+何鳳山1997年以96歲高齡去世。他生前甚少提及他拯救猶太人離開納粹德國的事。在他逝世後，他女兒何曼麗和兒子何曼德在The Boston Globe《波士頓環球報》刊登訃告，提及父親曾在維也納當總領事的時候，基於人道立場為數千的猶太人發出「生命簽證」，這才引起猶太史學家對何鳳山的研究。馬克・奧尼爾（Mark O'Neill）所著的《異地吾鄕：猶太人與中國》（Israel and China: From the Tang Dynasty to Silicon Wadi）詳述了這事。
+
+究竟甚麼令何鳳山有如此勇氣，排除萬難，持守信念，堅守良知，而非只向現實低頭，為求自保，一味向上司忠誠，唯唯諾諾呢？且看何鳳山的背景，當可尋出端倪。何鳳山出身貧寒，幼時父親早亡，他刻苦勤奮，以優異成績考入長沙雅禮中學（Yali High School），一所由美國傳教士開辦的中學，其後進入雅麗大學，得以聽信基督福音。最後入讀德國慕尼黑大學，1932年獲得政治經濟學博士學位， 1935年開始在中華民國外交部供職，開始了其40年的外交生涯。他是一名虔誠的基督徒，退休後定居美國三藩市，除寫作之外並熱心教會工作。他是本著基督大愛去拯救無助的猶太人嗎？也許是。
+
+直至2001年以色列政府在耶路撒冷「以色列猶太人屠殺紀念館」舉行儀式，頒授何鳳山「國際義人」“Righteous Among the Nations”的尊稱。這名號乃以色列國會在1953年所始創，以表揚在二次世界大戰納粹德國對猶太人進行種族清洗大屠殺期間，那些勇於救助他們逃離魔掌的非猶太人。延至2015年中華民國總統馬英九才對他頒發「褒揚令」。
+
+<figure>
+<img src="https://web.archive.org/web/20210925035134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/何鳳山-國際義人-馬英九-20200805071457_29c9_large.jpg" alt="">
+<figcaption>何鳳山女兒何曼禮，從中華民國時任總統馬英九手中接下頒發給其父的褒揚令。中央社</figcaption>
+</figure>
+
+這遲來的紀念，讓這「東方舒特拉」的光重現人前。
+
+觀乎當今之世，有如許識見與勇氣者，能有幾人？在這歌功頌德，昏暗擾攘的年代，眾人都當自省，捫心自問，若有怯於強權，作出罔顧公義，顛倒是非，有違良知之舉者，可有愧於心？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925035134/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 師潮作者群](https://web.archive.org/web/20210925035134im_/https://www.hkcnews.com/uploads/avatars/8d0a908a-3f23-4698-9dc0-f370e84d7345.png?1393402290)
+
+**博客 | 師潮作者群**
+
+【師潮】我們主要是一群熱愛教學的中文老師，分別任教大、中、小學和幼稚園，並從事語文教學研究工作。我們期望以理論結合實踐，對語文教學問題，以至其他社會關注的教育問題，抒述己見，拋磚引玉，集思廣益，促進教育專業發展。

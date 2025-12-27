@@ -1,0 +1,92 @@
+---
+title: "中大校長段崇智公開信：部分警務人員涉嫌不當使用暴力或違反人權，經查證後須予以譴責"
+date: "2019-10-18"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中大"
+  - "段崇智"
+  - "吳傲雪Sonia"
+url: "https://web.archive.org/web/20210729152921/https://www.hkcnews.com/article/24277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDsonia-24277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDsonia-24277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 中大校長段崇智公開信：部分警務人員涉嫌不當使用暴力或違反人權，經查證後須予以譴責
+
+<figure>
+<img src="https://web.archive.org/web/20211026210623im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/段崇智-20170725221359_f98a_large.jpg" alt="">
+<figcaption>中大校長段崇智</figcaption>
+</figure>
+
+各位中大同學、同事、校友：
+
+執筆之時，心中有很多思緒尚未止息。上周四 （10月10日） 跟同學及校友接近四小時的會面當中，外界可以從媒體看到很多失控畫面，我和我的團隊成員，以及在場的每一位同學、校友，無不感受到繃緊的情緒。面對比以往更洶湧的群情及激烈的指罵，延續真正的對話及交流實不容易。我感受最深刻的，是討論會完結後，我與一些被捕同學兩個多小時的閉門交談。在大家都放下戒備的情況下，我看到同學無助的眼神，哭訴他們親身所受的身心痛楚，懇求大學保護他們。我亦坦誠告訴同學我的心底話，承認大學在此史無前例社會挑戰下的不足之處，以及大學必須肩負的多方責任。在這兩小時，彼此終於能夠打開心扉，表達最真摯的感受。同學的每一句說話都打進我的心坎裏，讓我非常的痛心及難過。
+
+對於部份同學就其被捕後的經歷，向我表達的強烈訴求，大學必須負起尋求真相及公道的責任，讓公義得以彰顯。每一位同學，無論他們持何種立場及價值觀，無論他們曾否犯錯，都是中大的學生。作為師長，我們必須教導同學為自己的言行負責任 ; 而大學出於關愛，亦須為同學爭取應有的權益，不會隨便放棄任何一位同學。上周四的討論會之後，我收到逾800封來自各方的電郵及書面意見，看到不同傳媒對事件的解讀及分析，也知悉同學、同事及校友的聯署。在如此大量紛紜的意見中有一個共通點： **各方都期望大學憑藉其公信力、影響力，讓有關事件及受影響同學得到最公平的處理。**
+
+**被捕同學的情況及跟進**
+
+我們自上周五起，立即逐一再聯絡被捕的逾30位同學，詳細了解他們在被捕後遇到的種種情況。大部分同學表示，在被捕後要求與律師或家人聯絡不果，最終在數小時甚至長達78小時後才能打電話，有同學因而被逼在沒有律師陪同下錄口供。據其中一名同學描述，其家人到警署要求會面不得要領，結果同學在被拘留的48小時沒有機會打電話及不能與正在警署苦候的家人見面。不少同學指出，在拘留期間警員不允許他們睡覺或躺臥休息，亦有同學反映得不到所需的醫療協助，例如哮喘病發的同學要等候6小時後方能就醫，有同學因頭部受創要求就醫，18小時後方被送往急症室。較為嚴重的情況，不止一位同學表示在錄口供或扣留期間曾被警員掌摑，以及有兩位同學表示在搜身前獲告知不需脫衣，卻在搜身房內被同性警員強逼脫下所有衣物。以上都是同學親自提出的指控。
+
+在我們逐一個別跟進的被捕同學中，共有約20位同學表示在拘留期間曾經遭遇上述其中一種或多種不同程度的不合理對待，顯示這些絕非單一事件，從人道待遇角度來看，情況嚴重，而涉及身體傷害的情況，更加不能接受。對於同學親述他們被捕後經歷的身心創傷，我感到難過及悲憤。 **我在此嚴正指出，無論同學因何事被捕，警方必須確保在拘捕及扣留過程中，被捕人士應有的權利不被剝削。** 執法人員須達到高標準及要求，審慎和公正執法，這也是公眾的合理期望。對於已經發生的事件，在查明細節後，警方必須有清晰的交待和恰當的處理。
+
+為嚴肅處理以上同學的個案，大學即時聯繫了義務校友律師，特別是在處理性別平等及人權問題方面有豐富經驗的律師協助同學。我們希望在律師的協助下，每個個案的詳細情形都可以以書面陳述撰寫出來，在同學的同意下， **讓大學可以協助將個案呈交相關機構作出正式申訴及陳述，並促請相關機構盡快作出公平、公開、公正的調查。** 事實上，大學已直接聯絡了監警會，他們極度關注同學的個案，並承諾會就個別個案派出觀察員，出席所有投訴警察課與投訴人的會面和現場搜證，以確保過程公平公正。我在此呼籲受影響同學爭取你們應有的權利，我和我的同事非常願意與律師一起陪同同學到相關機構作出投訴，保障你們的法律權益及要求嚴正處理。
+
+<figure>
+<img src="https://web.archive.org/web/20211026210623im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/吳傲雪Sonia-20191012001206_153b_large.png" alt="">
+<figcaption>8.31太子站的嚴重傷者及被捕人士、主修幼兒教育的中大女學生吳傲雪Sonia，上周四向段崇智哭訴她曾遭受警察性暴力，又指有被捕者曾被警察性侵及虐待。港台直播影片截圖</figcaption>
+</figure>
+
+我理解很多中大成員及社會人士都非常關注吳同學的個案，我們亦同樣非常關注，並與吳同學保持緊密聯繫，提供協助。我們理解她正面對很大的心理壓力，而她在公開場合或訪問中所描述的經歷，其實已具備相當的細節，我在此促請投訴警察課就已公開的細節立即展開調查，並由監警會作出監察，此事刻不容緩。我亦在此強烈呼籲各方停止對任何人作出恐嚇或騷擾行為，甚或阻嚇受害人求助。
+
+遺憾的是，目前為止我們所接觸的同學，都因為對警方有不安情緒或對投訴警察課及監警會的制度失去信心等而尚未願意踏出這一步。我感到無奈之餘，亦明白同學及公眾對現有機制的不信任，並非一朝一夕形成的。 **基於事件的嚴重性，我會去信行政長官，希望行政長官考慮針對現時大學已掌握初步資料的約20宗個案，在現有機制以外作出嚴正跟進，讓法治精神得以彰顯，讓信心得以重建。** 事實上，過去兩個月來，社會上有強烈聲音，要求政府成立獨立調查委員會，查找警民衝突以至整個事件的真相。政府應該正視這個聲音，因為只有真相才可以為所有人帶來最公平的結果。
+
+保護大學的成員，大學責無旁貸。同時，在大學成員甚至社會大眾都期望我們主持公道的時候，我身為校長，必須謹慎運用大學的公信力，絕對不能倉卒行事，讓校園變成爭辯的戰場，甚至讓本來已經受創傷的人，因為某些惡意攻擊而受二次傷害。
+
+對於部分警務人員涉嫌不當使用暴力或違反人權，經查證後須予以譴責。
+
+**校園保安措施**
+
+在上星期的會面中，很多同學都向我表達對於警察進入校園的關注。在校園範圍內，大學會盡一切努力維護每一位成員的合法權益。一般情況下，如警察欲進入校園，保安處會先向警方查詢到校原因，了解警方是執行法庭搜查令，或是在涉案人士同意下作出調查，或有合理懷疑相信有涉嫌犯罪人士在某處所內。希望大家明白，大學有法律責任配合警方調查工作，但大學會先向警察了解進校的具體資料，包括調查目的及地點等。大學亦會在警察在校園範圍內調查或搜查期間，盡可能安排大學人員陪同有關人士，並在合法、合理的情況下知會相關單位 ; 同時亦會按需要聯絡律師到場協助（大學已為此安排24小時法律支援），確保員生的法律權益受到保障。
+
+大學會加強前線保安人員的訓練及警覺性。在這段期間，大學已加派了人手處理大量校園發生的不同事件。
+
+**加強緊急應變支援**
+
+我在上星期與同學及校友會面時提到，受到社會環境的影響，這幾個月來大學發生了大大小小的事件，令不同成員都受到很大的困擾。在這個非常時期，不同的成員都期望大學有更多的支援，我很感謝各位曾經出心出力的同學、同事及校友，同事們需要處理很多前線的問題，但他們不怕辛苦，願意付出更多時間與同學溝通，疏導負面情緒並制止不當的行為及紛爭。
+
+大學一直設有由我領導的危機處理小組，負責制訂應對不同事件的對策。由於現時社會狀況急速變化，在聽取各方意見之後，我決定深化危機處理小組的工作，以更迅速地應對突發情況，加強不同單位的協調及決策。大學將會成立一個跨部門的 **迅速應變專責工作組 （Rapid Response Task Force）** ，就五大支援範疇成立分組，跟進不同的工作並向我匯報，亦會邀請學生代表及校友加入 :
+
+1. 文化共融分組 ( [[email protected]](/web/20211026210623/https://hkcnews.com/cdn-cgi/l/email-protection) ) （召集人 : 吳基培副校長）
+
+2. 學業支援分組 ( [[email protected]](/web/20211026210623/https://hkcnews.com/cdn-cgi/l/email-protection) ) （召集人 : 余蕙卿教務長）
+
+3. 校園安全、保安及法律事宜分組 ( [[email protected]](/web/20211026210623/https://hkcnews.com/cdn-cgi/l/email-protection) ) （召集人 : 吳樹培副校長）
+
+4. 學生支援及心理健康分組 ( [[email protected]](/web/20211026210623/https://hkcnews.com/cdn-cgi/l/email-protection) ) （召集人 : 吳基培副校長）
+
+5. 溝通與協調分組( [[email protected]](/web/20211026210623/https://hkcnews.com/cdn-cgi/l/email-protection) ) （召集人 : 吳樹培副校長）
+
+<figure>
+<img src="https://web.archive.org/web/20211026210623im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/吳基培-段崇智-中大-20191018174334_2267_large.png" alt="">
+<figcaption>中大校長段崇智（中）、副校長吳基培（右）及吳樹培（左）上周四與學生、校友會面。至少3名在反修例運動中被捕的學生在會上發言，反映警暴問題。中大電台直播影片截圖</figcaption>
+</figure>
+
+**讓信、望、愛帶領我們前行**
+
+過去幾個月的社會及校園風波，對我們各人都是一個學習的過程。我深信對話是解開矛盾的出路，強硬對立不能換來妥協，真心坦誠方能修補撕裂。香港的成功有賴香港人的團結及法治精神。現時社會上的負面情緒已達臨界點，不斷升級的暴力及破壞行為必須停止，政府必須盡快、盡力提出可行方案解決社會上各種問題，方可以為這一代的年青人──香港的未來，重燃希望。
+
+不管前路多艱難，大學會堅守傳播知識、服務社會、培育品德的使命，讓校園成為自由探索真理的地方，不會放棄教導同學博文約禮的精神。假如校園失去了團結、失去了開放包容、理性及互相尊重之心，失去了盼望和信任，失去了愛，又怎可以再為大家遮風擋雨 ？
+
+我在香港出生及長大，香港是我摯愛的家鄉。獅子山下的精神，正正是我成長的家庭，以及千千萬萬家庭的寫照：刻苦耐勞、勤奮拚搏、靈活應變、自強不息。所有香港人，不論政治立場，都是同舟人，有很多共通之處。我衷心希望真相可以帶來和解，可以重建香港寶貴的精神財富。
+
+香港中文大學校長   
+ 段崇智
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026210623/https://hkcnews.com/aboutus/#subscribe)

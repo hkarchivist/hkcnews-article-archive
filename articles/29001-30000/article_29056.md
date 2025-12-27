@@ -1,0 +1,99 @@
+---
+title: "【拆解內會半年】李慧琼若退選　泛民即登主席寶座　建制派進退兩難矛頭指向立會法律顧問"
+date: "2020-04-18"
+last_updated: "2020-04-18 11:52:50"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "郭榮鏗"
+  - "Dennis KWOK"
+  - "建制派"
+  - "親中派"
+  - "Pro-establishment"
+  - "內務委員會"
+url: "https://web.archive.org/web/20210917193220/https://www.hkcnews.com/article/29056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【拆解內會半年】李慧琼若退選　泛民即登主席寶座　建制派進退兩難矛頭指向立會法律顧問
+
+立法會內務委員會因為國務院港澳辦、中聯辦出聲明，向主持選舉主席的公民黨郭榮鏗及其他民主派議員發炮，成為政治風眼。回顧過去半年，內會究竟發生了甚麼事？中央出聲後，建制派可以如何出招？
+
+郭榮鏗是上一個年度的內會副主席。本來，主持選舉10月新一個立法年度內會主席的工作，是由上屆內會主席、民建聯李慧琼負責，但因為李慧琼接受提名續選主席，為了避嫌她讓郭榮鏗主持選舉。民主派議員自此乘勢進攻，共派出22人競逐主席之位，李慧琼則是建制派唯一候選人。中央本周發炮後，建制派有壓力收拾局面。如果李慧琼此時退選為重新主持選舉，由於內會主席提名期已過，換言之，內會主席這個僅次於立法會主席的重要職位，將落在22名民主派候選人的其中一人手上。
+
+眾新聞翻查內會開會紀錄，民主派原來曾經提名過多位建制派議員選主席，但建制派全數拒絕，包括：陳振英、馬逢國、廖長江、邵家輝、石禮謙、陳凱欣、劉業強、張宇人、張國鈞。建制派協調一致由李慧琼出戰，但卻失策於泛民有此招數而未有Plan B。如今兩辦發聲、加上特首林鄭月娥指「交由立法會自我糾正」，令建制派處於進退兩難局面。
+
+李慧琼日前回應會否退選時說，需要與法律顧問商討，稱若所有參選人願意退選，再重新開始選舉程序，為現階段其中一個可行突破困局方法。李慧琼這個要求，幾乎肯定泛民不會應允，那麼矛頭便指向立法會秘書處法律顧問身上，當中涉及的程序公義問題，值得留意。
+
+<figure>
+<img src="https://web.archive.org/web/20210917193220im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/Dennis%20KWOK-內務委員會-公民黨-20200417181125_2975_large.jpg" alt="">
+<figcaption>郭榮鏗昨日繼續主持會議，未能進入選舉環節。港台截圖</figcaption>
+</figure>
+
+### 原定的首次會議
+
+去年暑假休會後，10月開始新立法年度，內會一般會率先開會，為大會做準備。首次打算處理選舉主席的會議，是在10月11日，當時仍屬反送中運動期內。會前，建制派已經吹風要包攬內會正、副主席，由李慧琼連任主席、馬逢國任副主席；民主派會議召集人陳淑莊認為，事前吹風顯得無誠意，故拒絕與建制派協調。內會要先選出主席，之後才會選副主席。
+
+當天會議首先續議內會主席與政務司司長會面的情況，選舉主席是議程第9項。會議舉行了3個半鐘，在討論到有關10月16日行政長官發表施政報告、10月17日出席答問會，花了較長時間，包括民主派議員關注，如特首最終以錄像或視像發表報告，是否合法合憲；警員是否可以在蒙面、無展示編號的情況下進入立法會。結果會議結束時，並未進入選舉主席的議程。
+
+### 進入提名環節
+
+去年10月15日內會再開會，安排了早上9時至下午6時為會議時間，正式進入選舉議程。李慧琼當時仍是內會主席，直接宣布進入選舉主席的提名。李慧琼隨即接受自由黨邵家輝的提名，成為今個年度內會主席的候選人，她表示：「由於我已經係接受咗提名的話呢，我就請副主席主持會議，唔該Dennis。」郭榮鏗自此接手主持選主席。
+
+民主派多名議員開始互相提名，亦有民主派議員提名建制派議員，例如公民黨楊岳橋先後提名了陳振英、馬逢國及廖長江，但三人均拒絕接受提名。其他拒絕提名的包括石禮謙、陳凱欣、劉業強、張宇人、張國鈞。最終提名期結束前，有22名民主派、1名建制派議員即李慧琼，競選主席。
+
+<figure>
+<img src="https://web.archive.org/web/20210917193220im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/何君堯遇襲-2019區議會選舉-建制派-20191106161940_986b_large.jpg" alt="">
+<figcaption>建制派多人曾被提名選主席，但全部拒絕接受。港台資料圖片</figcaption>
+</figure>
+
+民主派議員當日在會上，關注翌日（10月16日）行政長官發表施政報告的保安安排，郭榮鏗認為，有關討論與內會主席選舉有關，有需要讓主席候選人得悉翌日安排，繼而進行其後的內會主席選舉論壇，以便候選人就此表達其意見。在決定選舉論壇的形式上，議員亦花了相當時間討論，最後郭榮鏗拋出三個方案，但建制派多名議員不滿這些方案要花費太多時間，郭表示再作修訂後就結束會議，全日花了約6個半鐘開會。
+
+當日會議期間，建制派何君堯形容民主派毛孟靜「食慣洋腸」，以致對何的言論有不同理解，引起泛民議員譁然。何君堯拒絕收回言論，又表示與性無關，形容同「食開意大利粉」無分別。
+
+### 圍繞立法會保安事宜拉鋸
+
+由去年10月18日至今年1月3日之間，內會開了10次特別會議，合共會議時間17.5小時（大多數會議維時1.5小時）。泛民議員持續就立法會保安事宜展開討論，包括警方進入立法會、警方在立法會的權限等。主持郭榮鏗拒絕設發言時限，認為有需要讓議員充分表達意見，亦讓大眾知悉相關事宜。郭解釋，因為內會正副主席是立法會行政管理委員會（行管會）的當然委員，而行管會需要處理包括立法會保安在內的事情，主席候選人應該表達其對於保安的意見。
+
+泛民議員又曾經提出一些無約束力議案，例如楊岳橋動議，要求行管會向內會以機密方式，提供2019年6月至10月，與立法會大樓保安安排相關的所有文件、資料及紀錄，以供內會能公平及公正地進行正、副主席選舉的辯論及投票程序。議案最終遭否決。
+
+泛民議員又要求立法會秘書長陳維安出席內會會議，解釋保安安排。陳維安表示未獲行管會授權下不會出席。討論期間亦提出多次規程問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210917193220im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/立法會秘書長-陳維安-20190506000707_293c_large.jpg" alt="">
+<figcaption>立法會秘書長陳維安。港台資料圖片</figcaption>
+</figure>
+
+### 郭榮鏗劃線停收議員無約束力議案
+
+郭榮鏗於今年1月3日的會議上宣布，1月7日起停收議員提交的無約束力議案。
+
+### 處理何啟明信件
+
+工聯會何啟明去信內會，表示希望議員支持勞福局局長羅致光的建議，若內會未能選出主席，就將延長產假至14周的僱傭條例修訂草案交人力事務委員會處理，繞過內會。當日（1月10日）開會1個半小時，僅討論了何啟明信件。羅致光後來於立法會大會提出動議，在建制派佔多數下獲通過。
+
+### 武漢肺炎肆虐
+
+因為武漢肺炎在本港蔓延，2月5至7日原訂的三次會議取消。3月13日再開會，泛民議員認為疫情肆虐，不應召開與抗疫無關的會議，認為內會應討論立法會大會及事務委員會，在疫情下召開會議的準則。建制與泛民又就「武漢肺炎」一詞爭拗，建制派爭議字眼屬歧視，泛民反指「主婦手」、「香港腳」等又是否涉歧視，郭榮鏗裁定有關字眼不屬冒犯性，認為議員以「武漢肺炎」或「新型冠狀病毒肺炎」形容疫情都沒問題。
+
+### 繼續處理保安問題
+
+3月13的會議原定下午4時結束，郭榮鏗讓會議延長至民主黨尹兆堅發言完畢，尹兆堅剛開始發言，僅提到「香港腳」、「香港大流感」等，就被財委會主席陳健波在座位叫囂打斷，要求「交場」財會，郭榮鏗重申讓尹發言完成就結束會議，陳健波繼續叫囂，被逐離場。何君堯加入戰團叫囂，郭榮鏗驅逐他，但保安人員只包圍何君堯，未有即時抬走他。
+
+3月20會議上，泛民議員就13日會議保安人員未有行動，質疑雙重標準，並去信內會，要求行管會解釋。當日會議時間僅安排了30分鐘，未能進入選舉環節。
+
+然後就到了最近一次，亦即是昨日的會議。在中聯辦、港澳辦發稿譴責郭榮鏗後，建制派議員在會上，才群起攻擊郭榮鏗選主席的安排。內會主席，仍然未能選出。
+
+**相關新聞：**
+
+[兩辦譴責郭榮鏗後再開內會　建制派輪流猛攻　譚文豪嘲建制派「被激活」](https://web.archive.org/web/20210917193220/https://bit.ly/2ViXokJ)
+
+[中聯辦再發聲明：說兩辦干預是歪曲《基本法》　郭榮鏗惡意解讀規則濫權　「告洋狀」禍國亂港行為](https://web.archive.org/web/20210917193220/https://bit.ly/2VBsmU7)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210917193220/https://www.hkcnews.com/aboutus/#subscribe)

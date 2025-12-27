@@ -1,0 +1,77 @@
+---
+title: "【11.11二號橋衝突】5中大生暴動罪成還柙候判　官：恃人多勢眾阻警執法"
+date: "2021-09-03"
+last_updated: "2021-09-03 16:33:39"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "中大二號橋"
+  - "中大保衛戰"
+  - "中大暴動案"
+url: "https://web.archive.org/web/20211027002731/https://hkcnews.com/article/44998/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45005/%EF%BF%BD%EF%BF%BD%EF%BF%BD1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44998/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45005/%EF%BF%BD%EF%BF%BD%EF%BF%BD1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【11.11二號橋衝突】5中大生暴動罪成還柙候判　官：恃人多勢眾阻警執法
+
+前年11月11日中大二號橋衝突，五名當時就讀中大的學生被控在校園內暴動，案件今（3日）裁決。區域法院暫委法官張潔宜裁定，五名被告暴動和違反禁蒙面法全部罪成。張官指五人均在警方開始驅散後短時間內被捕，認為他們不可能在驅散前一刻才到達暴動範圍，其裝束亦與暴動參與者亦類同，恃著人多勢眾阻礙警方執法，鼓勵示威者作出破壞社會安寧的行為。案件押後至10月19日求情和判刑，期間所有被告還柙。
+
+今早有過百人排隊輪候旁聽，因此有人未能入庭內。五名被告聞判後表現冷靜，張官讀畢裁決後休庭一會，被告在庭外與親友相擁，多人抽泣痛哭，亦有人低聲說：「頂住呀！」 散庭時，旁聽席有人高呼：「我愛你哋呀！」五被告揮手和舉起「心心手勢」回應。第一被告劉晉旭呼叫：「我9月9號生日呀！」友人高聲說：「生日快樂呀！」
+
+<figure>
+<img src="https://web.archive.org/web/20211027002731im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/中大二號橋-20210903143456_1800_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 被告若非參與暴動 必有足夠時間離開
+
+五名被告依次為劉晉旭（22歲）、符凱晴（23歲）、高梓斌（23歲）、陳歷釋（20歲）及許貽顓（22歲），各被控一項暴動罪及一項在非法集結中使用蒙面物品罪。控方案情指，案發當日下午1時06分至2時26分，在環迴東路和二號橋附近有暴動發生，有人以磚塊和雜物堵路，多次敲打物件製造聲響，又以擴音器向警方表示會使用武力，即使警方多次口頭和舉旗警告，集結人士仍沒散去。該暴動共發生4次衝擊，集結人士用黃色垃圾車掩護，向警方防線投擲硬物及汽油彈。 張官裁決時指，由於沒有證據顯示任何被告曾身處首3次衝擊，因此本案只集中在第4次衝擊，並裁定暴動範圍為環迴東路和二號橋交界的黃色垃圾車，與路旁山坡之間的位置。
+
+辯方不爭議當日在二號橋附近發生暴動，但爭議被告有否參與其中，指被告可能只是圍觀者，被捕時或第一時間嘗試離開現場。
+
+<figure>
+<img src="https://web.archive.org/web/20211027002731im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/中大暴動案-中大二號橋-20210621190938_2415_large.png" alt="">
+<figcaption>法官裁定黃色垃圾車與右方山坡之間的位置，為暴動範圍。立場新聞直播截圖</figcaption>
+</figure>
+
+張官裁決時指，接納全部出庭作供的警員均為誠實可靠的證人。 她指五名被告均在警方開始驅散後短時間內被捕，負責拘捕各被告的警員第一眼看到他們的位置，亦十分近黃色垃圾車後的暴動範圍，認為各被告不可能在驅散前一刻才到達，而五人的裝束和佩戴的防具與其他暴動參與者類同。她裁定各被告當時身處暴動現場，意圖衝擊警方防線，恃著人多勢眾阻礙警方執法，鼓勵示威者作出破壞社會安寧的行為，包括投擲汽油彈。
+
+張官認為，若被告不打算參與暴動，絕對有足夠時間在第4次衝擊前或期間離開。張官亦指出，暴動現場確有其他旁觀者，但他們均在黃色垃圾車的右方，遠離暴動範圍，大多沒佩戴任何防具，最多只戴上外科口罩；亦有穿上反光背心「狀似記者的人士」由黃色垃圾車的左方行至右方。
+
+### 首被告自辯不合情理不可信
+
+五名被告中只有第一被告劉晉旭曾自辯，他稱案發當日覺得中大猶如「打緊仗」，只想盡快離開中大，慌亂間拿取物資保護自己，並走到二號橋附近。張官批評，劉明知有人將汽油彈傳上二號橋，沿路亦聽到敲打聲越來越近，仍選擇走到二號橋，裁定其證供不合情理和不可信。
+
+劉亦曾傳召中大何善衡夫人宿舍舍監李駿康作供，指反修例運動期間，中大有不少學生穿黑衣甚至戴上防具上課，案發當日亦有學生希望離開中大。張官雖然裁定其供詞誠實可靠，但指對本案的爭議點沒太大幫助，並特別指出，李在庭上表示沒打算參與暴動，因此即使護具隨處可見，他亦沒戴上，也沒在中午過後走到二號橋，張官認為這更突顯劉的行為與想法不一和不合理。
+
+<figure>
+<img src="https://web.archive.org/web/20211027002731im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/中大二號橋-中大暴動案-20210621190020_277b_large.jpg" alt="">
+<figcaption>第一被告劉晉旭。資料圖片</figcaption>
+</figure>
+
+### 沒證據顯示證物鏈曾受干擾
+
+就違反禁蒙面法，張官接納警員證供，認為五名被告在參與暴動時已戴上蒙面物品，目的旨在阻止他人辨識他們的身分，由於她已裁定各人暴動罪成，因此裁定五人在非法集結中使用蒙面物品罪成。
+
+此外，第二被告符凱晴及第五被告許貽顓另被控管有攻擊性武器或其他適合作非法用途的工具，罪名亦成立，符被指管有一個螺絲批及一個不連手抦的金屬鎚頭；許則管有一把士巴拿。辯方爭議證物鏈不完整，不能排除有其他人將這些物品放入他們的背囊或腰包，但張官指沒證據顯示證物鏈曾受干擾，也沒證據顯示上述物品與課堂或學生活動有關，一般人理應不會隨時隨地帶這些物品在身。張官指這些物品均可用作傷人，螺絲批和士巴拿也可用作非法用途，如損毀物品。
+
+五名被告沒有案底，但第二被告符凱晴於2019年8月25日因非法集結被捕，獲警方批准擔保期間干犯本案。張官最終將案押後至10月19日處理求情和判刑，期間索取五名被告的背景報告。
+
+<figure>
+<img src="https://web.archive.org/web/20211027002731im_/https://hkcnews.com/news_新聞/hk-discuss/2019/11/中大二號橋-防暴警察-20191114000355_1e24_large.jpg" alt="">
+<figcaption>前年11月11日中大發生激烈衝突，防暴警多次在現場發射彈藥。資料圖片</figcaption>
+</figure>
+
+五名被告依次為劉晉旭（22歲）、符凱晴（23歲）、高梓斌（23歲）、陳歷釋（20歲）及許貽顓（22歲）。他們被指於前年11月11日，在中文大學賽馬會研究生宿舍一座附近的二號橋及環迴東路一帶參與暴動。五人另各被控「在非法集結中使用蒙面物品」，即在同一地點以防毒面罩、半面式防毒面罩、圍巾、頭套、眼罩等物品蒙面。
+
+第二被告符凱晴及第五被告許貽顓另各被控「管有攻擊性武器或其他適合作非法用途的工具」，指符於同一地點管有一個螺絲批及一個不連手抦的金屬鎚頭；許則管有一把扳手（即士巴拿）。
+
+【案件編號：DCCC 361/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027002731/https://hkcnews.com/aboutus/#subscribe)

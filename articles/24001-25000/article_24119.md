@@ -1,0 +1,63 @@
+---
+title: "香港中文大學員工總會：譴責警方暴力性侵　要求徹查懲處施暴警員"
+date: "2019-10-11"
+last_updated: "2019-10-11 17:02:47"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "性暴力"
+  - "新屋嶺拘留中心"
+  - "吳傲雪Sonia"
+url: "https://web.archive.org/web/20210729023006/https://www.hkcnews.com/article/24119/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDsonia-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24120/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24119/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDsonia-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24120/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港中文大學員工總會：譴責警方暴力性侵　要求徹查懲處施暴警員
+
+
+{{< video src="https://web.archive.org/web/20210729023006if_/https://www.youtube.com/embed/2pd7C7FIafs" >}}
+
+
+昨日校長與學生的會談中，聽到學生訴說受到警方暴打及性侵的遭遇，看到同學泣不成聲，我們心碎了！同學的勇氣及追求五大訴求的決心，也令人動容！
+
+### 追求民主　義不容辭
+
+有說「大學不應政治化」——中大員工總會過去發出聲明或呼籲罷工，也收到不少類似言論，但我們深信，所謂大學不應該政治化，是指大學不應該因為受到當權者施壓而屈服，不應該捲入黨派權力鬥爭。大學的使命是為社會培育人才，建造美好的將來，因此追求民主自由的理想，反抗強權的暴行，我們義不容辭！
+
+### 成立國際級獨立調查委員會
+
+對於警員針對被捕人士施暴及性侵，我們予以強烈譴責，並促請校長為公義站出來，譴責政府的暴行，要求警方立即停止過度使用暴力；成立國際級獨立調查委員會徹查濫捕及濫暴事件，並懲處施暴者——我們必要追究到底！
+
+### 守護學生
+
+大學校園庇鄰公共設施，亦是對外開放的地方， 已經不只一次有學生在校園附近範圍被打，人身安全受到威脅，校方有責任加強保護學生及教職員，防止有人來校園施暴。同學亦擔心警方在沒有搜查令下，闖入校園濫捕。本會促請校方發出指引，讓教職員尤其校園保安及部門主管清楚知道事件的應對方法及通報機制。
+
+### 支援保安
+
+已有商場保安被警方控告阻差辦公，中大保安組同事或有機會要阻止警員入校園調查，但如果因此而面對法律訴訟，大學必須給予法律支援，我們亦謹此感謝保安同事，緊守工作崗位。
+
+### 與學生同行
+
+「學生不是暴徒」——請聆聽他們的心聲，我們大家的訴求是相同的：希望香港有民主的法制、有守護人民的警隊、有為市民服務的政府！
+
+中大人，加油！
+
+網上聯署（中大教職員／學生／校友）︰
+
+[https://forms.gle/ dVggkE64RGWfZmFa9](https://web.archive.org/web/20210729023006/https://forms.gle/ dVggkE64RGWfZmFa9)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729023006/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20210729023006im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

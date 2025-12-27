@@ -1,0 +1,59 @@
+---
+title: "【國安法首案】審訊第二日傳5警員　唐英傑三度穿防線　警兩度發胡椒球槍"
+date: "2021-06-24"
+last_updated: "2021-06-25 10:52:57"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "光復香港，時代革命"
+  - "唐英傑"
+url: "https://web.archive.org/web/20210918064707/https://hkcnews.com/article/42738/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42761/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/42738/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42761/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法首案】審訊第二日傳5警員　唐英傑三度穿防線　警兩度發胡椒球槍
+
+國安法首案第二日審訊，控方傳召警員盧晉禮作供。他當日身處第三道被唐英傑駕電單車穿過的防線，他目擊唐從盧押道轉右入謝斐道。盧晉禮表示，曾於6米外向唐英傑發射兩粒胡椒球彈，但均未有射中。
+
+盧在證人口供紙形容，在自己發射胡椒球彈後唐英傑才轉右，但辯方今日在庭上播出新片段，令盧的證供受質疑。辯方將一段片段呈堂，並盤問指出，兩發胡椒球彈是在唐轉彎前發射的，而非發射後才轉右，盧回應指是與唐並排時發射的；辯方再質疑，盧這才承認「我（證供紙）寫得唔夠仔細。」該片段呈堂並受到控方阻撓，要求先列作臨時證物，辯方代表、資深大律師郭兆銘一度拋下原子筆略顯不滿，控方周天行解釋指這是首次見到該片段，要確認來源，法官准予先列作臨時證物。
+
+<figure>
+<img src="https://web.archive.org/web/20210918064707im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/國安法-唐英傑-20210624193843_17e1_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+唐英傑被控煽動分裂國家罪、恐怖活動罪及危險駕駛（交替控罪），案件今天進行第二日審訊，控方陸續傳召目擊警員。根據控方開案陳詞，唐英傑於去年7月1日駕駛電單車穿過了三道警方防線，其車後插有黑底白字、印有「光復香港　時代革命」字句的旗幟。控方今日共傳召了5名警員證人，他們於案發當日身處三條不同防線（check-line），供稱唐英傑駕駛電單車穿過防線的情況。
+
+首名出庭作供的女警司譚蘊兒，作供指當日帶領18名警員在軒尼詩道東行線、盧押道交界設立防線，禁止車輛駛入軒尼詩道快線及中線，亦在慢線佈置警員，建議司機轉左入盧押道，如果是「真正的道路使用者」或可經慢線穿過防線。
+
+譚蘊兒在回應控方周天行主問時形容，唐英傑駕駛的電單車高速駛至，嘗試過叫停唐但不成功，雙方最近的時候相距不到1米，並在電單車駛過後聽到有群眾歡呼，她及隊員均未有受傷。譚蘊兒又指，電單車經過自己的時間只不過一秒，未能看到車牌，只見電單車向銅鑼灣方向駛去。譚其後經通訊機聯絡其他警員，指示提高警覺、小心及守住防線。
+
+辯方代表、資深大律師郭兆銘盤問時提到《警察通例》有關設置路障及截查的程序，但譚蘊兒回答指不適用於案發情況，即當時封鎖軒尼詩道、指示車輛轉左，不屬於設置路障，亦不屬於截查。郭兆銘續問是否有其他程序指引適用，譚蘊兒稱沒有，並同意法官杜麗冰形容，是由現場指揮官考慮決定的。
+
+譚蘊兒於周天行覆問時承認，預期會有車輛駛經防線，但不是高速。
+
+譚蘊兒與第二位控方證人、高級督察黃瀚緯在辯方盤問下都同意，如果駕駛電單車的司機是「恐怖份子」並有意衝向警員，他當時的確可以這樣做。
+
+<figure>
+<img src="https://web.archive.org/web/20210918064707im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/國安法-警員-20210624175805_197f_large.jpg" alt="">
+<figcaption>現職九龍城特別職務的盧晉禮，當日駐守的防線被唐英傑駕車穿過。莊曉彤攝</figcaption>
+</figure>
+
+所有今日作供的警員均表示，當見到唐英傑駛至時，以手勢或擴音器叫停對方，但全部失敗。今午作供的警員盧晉禮，案發當日身處第三條被穿過的防線，即盧押道與謝斐道交界。
+
+盧晉禮形容唐英傑當時衝向防線的情況：「當時佢本身靠埋一邊，速度慢咗落嚟嘅，我哋上前嘗試截停呢架車嘅時候，佢就畀油，跟住向我哋嘅方向快速駛過。」他續指，之後向唐發出警告要求停車，但警告無效唐衝向防線。盧形容，因為同事會被撞到，所以發射了兩發胡椒球彈，但都沒有打中電單車或唐英傑，據他的記憶，當時他與唐相距約6米。
+
+辯方郭兆銘盤問時指，假若第一發胡椒球彈打中唐英傑面部，是否會對防線隊員構成更大危險，盧晉禮不同意，並指不是瞄準頭部發射，而是瞄準身體。郭續指，射中身體也可能造成意外，盧回應：「所以我唔係喺佢未衝到我防線嘅距離開槍，如果太遠距離開槍有機會反車撞到我哋。」郭質疑，在靠近警方防線時才開槍，豈不更危險？盧表示不同意。
+
+從控辯雙方的呈堂影片見到，第二發胡椒球彈落在街角的一輛紅色的士車尾，第一發的去向未能從影片看到，庭上亦無透露，僅指兩發均未有命中。
+
+盧晉禮在證人口供紙曾形容，兩發胡椒球彈發射後，唐英傑才轉右進入謝斐道。辯方郭兆銘呈上新片段，令人質疑盧的說法。影片見到唐英傑轉彎後，仍可見盧舉槍瞄準，但見不到扣下板機的一刻。盧亦解釋，胡椒球彈射出後一段時間才會冒煙，所以見到煙霧的一刻不等於射中的一刻。在辯方盤問下，盧晉禮先是表示發射時與唐英傑並排，其後才承認「寫得不夠仔細」。盧晉禮明天將繼續作供。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918064707/https://hkcnews.com/aboutus/#subscribe)

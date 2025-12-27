@@ -1,0 +1,57 @@
+---
+title: "習近平：不容挑戰中央權力 促加強愛國教育"
+date: "2017-07-01"
+last_updated: "2017-07-01 15:33:04"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "基本法"
+  - "基本法 45 條"
+  - "基本法 考試"
+  - "基本法 遊戲"
+  - "基本法 測試"
+  - "基本法 題目"
+  - "香港 基本法"
+  - "基本法 考試 題目"
+  - "一國兩制"
+  - "習近平訪港"
+url: "https://web.archive.org/web/20210727225258/https://www.hkcnews.com/article/5015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/5015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5022/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 習近平：不容挑戰中央權力 促加強愛國教育
+
+國家主席習近平今早在新一屆特區政府就職典禮發表講話，在超過30分鐘的演辭中，提出三大政治訊息：
+
+一、堅守一國原則，任何危害主權安全、挑戰中央權力、利用香港滲透破壞內地，都是「觸碰底線，絕不允許」；   
+ 二、寄語新一屆政府未來五年要「着力加強對青少年愛國主義教育」；在回顧兩制「新情況」中，習提及香港維護國家主權安全的制度「還需完善」，未在新一屆政府工作期望中提述；   
+ 三、只要誠心誠意擁護一國兩制方針和基本法，不論政見或主張，中央都願意溝通，並希望特區政府「廣泛團結社會各界」，提高管治水平。
+
+新任行政長官林鄭月娥在就職典禮上亦表示，香港經歷新情況和矛盾，日後將「依法處理任何衝擊國家主權、安全及發展利益事情，確保兩制在香港全面貫徹落實」。（見另稿）
+
+<figure>
+<img src="https://web.archive.org/web/20210727225258im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/政務司司長-宣誓就職-习近平-20170701102449_17f3_large.jpg" alt="">
+<figcaption>習近平（左）今早為林鄭月娥（右）及新管治團隊監誓。美聯社</figcaption>
+</figure>
+
+習近平致詞時表示，一國兩制是中國向國際社會解決類似問題的新思路和方向，兩制符合香港利益和國家根本利益，回歸後香港特色及優勢得以保持。他不點名引述《中英聯合聲明》說，「（香港）原有資本主義制度、生活方式保持不變，法律基本不變」，認為港人當家作主、自行管理特區自治範圍內事務，比歷史上任何時候享有更大的民主權利及自由。
+
+習近平表示，兩制實踐遇到新問題，包括維護國家主權安全制度「還需完善」、要加強國家歷史民族文化教育宣傳，而經濟未形成新增長點，呼籲全面準確貫徹一國兩制。
+
+他強調，要準確把握一國和兩制關係、正確處理特區和中央的關係，形容一國是根、一國是本，堅持一國原則、尊重兩制差異，兩者任何時候不能偏廢，兩制才能行穩致遠。習近平表明：「任何危害國家主權安全、挑戰中央權力和《基本法》權威、利用香港對內地進行滲透破壞活動，都是觸碰底線，絕不允許。」
+
+面對近年香港年輕人對國家有疏離感，習近平表示，要加強公職人員和青少年的憲法和《基本法》宣傳教育。在對新一屆特區政府未來五年的期望，習近平其中一個主要期望是「注重教育，加強引導，着力加強對青少年愛國主義教育，幫助他們健康成長。」習近平又不點名呼應早前人大委員長張德江說「完善釋法、向特首發出指令」等機制，提醒「要完善與《基本法》實施相關的制度和機制」。
+
+延續近年中央領導人提醒香港要發展的基調，習近平引用香港俗語，提醒「蘇州過後無艇搭」，「大家一定要珍惜機遇，主要精力集中在搞建設、謀發展」。他表示，香港作為多元社會，對不同問題有不同意見、甚至重大分歧並不奇怪，但如果陷入泛政治化漩渦，人為製造對立、對抗，不僅於事無補，嚴重阻礙經濟社會發展，呼籲凡事着眼大局，理性溝通，凝聚共識，才能逐步解決問題。
+
+他形容，香港有不錯的家底，但全球經濟調整面臨很大挑戰，「經不起折騰，經不起內耗」，呼籲團結起來、和衷共濟。
+
+習近平表示，對中央而言，只要愛國愛港、誠心誠意擁護一國兩制方針和基本法，無論持什麼政見或主張，他們都願意與之溝通。他希望未來五年特區政府廣泛團結社會各界，不斷提高政府管治水平，以人為本，紓困解難，解決經濟民生突出問題，切實提高民眾獲得感和幸福感。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727225258/https://www.hkcnews.com/aboutus/#subscribe)

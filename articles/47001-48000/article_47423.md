@@ -1,0 +1,44 @@
+---
+title: "IG貼警校香腸訂單附「我要你哋全部畢唔到業」　送貨男刑恐罪成還柙　官：學警擔心安危屬合理"
+date: "2021-11-08"
+last_updated: "2021-11-08 20:26:25"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "警察學院"
+  - "劉綺雲"
+  - "刑事恐嚇"
+url: "https://web.archive.org/web/20220123111941/https://www.hkcnews.com/article/47423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47435/ig%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47435/ig%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# IG貼警校香腸訂單附「我要你哋全部畢唔到業」　送貨男刑恐罪成還柙　官：學警擔心安危屬合理
+
+21歲男送貨員去年運送香腸到警察學院食堂時，在社交平台Instagram上載訂單相片，配上「我要你哋全部畢唔到業」字句，後來被人截圖轉發給學警友人，揭發事件。送貨員今（16日）在東區裁判法院被裁定一項刑事恐嚇罪成。裁判官劉綺雲不接納被告只是一時貪玩、心血來潮，認為他有計劃地發洩不滿，意圖令警員受驚，擔心「畢唔到業同司華力腸有關」，及香腸被人「加料」危害生命。劉官指案情嚴重，押後案件至本月24日求情及判刑，等候索取背景報告，被告期間還柙。
+
+21歲被告楊惠俊，被指於去年2月12日在網上發布威脅警察學員的言論，會使警察學員的人身遭受傷害，意圖使他們受驚。
+
+<figure>
+<img src="https://web.archive.org/web/20220123111941im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/劉綺雲-刑事恐嚇-20211108202424_2af9_large.jpg" alt="">
+</figure>
+
+### 學警稱擔心「真係畢唔到業」
+
+案情指，被告為警察學院食品供應商的送貨員。去年2月案發當日，被告運送食材至學院食堂，期間用iPhone拍攝司華力腸的訂單發票，在其Instagram帳戶的限時動態上傳照片，寫上字句「我要你哋全部畢唔到業」。被告帳戶的追蹤者、控方第一證人吳達強，看到相片後擔心他在毅進課程認識的學警友人柯秉派，故截圖轉發給柯。柯及兩名學警報稱因此受驚，擔心香腸被人「加料」，擔心「真係畢唔到業」。
+
+被告沒有出庭作供，但曾在警誡下稱不喜歡警察，當時只是心血來潮「貪得意」，沒有目的。劉官裁決時批評被告並無「實話實說」，指截圖顯示訂單的送貨人資料被摺走，可見被告有計劃犯案、拍攝經過思量。劉官認為被告目的是發洩負面不滿情緒，與一時貪玩或多手的說法不符，供詞不可信、不可靠。
+
+<figure>
+<img src="https://web.archive.org/web/20220123111941im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/警察-步操-20210415204914_1704_large.jpg" alt="">
+<figcaption>資料圖片</figcaption>
+</figure>
+
+### 擔心屬合理　「畢唔到業同司華力腸有關」
+
+辯方早前質疑吳達強及柯秉派等人並沒受驚，學警們亦無即日查證香腸有否被人做手腳。劉官不接納辯方說法，認為全部控方證人均誠實可靠，包括吳及柯。她指吳轉發截圖是因擔心學警安危；柯供稱當日早上曾進食司華力腸，故擔心香腸被做手腳、生命健康受威脅，亦屬合理；案發當日無人報稱不適，可以理解學警為何沒再跟進香腸情況。
+
+劉官又指出，被告的Instagram帳戶有達400名追蹤者，人數眾多。雖沒證據顯示當中包括學警，但法庭有理由相信被告知道或預期，有追蹤者會因種種原因轉發相片予警察或身邊的人。劉官認為被告帖文絕非戲言，而是有意圖威脅警察，令他們擔心香腸可能被做手腳，及「畢唔到業同司華力腸有關」，最終裁定被告一項刑事恐嚇罪成。
+
+劉官指本案案情嚴重，拒絕為被告索取社會服務令報告。案件押後至本月24日求情及判刑，被告期間還柙索取背景報告。
+
+【案件編號：ESCC2342/2020】

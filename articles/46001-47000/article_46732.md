@@ -1,0 +1,84 @@
+---
+title: "楊明再認罪獲准保釋候判　求情稱聲名受損　一生行善有錯就認"
+date: "2021-10-21"
+last_updated: "2021-10-22 05:36:43"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "清洪"
+  - "鄧少雄"
+  - "楊明"
+url: "https://web.archive.org/web/20220704235830/https://www.hkcnews.com/article/46732/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46752/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46732/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46752/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 楊明再認罪獲准保釋候判　求情稱聲名受損　一生行善有錯就認
+
+藝人楊明疑醉駕下在山頂馬己仙峽道撞壆，原承認「不小心駕駛」及「車窗玻璃透光度不足」兩罪，惟得悉要被還押後，代表他的資深大律師清洪隨即申請推翻答辯，獲裁判官鄧少雄批准。律政司早前覆核有關決定，今亦被駁回。楊明成功推翻認罪答辯，但他又再度承認干犯兩項控罪，求情稱因本案長時間折騰，其間聲名受損、工作遇阻，強調一生行善，「堅持有錯就認」，把握機會重新認罪。上次鄧官表明不同意被告背景優良，認為須還押候判，但今日准楊明保釋。
+
+<figure>
+<img src="https://web.archive.org/web/20220704235830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/楊明-20211021171954_2b7c_large.jpg" alt="">
+</figure>
+
+39歲被告楊明（原名林明樂），身穿全黑西裝、墨綠色「Converse」波鞋，神態憔悴。他下午開庭前弓身坐在木椅上，低頭不斷用力搓手，間中拉開口罩呼吸。他今承認於前年8月7日，在香港半山馬己峽道西行線近燈柱位置，不小心駕駛車輛登記號碼為MY686的私家車；而該私家車的窗門曾被增補，以減低安全玻璃的透光能力。
+
+> 求情重點：   
+ ⚫媒體報道亦對他造成壓力，「但佢都係堅持有錯就認」   
+ ⚫形象因本案受衝擊工作遇阻   
+ ⚫一生行善   
+ ⚫本案無人受傷，會向政府賠償損失
+
+
+辯方求情其間，楊明女友莊思明不斷抽泣，並用紙巾抹淚。資深大律師許紹鼎求情指，楊明出身基層家庭，是家庭經濟上的支柱，其父曾經接受心臟搭橋手術，但楊一直克盡孝道，陪伴及照料父親。
+
+### 形象因本案受衝擊　工作遇阻滯
+
+辯方強調，楊明的個人形象因本案受到衝擊，工作上亦遇上阻滯，蒙受重大損失。辯方希望法庭考慮，楊明一生做善事，婦女會、街坊福利會、宗教知名人士亦為他撰信求情，「每一個人都有自己嘅背景、經歷，後生做過嘅事，而家反省。」
+
+辯方強調本案中無人受傷，當晚並非繁忙交通時段，楊明亦已開始與地政署書信來往，表明會全額賠償損失，尚待地政署提供賠償金額。辯方續指，被告已因本案折騰了一段長時間，媒體報道亦對他造成壓力，「但佢都係堅持有錯就認」，把握機會重新認罪。
+
+<figure>
+<img src="https://web.archive.org/web/20220704235830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/許紹鼎-20211021162636_2984_large.jpg" alt="">
+<figcaption>資深大律師許紹鼎</figcaption>
+</figure>
+
+### 大狀：斗膽望法庭考慮非監禁式刑罰
+
+辯方羅列過往「不小心駕駛」的同類案例，指出案例都較本案嚴重，但亦只是判處罰款及社會服務令，表明「斗膽」希望法庭考慮非監禁式刑罰。
+
+鄧官聽取陳詞後，決定批准被告保釋候判，押後案件至11月4日判刑，但他同時表示不代表任何意向，「所有判刑選擇都有可能」。鄧官沒索取任何報告。
+
+### 官上次提及楊明有兩次案底兼本案無人傷屬僥倖
+
+今年3月，鄧官聽取資深大律師清洪求情時，多次問：「你說完了嗎？」鄧官反駁指，案中無人受傷屬僥倖，強調楊明在2005年及2007年有兩次案底，背景並非如清洪所言般優良。他當時表明要將被告還押，待索取背景報告，態度較為強硬。
+
+翻查資料，2005年楊明曾在座駕上醉酒「瞓着」，將車停泊在馬路中央，被判罰款7000元及停牌一年；2007年楊在守行為其間，帶醉用回鄉卡付費不果，憤怒下毀壞八達通機，被判150小時社會服務令。
+
+### 認罪，推翻，又再認罪
+
+此外，鄧官今早駁回律政司覆核法庭准楊明推翻認罪答辯的申請。
+
+楊明原被控三罪，包括「不小心駕駛」、「車窗玻璃光度不足」及「拒絕提供血液樣本作酒精測試」。楊承認前兩罪，不認後者，後者獲判罪名不成立。楊明上次得悉被須還柙後推翻答辯，改為不認罪，獲鄧官批准。據庭上透露，楊後來通知法庭，將會再度認罪。
+
+<figure>
+<img src="https://web.archive.org/web/20220704235830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/清洪-20210928152547_124c_large.jpg" alt="">
+<figcaption>資深大律師清港原代表契女莊思明的男友楊明，攬上身自言是他向楊明提供錯誤法律意見，之後不再代表他。（資料圖片）</figcaption>
+</figure>
+
+### 官若法庭不准推翻答辯會無法彰顯公義
+
+鄧官首先指出，楊明一早已表明會再度承認「不小心駕駛」及「車窗玻璃光度不足」控罪，故控方申請毫無實質意義，僅為學術討論。鄧官續指，早前代表被告的資深大律師清洪，在庭上公開承認誤導及誘使被告認罪，若法庭不容許申請，「會令公義無法彰顯」。
+
+控方同時就「拒絕提供血液樣本作酒精測試」罪獲裁定罪名不成立的裁決提覆核，鄧官指楊明有可能因神志不清，未能理解警員的警告，認為控方未能在毫無合理疑點下證明楊有意干犯控罪，故維持原判。
+
+### 指法例准警員要求醫生抽血　若有執行已解決問題
+
+鄧官表示曾向控辯雙方提出疑問，質疑「自招醉酒」是否合理辯解，指出這可能予人「飲酒越多，越容易逃避法律責任」的印象，違背有關條例的立法原意。鄧官又指，普通法原則規定被告不得自證其罪，而抽血則屬入侵性的取證方式。
+
+不過，鄧官認為現時《道路交通條例》39C條，容許警員在特定情況下可要求醫生為疑人抽血，已平衡抽血及保障個人權利的需求，故辯方指楊明沒有犯法意圖，屬合理及正當的辯解。鄧官又謂：「事後孔明，如果警員援引有關機制，問題早就解決了。」
+
+案情指，去年8月7日楊明深夜駕駛到達案發地點，其後突然扭軚越過雙白線，逆線行駛，車輛煞停前撞向行人路的鐵柱，再失控滾向前方斜路20米，撞毀一個交通指示牌，最後架在石屎路壆。現場無人傷亡。警方將涉案車輛押送到鰂魚涌的一間汽車檢查中心，檢查人員發現除前後方擋風玻璃外，所有車窗均貼有顏色膠片。   
+   
+ 根據早前審訊證供，楊明案發時一時有回答一時無反應。醫療報告提到楊有酒氣並多次要求離去，又拒接受檢查。
+
+【案件編號：ESCC2365/20】

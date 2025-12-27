@@ -1,0 +1,49 @@
+---
+title: "中美元首通電話　拜登：關注香港新疆等議題　習：台灣涉港涉疆中國內政　美應慎重行事"
+date: "2021-02-11"
+last_updated: "2021-02-11 12:07:13"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中美關係"
+url: "https://web.archive.org/web/20210728042635/https://www.hkcnews.com/article/38087/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38089/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38087/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38089/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 中美元首通電話　拜登：關注香港新疆等議題　習：台灣涉港涉疆中國內政　美應慎重行事
+
+**中美元首通電話，白宮發布的 [新聞稿](https://web.archive.org/web/20210728042635/https://www.whitehouse.gov/briefing-room/statements-releases/2021/02/10/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-china/) 表示，美國總統拜登「強調他對北京脅迫性及不公平的經濟做法、打壓香港、侵犯新疆人權，以及對包括台灣在內區域的專斷行為的根本關注」。 [央視](https://web.archive.org/web/20210728042635/https://world.huanqiu.com/article/41sx6hZRpi0) 報道，習近平與拜登就雙邊關係和重大國際及地區問題深入交換意見，並指台灣、涉港、涉疆等問題是中國內政，事關中國主權和領土完整，美方應該尊重中國的核心利益，慎重行事。這是拜登上月20日宣誓就職後，首次與習近平通電話。**
+
+<figure>
+<img src="https://web.archive.org/web/20210728042635im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/拜登-中美關係-xi%20jinping-20210211103027_3ea4_large.png" alt="">
+<figcaption>中美元首通電話，白宮發布的新聞稿表示，美國總統拜登「強調他對北京脅迫性及不公平的經濟做法、打壓香港、侵犯新疆人權，以及對包括台灣在內區域的專斷行為的根本關注」。</figcaption>
+</figure>
+
+白宮稱，拜登在農曆新年之際，向中國人民表示問候和良好祝願。新聞稿稱，拜登重申首要捍衛美國人民的安全、繁榮、健康以及生活方式、以及保持一個自由及開放的印太。新聞稿又稱，兩國領袖就應對肺炎疫情，以及全球衛生安全、氣候變化，防止武器擴散共同挑戰交換意見。新聞稿最後說，在促進美國人民及盟友利益時，拜登追求務實及以結果為導向的接觸。
+
+內地央視報道，2月11日中國農曆除夕上午，國家主席習近平同美國總統拜登通電話。兩國元首就中國牛年春節相互拜年，並就雙邊關係和重大國際及地區問題深入交換意見。
+
+<figure>
+<img src="https://web.archive.org/web/20210728042635im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/中美關係-拜登-xi%20jinping-20201108084051_e53a_large.jpg" alt="">
+<figcaption>白宮稱，拜登在農曆新年之際，向中國人民表示問候和良好祝願。</figcaption>
+</figure>
+
+報道引述習近平稱，過去半個多世紀，國際關係中一個最重要的事件就是中美關係恢復和發展。雖然期間也經歷了不少曲折和困難，但總體不斷向前，而且取得了豐碩成果，造福了兩國人民，也促進了世界和平、穩定、繁榮。中美合則兩利、鬥則俱傷，合作是雙方唯一正確選擇。中美合作可以辦成許多有利於兩國和世界的大事，中美對抗對兩國和世界肯定是一場災難。
+
+習近平強調，當前中美關係正處於重要關口。推動中美關係健康穩定發展，是兩國人民和國際社會的共同期盼。你說過，美國最大的特點是可能性。希望現在這種可能性朝着有利於兩國關係改善的方向發展。兩國應該共同努力、相向而行，秉持不衝突不對抗、相互尊重、合作共贏的精神，聚焦合作，管控分歧，推動中美關係健康穩定發展，給兩國人民帶來更多實實在在的利益，為抗擊新冠肺炎疫情、促進世界經濟復甦和維護地區和平穩定作出應有貢獻。
+
+習近平說，中美在一些問題上會有不同看法，關鍵是要相互尊重、平等相待，以建設性方式妥善管控和處理。兩國外交部門可就雙邊關係中的廣泛問題以及重大國際和地區問題深入溝通，兩國經濟、金融、執法、軍隊等部門也可以多開展一些接觸。中美雙方應該重新建立各種對話機制，準確了解彼此的政策意圖，避免誤解誤判。要分清哪些是分歧，要很好管控；哪些有合作意義，共同推動走上合作軌道。台灣、涉港、涉疆等問題是中國內政，事關中國主權和領土完整，美方應該尊重中國的核心利益，慎重行事。
+
+習近平強調，面對當前充滿不確定性的國際形勢，中美作為聯合國安理會常任理事國，承擔着特殊國際責任和義務。雙方應該順應世界潮流，共同維護亞太地區和平穩定，為促進世界和平與發展作出歷史性貢獻。
+
+央視報道指，拜登表示中國是具有悠久歷史和偉大文明的國家，中國人民是偉大的人民。美中兩國應該避免衝突，可以在氣候變化等廣泛領域開展合作。美方願同中方本着相互尊重的精神，開展坦誠和建設性對話，增進相互理解，避免誤解誤判。
+
+報道最後說，兩國元首都認為，今天的通話將向世界釋放積極訊號，雙方同意就中美關係和共同關心的問題保持密切聯繫。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210728042635/https://www.hkcnews.com/aboutus/#subscribe)

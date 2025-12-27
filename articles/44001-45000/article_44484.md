@@ -1,0 +1,82 @@
+---
+title: "【阿富汗變天】中美外長首次通話　疆獨、邊境、利益問題　中方有何憂慮？"
+date: "2021-08-17"
+last_updated: "2021-08-19 00:45:04"
+author: "中國組記者曾海琪"
+category: "眾聞"
+tags:
+  - "阿富汗"
+  - "afghanistan"
+  - "一帶一路"
+  - "Belt and Road"
+  - "美國"
+  - "美利堅合眾國"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211026023749/https://www.hkcnews.com/article/44484/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44484/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【阿富汗變天】中美外長首次通話　疆獨、邊境、利益問題　中方有何憂慮？
+
+### 中美外長首次通話
+
+阿富汗政權變天後，在首都喀布爾機場民眾為了逃亡，攀附在美軍運輸機外，最少兩人在運輸機起飛後從高空墮下。
+
+<figure>
+<img src="https://web.archive.org/web/20211026023749im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/喀布爾-afghanistan-20210816220311_29e8_large.jpg" alt="">
+</figure>
+
+局勢未明朗之際，外交部長王毅昨日(16日)與美國國務卿布林肯通電話 ，美方通報沒有交代太多內容。而中國的官方媒體就指布林肯表示阿富汗當前局勢正進入一個關鍵階段，塔利班應表明與極端主義一刀兩斷，選擇有序權力轉移和成立包容性政府。期待中方也能為此發揮重要作用，美方認可阿富汗未來應由阿富汗人民決定。
+
+王毅在通話中稱事實再次證明，把外來模式生搬硬套到歷史文化及國情截然不同的國家，水土不服，最終難以立足。又批評美方倉促撤軍，對局勢造成嚴重負面影響，如果再製造新的問題就是不負責任的態度。
+
+<figure>
+<img src="https://web.archive.org/web/20211026023749im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/afghanistan-20210817183930_178b_large.png" alt="">
+<figcaption>美國國務卿布林肯(左)，外交部長王毅(右)</figcaption>
+</figure>
+
+王毅指中方願意與美方溝通，推動阿富汗問題實現軟著陸，包括促使當地不再發生新的內戰或人道主義災難，及不再成為恐怖主義滋生地和庇護所，又指鼓勵阿富汗建立符合國情開放包容的政治架構。
+
+王毅更特別強調美國上屆政府宣布撤銷「東伊運」的恐怖組織定性，在反恐問題上搞雙重標準是危險的，也是錯誤的。他又進一步批評美國不能一方面處心積慮遏制打壓中國，另一方面又指望中方支持配合，認為面對層出不窮的全球性挑戰和亟待解決的地區熱點問題，雙方應開展協調合作。
+
+### 「東伊運」涉疆獨問題
+
+到底「東伊運」是甚麼組織？背後其實涉及疆獨問題。細看地理位置，中國是阿富汗的最大鄰國，接壤兩國邊境的瓦罕走廊其中一邊就是新疆維吾爾自治區。東伊運被中國定義為疆獨恐怖組織，相關人員過去都有在阿富汗地區出現，所以中方一直都擔心阿富汗會成為他們的基地。
+
+<figure>
+<img src="https://web.archive.org/web/20211026023749im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/阿富汗難民-20210817183938_fdad_large.png" alt="">
+<figcaption>中國、阿富汗接壤邊境的瓦罕走廊。</figcaption>
+</figure>
+
+但與此同時，外界對東伊運看法就不太一樣。包括美國，在特朗普執政時期就將東伊運從外國恐怖分子名單中刪除，當時受中方強烈反對。
+
+而中方指要保持友好關係，今次奪權成功的阿富汗塔利班，就被形容與東伊運有革命情誼。事實上王毅以往與他們高層在天津見面時，特別強調希望對方與東伊運徹底劃清界限。當時對方指決不允許任何勢力，利用阿富汗領土做危害中國的事情。
+
+<figure>
+<img src="https://web.archive.org/web/20211026023749im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/afghanistan-20210817183944_1435_large.png" alt="">
+</figure>
+
+### 學者：利益掛帥
+
+但台灣中亞學會秘書長侍建宇認為，前題是建基於利益關係：「北京非常了解他們過去幾十年的宗教革命情感，所以他(阿富汗塔利班)在天津的講法就非常小心。可是他到底能夠做到甚麼程度？很難講。」
+
+「可能北京要拿一些資源才能跟他們做交換，才能夠把那個原則做個某種程度的落實。不過我相信短期之內，塔利班會要求他們低調一點。」
+
+侍建宇又指雖然瓦罕走廊接壤中國，但當地作為中國西北軍事禁區，解放軍長年駐守，加上地勢高、根本沒有路走，不認為會因應阿富汗逃亡潮觸發邊境問題。至於利益問題上，一帶一路旗艦計劃、價值620億的中巴經濟走廊，政變前中阿兩國已積極接洽，希望將走廊延伸至阿富汗。外界關注阿富汗變天後，對中國的大計會有何影響？
+
+<figure>
+<img src="https://web.archive.org/web/20211026023749im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/afghanistan-20210817183954_2c62_large.png" alt="">
+<figcaption>解放軍長年駐守瓦罕走廊中國段。</figcaption>
+</figure>
+
+侍建宇認為對這些以億美元計的投資，中方會保持觀望、審慎，不會單純相信塔利班在天津會談的承諾：「阿富汗境內政權並不穩定，不知道有甚麼樣發展。這樣的經濟投資從商業角度來講是不聰明的，因為你可能會倒錢到海裡邊。」
+
+「(雖然)新疆交通建設的股票，前兩天、昨天可能都在上漲，但股票上漲不一定代表中國一定會投資，是代表一些人的預期、投機的心態吧。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026023749/https://www.hkcnews.com/aboutus/#subscribe)

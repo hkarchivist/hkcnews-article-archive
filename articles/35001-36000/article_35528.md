@@ -1,0 +1,118 @@
+---
+title: "【中大戰一周年】中大女生：所認識的中大已回不來　大學生已經唔可以無憂無慮咁享受大學生活"
+date: "2020-11-11"
+last_updated: "2020-11-12 11:47:53"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "中大學生"
+  - "中大保衛戰"
+  - "一周年"
+url: "https://web.archive.org/web/20211205083240/https://hkcnews.com/article/35528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35539/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35539/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【中大戰一周年】中大女生：所認識的中大已回不來　大學生已經唔可以無憂無慮咁享受大學生活
+
+一年前的今天，中大猶如戰場。數以千計催淚彈轟入校園，夏鼎基運動場半空不斷有催淚彈降落，學生在驚慌聲中逃跑，隔岸也可見黑煙自山城冒起；晚上二號橋戰火激烈，橡膠彈、布袋彈、汽油彈頻繁交錯，火光熊熊，硝煙四起。
+
+這些畫面，中大學生Kary（化名）和Denise（化名）都不能忘懷。Kary仍記得，那晚本來約了幾個同學晚上一同吃飯盒，然後二號橋開戰，她站在附近大樓的天台上，聽著沒間斷的槍彈聲，想著在二橋的同學，「覺得……我會唔會今晚就同唔到你哋食呢餐飯。」
+
+戰役至今過了一年，Kary覺得，現時仍未回到她所認識的中大，亦不會回來了，「我唔覺得呢度仲係以前嗰種狀態，大學生可以無憂無慮讀書、享受大學生活，因為大學生活本身已經加添咗好多其他嘢。」
+
+<figure>
+<img src="https://web.archive.org/web/20211205083240im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/中大保衛戰-中大二號橋-20201111235056_3b97_large.jpg" alt="">
+</figure>
+
+### 中大一役後退出街頭
+
+在中大一役之前，Kary都積極參與街頭抗爭。不過自中大戰役後，她就退出街頭了。
+
+Kary在中大住宿舍，中大戰役那五天她都在校園內。11月11日，網上號召發起黎明行動，她從宿舍出去，在吐露港公路設路障，及後短暫跟警方對峙。抗爭從街頭移師到平常生活的校園，作為中大生的Kary感覺還是有點不同，「平時喺街邊，你要掘一粒磚，其實冇咁猶豫。但當日喺二橋附近開始掘磚嘅時候，我有猶豫，會諗：呢度唔係街，係中大，係咪要咁掘自己學校入面條路嗰啲磚呢。嗰刻望住條路由磚地變做沙地，係會覺得有啲奇怪。但係又諗，如果呢個係我哋需要嘅，都冇辦法，呢個係我哋可以拎到嘅資源。」11日，下午一度傳出警方將會搜學生宿舍的消息，於是人群很快就散了，及後證實了這個是假消息。
+
+到了翌日，11月12日，戰況最激烈的一天。因為前一天的平靜，Kary沒有料想到這天會發展到這麼激烈，於是沒有Black Bloc上陣，唯有在天台做哨兵觀察。
+
+她記得那天本來約了幾個回中大的同學晚上一同吃飯盒。不過，到了晚上，二號橋開戰，她站在附近大樓的天台上，視線受阻看不到二橋情況，只看到科學園外排著一架又一架的警車，不住聽到發射槍彈的聲音，「不停聽到好多砰砰砰、嘭嘭嘭。」她腦內想著的，是二橋的情況，想著在二橋的朋友，「嗰吓忍唔住喺天台喊咗，覺得……我會唔會今晚就同唔到你哋食呢餐飯。」想起當時場景，Kary眼眶有點泛紅。
+
+看不到畫面，但不斷湧入雙方交戰的聲音，她感到不安，「你知嗰度嘅人，有好多係你識嘅人。你知道有好多都係中大人，佢哋好多係你同學、莊員、同你住同一幢宿嘅人。我係會驚，究竟佢而家用嘅係邊個程度嘅武力，會唔會真係用實彈，而嗰度啲人就喺嗰個位送死。我唔知喺嗰度嘅同伴會遇到咩事。」
+
+<figure>
+<img src="https://web.archive.org/web/20211205083240im_/https://hkcnews.com/news_新聞/hk-discuss/2019/11/中大-1112中大衝突-20191113213138_2e86_large.jpg" alt="">
+<figcaption>12號晚，二號橋戰況激烈。林倩茹攝</figcaption>
+</figure>
+
+另一邊廂，她同時看到校園來了很多很多人，「好多好多人返嚟傳物資嗰啲，講緊可以用人鏈鋪滿中大主要道路。」她看到，有人問在場有沒有中大學生，過了很久才有一個人在斜坡下方跑上去，「即係喺嗰度嗰條路，全部人都唔係中大學生，令我好AMAZED。唔知佢哋係校友、職員，定可能同中大冇乜直接關係、純粹心痛班學生嘅人。我冇諗過，原來有咁多人會咁鍚中大，特登千辛萬苦入嚟。」
+
+作為中大學生，眼見校園淪戰場，Kary當下覺得很不可思議。「當望到TG不停射入夏鼎基（運動場），或者因為燒咗跳高塊墊，所以連對面岸都見到中大有黑煙升起嘅時候，你會覺得……件事太DRAMATIC。真係編劇寫都寫唔到。你從來都冇諗過呢個地方係會咁樣。」
+
+更讓她感到戲劇性的是，當時有人呼籲國際生向領事館求助，Kary將訊息傳給一個韓國同學，結果那同學真的向了領事館求助，當下她覺得：「原來中大已經去到呢個風高浪急嘅地方。」她感到不安，「你愈推到咁顯眼嘅地方，你愈唔知最後會跌到去邊。唔知件事可以點收科。」她也擔心，校園一旦被攻入後，不知道會發生甚麼事，「萬一警方真係長驅直進，會唔會佢有權可搜到每個角落，搜哂每個宿生嘅房呢。」
+
+
+{{< video src="//web.archive.org/web/20211205083240if_/https://www.youtube.com/embed/J7Jl0qB5zcc" >}}
+
+
+### 暴露運動問題
+
+12日深夜，警方撤走，示威者通宵留守二號橋，以防警方突然進攻。翌日、13日傍晚，中大宣佈第一學期提早結束。示威者開始討論去留問題，同日傍晚在夏鼎基運動場舉辦了一場討論會，有意見者就拿起咪發言。Kary說，去留兩派意見分歧，當時沒有達到共識。同時，校園內亦出現一些中大人覺得非必要的破壞，也導致了激烈的爭拗。
+
+到了14日深夜，三個示威者開記招，要求政府承諾不會取消區議會選舉。Kary說，這個舉動令不少人心灰意冷，加上15日有消息傳出，指校園內有炸彈，校方緊急撤離所有宿生，於是示威者亦撤離中大。
+
+中大一役，Kary觀察到運動存在著很大問題。她發現，當運動出現分歧時，大家很少討論及思考。她舉例指，當時在夏鼎基運動場舉行的討論會進行期間，很多人在旁邊以練習之名跑步或擲水樽，沒有參與，加上叫囂聲浪影響討論會對話，令Kary覺得他們有點不尊重溝通的感覺，「唔係話呢啲冇用，但你係咪覺得完全可以唔需要傾？係咪前線做嘅，只要學識啲SKILL就已經夠？係咪唔需經過思考？會唔會真係有人真係覺得無政府狀態好爽？最驚係大家冇諗過任何嘢。」
+
+再延伸下去，是情緒勒索的現象。她說，例如當有人提出討論留或走，就會有人說：「你要我哋嚟就嚟走就走，係咪當我哋CONDOM？」她很無奈：「咁冇㗎喇喎，你點樣同佢講落去？大家係咪能夠因為你嘅情緒，抹除其他理性嘅選擇？」
+
+而即使有討論，如何做決定也是一個問題，「公說公有理，婆說婆有理，咁邊個可以落決定？就冇喇，停留咗喺各自表述。有人話兄弟爬山，但係咪所有嘢都可以各自做，唔影響大家？就講中大都已經唔係，留同走係唔同做法。」
+
+### 小勝一仗？
+
+中大一役，有人覺得是小勝一仗，因為守住了中大，不被警方攻入，不過Kary不認同。她舉例，在12日晚，當水炮車噴射藍色水時，在前線的示威者紛紛痛到要走到夏鼎基運動場用灑水系統沖身，「所以如果警方要攻入嚟，佢唔係冇辦法。如果喺武力對決層面上，絕對唔認同係小勝一仗。唔係因為我哋打退警方，只不過係警方唔知出於咩原因撤退，戰況先平息。」
+
+她甚至覺得，理大圍城的出現，會否某程度上，是中大「害了」理大：「點解大家開始覺得可以試陣地戰，都係以中大作為藍本，如果中大由DAY 1就去傾，點解要守喺度，大家諗清楚呢個問題嘅時候，會唔會成件事就唔會出現？」
+
+Kary在中大一役後，就沒有再積極參與街頭抗爭，因為她抱著很大疑問，「大家係咪真係理性行事？或者而家咁做係咪真係有用，都係好大問號。我冇辦法說服到自己，唔知有冇結果嘅嘢，就行上去。當武力咁唔對等，我只有捱打，或者用慘情、受傷被捕，變成文宣。係咪咁樣能夠獲得你想追求嘅嘢？好唔明，令我冇辦法，嘗試令自己企喺更前嘅位置。我可以做其他嘢，聯署、國際線都好，但係咪仲可以街頭抗爭呢？」
+
+到了現在，她覺得問題仍然沒有解決。她舉例指，最近的美國大選，只要有人嘗試提出討論，是否只有特朗普連任才可幫到香港，已經立即會被罵，「大家去到一個咁唔能夠容納一啲唔係自己想法嘅意見嘅時候，好難發展落去。」除了同路人的分歧，同時還有政權以不同手段打壓，她也不知道，前路該如何走下去。
+
+### 回不去了
+
+Kary 15日離開中大後，翌晚再回宿舍。當時校方已將絕大部分人撤離，校園空無一人，剩下戰火痕跡：「試過望住一架畀示威者揸過嘅校巴，停咗喺斜路盡頭，係架空校巴，我每日經過佢。所有出入口仲未有保安守住，行到邊都唔會見到有人，仲見到好多痕跡存在。你會慨嘆：我啱啱呢個星期經歷咗啲咩。好似經歷完一次世界末日，然後你生活喺一個冇人嘅城市。」
+
+疫情緣故，目前仍有很多課堂都是網課，所以即使是平日，校園內都是人流稀少。戰役至今過了一年，Kary覺得，現時仍未回到她所認識、最正常的中大，「同埋佢都唔會返返嚟……因為啲人狀態唔會一樣。」Kary已是高年級，已經較少參加校園活動，不過她覺得即使她是大學新鮮人，也不會像她過去幾年那樣活躍，「我唔明點解呢個年代嘅Freshman仲會想上莊，如果我係Freshman，我係咪容許自己喺呢啲事上花時間，而唔係做其他嘢。已經冇辦法咁純粹咁玩。就算疫情過去，啲人返哂嚟上堂，我唔覺得呢度仲係以前嗰種狀態，大學生可以無憂無慮讀書、享受大學生活，因為大學生活本身已經加添咗好多其他嘢。」
+
+<figure>
+<img src="https://web.archive.org/web/20211205083240im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/中大二號橋-中大保衛戰-20201111234241_14ea_large.jpg" alt="">
+<figcaption>一年後的二號橋，車路兩旁裝上高聳的鐵絲網，旁邊有保安駐守。鄭靖而攝</figcaption>
+</figure>
+
+### 保衛校園　中大女生首次站前線
+
+中大女生Denise本身從未走上前線，大多只有參與遊行。第一次走上前線，就是參與中大保衛戰。
+
+「嗰日唔係你嘅選擇。警方要打入嚟，你冇選擇之下，就要行前啲。得返我哋中大學生，冇辦法，要行得前少少。」
+
+她記得，11月11日當天清晨，與其他中大同學一同在二橋設路障。警方來到，雙方先對峙一段時間，然後警方衝入校園，制服並拘捕了幾個學生。Denise見到同學被捕，但無法阻止，無力之餘亦感到害怕，之後又要閃避催淚彈，一片混亂。
+
+那時見到校園戰火漫天，Denise有點失落。「覺得由6月到11月，校園生活就已經係諗抗爭多過上堂讀書，覺得本身我哋正常返學的生活已經冇，再見到佢哋唔當中大係校園，當學生都係敵人，會有啲唔開心同失落。」
+
+Denise說，中大一役令她在抗爭心態有很大啟發，「平時從來唔覺得自己可以企得前，今次係少少半被迫咁，會開始諗，平時見到街頭企得好前嘅人，會唔會同自己一樣，唔係一開始就企到好前，唔係本身就夠膽衝去前面，或者未必體能好好，而係有種力量令佢哋願意行得更前。」於是之後的抗爭中，Denise也嘗試再走前一點，試過做滅火小隊。有了少許經驗，她也沒有之前那麼緊張。
+
+### 平靜才是異常
+
+中大戰後那半年，她常常回想起那個星期中大發生的事，「冇過咗一年嘅感覺，成日諗起，感覺好鮮明。始終有少少介懷、惆悵，好似件事結束咗，但唔代表抗爭結束。有時睇返嗰時嘅新聞都會喊。」
+
+過了很久之後，Denise有次經過某大樓，望到二橋位置，「嗰日天氣好好。諗起舊年發生嘅事，覺得而家呢個平靜好冇實感；明明舊年仲打緊仗，但而家好平靜。呢種好平靜嘅日常，可能先係異常嘅感覺。」
+
+對經歷過中大戰的他們來說，校園外貎也許可以回到以前那樣，但他們再也回不去了。
+
+<figure>
+<img src="https://web.archive.org/web/20211205083240im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/中大-中大保衛戰-20201111234258_b719_large.jpg" alt="">
+<figcaption>一年前，夏鼎基運動場半空出現多枚催淚彈，學生奔跑逃亡。一年後的今天，運動場有人在活動。場地也許可以回復正常，但人回不去了。鄭靖而攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205083240/https://hkcnews.com/aboutus/#subscribe)

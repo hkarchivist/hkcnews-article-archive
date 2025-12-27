@@ -1,0 +1,85 @@
+---
+title: "林鄭：一國兩制非香港自治　21歲青年反駁：「高度自治、港人治港」唔見咗"
+date: "2019-09-27"
+last_updated: "2019-09-27 17:16:24"
+author: "實習記者林倩茹"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "中學生"
+  - "社區對話"
+url: "https://web.archive.org/web/20220121152016/https://www.hkcnews.com/article/23779/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23791/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23779/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23791/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭：一國兩制非香港自治　21歲青年反駁：「高度自治、港人治港」唔見咗
+
+行政長官林鄭月娥昨晚於灣仔伊利沙伯體育館舉行首場社區對話會，150人獲抽中出席（部分人未有出席），中年人佔多數，年輕人不多。林鄭發言時提到：「要保持一國兩制，不是香港自治。對不起，香港自治就不是一國兩制，所以我希望在這裡講清楚我們有底線。」21歲青年陳先生發言時反駁指，香港是「高度自治、港人治港」，「（這句話）由以前聽到最近就唔見咗，唔知去咗邊。一國兩制係好嘅，但希望你明白香港有咁特殊嘅地位，唔單止係中國俾。」
+
+陳先生在對話會後表示，林鄭的表現不合格，沒有回應到市民的訴求，只重複一貫記者會的答法。他對於對話安排亦有意見，因為在150人中只有不足50人獲發言（共30人發言），餘下的人根本與在家看直播沒有分別。
+
+
+{{< video src="https://web.archive.org/web/20220121152016if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F521081891976418%2F&show_text=0&width=560" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20220121152016im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/林鄭月娥-社區對話-20190927022303_240f_large.jpg" alt="">
+<figcaption>林鄭發言時說：「要保持一國兩制，不是香港自治。對不起，香港自治就不是一國兩制，所以我希望在這裡講清楚我們有底線。」周滿鏗攝</figcaption>
+</figure>
+
+陳先生表示，只有獲取香港人的信任才能令香港重回正軌，希望政府有更多的計劃去重新獲得市民信任。他續說，自己從未試過與高官對話，因此身體在發抖；場內的人如果「靜少少」，便可以聽到場外的年輕人在發聲。他呼籲林鄭去接觸青年，明白青年是社會未來的棟樑。
+
+陳指，自己是「黃色」，他答應了當警員的家人為他發問一條「藍色」的題目：「示威活動已經持續了4個月，警方嘅角色係被動嘅，唔能夠止暴制亂，休班警被斬，政府有咩對策？」他續問：「不論黃藍，好多市民走出街被襲，咁你做到啲咩？有咩政策保護到香港人？」最後，他提到獨立調查委員會：「如果警方係冇錯，獨立調查委員會可以還警方一個公道，如果你話成立獨立調查委員會係打擊警方士氣，其實你係有前設，話警方做錯咗，你知唔知？」
+
+<figure>
+<img src="https://web.archive.org/web/20220121152016im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/年輕人-社區對話-20190927020306_814b_large.jpg" alt="">
+<figcaption>21歲青年陳先生，反駁林鄭說「不是香港自治」，指香港是「高度自治、港人治港」。周滿鏗攝</figcaption>
+</figure>
+
+另一位中六男生發言時非常感觸。他說：「我本身都唔想出嚟，我都想有個愉快嘅暑假，但見到而家咁嘅香港，我知道我係未來嘅下一代，如果我唔出嚟，我就會活係一個因為自己政見而俾警察打嘅時代。根本唔係任何人煽動我哋，係我哋覺得驚，先會勇敢地企出嚟。」
+
+這位同學是否滿意林鄭的回應？他在對話會後說：「同之前差唔多，都係公式化咁答番我哋嘅問題。」他認為林鄭應該真正落區了解民意，而非抽出少部分人進行對話，「2萬幾人抽150人已經好少，150個入面得幾十人（30人）可講嘢，唔可以做到全民對話。佢真係要落區聽一聽唔同人嘅意見、年輕人意見。」 他說，10分滿分會給林鄭5分。對話過後，聽到林鄭官腔的回應，他估計未必有改變到林鄭的想法，但他仍存些許希望可以令香港變回和平。
+
+為何會出席對話？「好多人認為五大訴求我哋都講得好清楚，但係點解我覺得要同林鄭或者班大人佢哋對話，係因為佢哋唔知我哋年輕人真正嘅諗法，或者點解會走出來都唔清楚，就好快落判斷，一定係我哋畀人煽動，係破壞香港，所以至少我係想當面講清楚。」
+
+這位中六男生，在最後第五輪才被抽中發問，此前他曾主動舉手要求發言。他說，要向林鄭這位「慈母」詢問，她有沒有體會過人們在街上吸催淚彈的辛苦，有沒有同情過被子彈、警棍傷害的年輕人，有沒有憐憫過因為子女被捕而痛哭的父母，有沒有理會過9名去世的「義士」。他說：「呢啲先係值得關心嘅民生，而唔係一部爛咗嘅入閘機。」他說，自己不明白政治，更不明白為何政府要用暴力去對待和平的示威者，又指「係你哋教我呢個天真嘅人，用和平表達意見係冇用架。」
+
+他指出，多次和平遊行、連儂牆、人鏈活動、罷課、默站等，林鄭都沒有理會：「你每次只識譴責所謂暴徒嘅暴力，然後假惺惺話要聽市民意見。」他又批評林鄭不願意聆聽年輕人重複了無數次的訴求，反問林鄭，這樣是不是珍惜香港。他說得激動，喘了幾口氣，再接著說：「你哋成日講我哋年輕人俾人煽動，但事實上我哋走出嚟，係因為見到而家咁嘅社會覺得好驚。」他說，年輕人上街戴口罩，不是因為犯罪擔心被發現，而是因為和平遊行都會被拘捕、起底，「每次經過警察嗰陣，都會因為自己年輕，或著住黑色衫，就會俾警察無理地暴打、流血。」
+
+<figure>
+<img src="https://web.archive.org/web/20220121152016im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/年輕人-社區對話-20190927020333_1d94_large.jpg" alt="">
+<figcaption>一名中六學生說：「如果我唔出嚟，我就會活喺一個因為自己政見而比警察打嘅時代。」周滿鏗攝</figcaption>
+</figure>
+
+未獲抽中發言的25歲黃先生認為，林鄭月娥今天的表現0分，面對多名發言者提出五大訴求，都只是重複早前的說法，如回應成立獨立調查委員會時，堅持交予監警會處理，「佢係冇回應過示威者訴求，只不過講話我出嚟對話，即係『我聽到喇，得啦明啦』，但係就冇回應過，只是繼續空口講白話。」他說，去到中段不時有人中途離場，他更聽到身後有2、3人說了句：「唉，都係講埋晒啲廢話」後就離開。
+
+黃說，當初也有考慮過是否真的要報名：「報名嘅時候諗法係，佢一直都係喺深閨拍片、經電視播放，佢可以搵到好多藉口，話佢親身聽唔到呢啲訴求，咁既然佢話要對話、要做show，我就奉陪。佢做show都好，我都要堅持講出香港人嘅五大訴求。」他說，如往後的對話，林鄭都像今次一樣只是「空口講白話」，他就會杯葛。
+
+另一位26歲、著西裝的「連登仔」向在座數位官員提出了一個建議：「想知道年輕人諗咩，開手機，裝LIHKG，上連登，上15分鐘望一望熱門就知道年輕人諗啲咩架啦。」他表示，當他得知自己可以參與對話會後，隨即在連登討論區發了《 [是咁的，我被抽中出席林鄭月娥對話會](https://web.archive.org/web/20220121152016/https://lihkg.com/thread/1592003/page/1) 》一文，貼文隨即上了熱門，有3000多個正評。「你可以一蚊都唔使出，唔使花費3000警力，只要打開手機睇一睇，免費嘅個App，就可以睇到今日年輕人諗緊咩嘢。」主持人吳璟儁（政制及內地事務局政治助理）在「連登仔」發言後回應指，《是咁的》一文很多人都看過，現在所有人都知道是他寫的。
+
+「連登仔」又向政府推薦陳雲的《香港城邦論》一書，他指今天所發生的事，一早已被記載在書中，是意料之內。他引用書中內容：「香港最大嘅問題，係2047，係香港人嘅身份認同問題。到底香港人係香港嘅香港人，定中國嘅香港人？」他又指，林鄭月娥在2047年應該是90歲：「（2047）應該唔係好關你事，但好關我事，我今年26歲，2047年我55歲。」他表示，香港已經慢慢感受到中共的威脅：「一國兩制我知邊個破壞緊，絕對唔係港獨，港獨只係一個假想敵。我支持香港行一國兩制，香港自治，我哋搞得掂嘅。」
+
+<figure>
+<img src="https://web.archive.org/web/20220121152016im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/社區對話-年輕人-20190927020402_f521_large.jpg" alt="">
+<figcaption>26歲、穿西裝的連登仔發言時，建議林鄭多上連登及看《香港城邦論》。周滿鏗攝</figcaption>
+</figure>
+
+對話舉行期間，場外有不少年輕人高呼「五大訴求，缺一不可」等口號，在場外等候林鄭出來與他們對話，又有人手持「與被捕人士對話」的紙牌，更為特首預備了一張「Reserved for CE」的椅子。場外多名警員戒備，林鄭最後沒有出來對話。
+
+對話開始前夕、今午5時許，大批穿著校服的中學生在伊館附近的行人天橋掛上寫著「良知」的橫額，希望林鄭月娥能看見。中學生又在伊館附近築成人鏈，他們大多戴上口罩，有人戴上頭盔、以「香城中學」貼紙遮蓋校徽。他們不時高呼「光復香港，時代革命」、「五大訴求，缺一不可」等口號，又唱《願榮光歸香港》，盼望林鄭能聽見他們的聲音。
+
+<figure>
+<img src="https://web.archive.org/web/20220121152016im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/社區對話-逃犯條例-學生-20190926181338_14b8_large.jpg" alt="">
+<figcaption>大批中學生在伊利沙伯體育館附近築成人鏈，高呼「光復香港，時代革命」等口號。美聯社圖片</figcaption>
+</figure>
+
+
+{{< video src="https://web.archive.org/web/20220121152016if_/https://www.youtube.com/embed/aibGjDwpP5I" >}}
+
+
+
+{{< video src="https://web.archive.org/web/20220121152016if_/https://www.youtube.com/embed/Fs-OPCy9PfQ" >}}
+

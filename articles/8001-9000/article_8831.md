@@ -1,0 +1,48 @@
+---
+title: "法官不解合併評稅原意　御狀：同性伴侶共同分擔直至終老"
+date: "2017-12-12"
+last_updated: "2017-12-13 01:30:34"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "上訴庭"
+  - "同性伴侶"
+url: "https://web.archive.org/web/20220525100041/https://hkcnews.com/article/8831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8840/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/8831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-8840/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 法官不解合併評稅原意　御狀：同性伴侶共同分擔直至終老
+
+<figure>
+<img src="https://web.archive.org/web/20220525100041im_/https://hkcnews.com/news_新聞/hk-discuss/2017/12/上訴庭-同性伴侶-20171212171344_17a1_large.jpg" alt="">
+<figcaption>梁鎮罡與同性伴侶Scott離開法庭。林勵攝</figcaption>
+</figure>
+
+上訴庭今日續審公務員同性伴侶福利案上訴，雙方圍繞高級入境事務主任梁鎮罡被拒與同性結婚伴侶合併評稅（joint assessment）的上訴作出陳詞。代表梁鎮罡的英國御用大律師Karon Monaghan表示，根據《稅務條例》對「婚姻」一詞的解讀，應容許外地註冊結婚的同性伴侶在港申請合併評稅，否則對同性伴侶構成不公，重申梁鎮罡只是聲稱《稅務條例》下遭到不公平對待，並不是宣告本港婚姻法例違憲。
+
+高院首席法官張舉能自嘲，「我的稅務法不甚了了」，詢問與訟雙方合併評稅當初的立法目的。Monaghan借勢指出，合併評稅是容許配偶之間分擔收入及生活開支，不論貧病或者面對子女開支，都會長相廝守，直至終老，在稅務法律兩人「視為一體」。
+
+Monaghan提到「預計（同性）伴侶會有聯名戶口」時，一連兩日到庭聽審的梁鎮罡與配偶Scott點了點頭，相視而笑。
+
+代表政府的英國御用大律師Monica Carss-Frisk表示，《稅務條例》「夫妻」非常直接，將配偶解釋為「丈夫與丈夫、妻子與妻子」，「語言上並不合理」。她又表示，如果法庭對涉案的《稅務條例》第10條重新詮釋，《條例》中另外多達19條條文將需要修改。
+
+上訴庭接納梁鎮罡一方提出，書面向法庭陳詞，收窄釐清《稅務條例》範圍至合併評稅，法庭將擇日頒書面判詞。
+
+梁鎮罡上訴針對的合併評稅，是指配偶兩人報稅時，同時計算收入及扣減免稅額。原訟庭當時拒絕梁鎮罡申請合併評稅，表示《稅務條例》中「婚姻」定義，清楚是指一男一女異性結合。
+
+政府一方引述稅務處長黃權輝向法庭提交的誓章表示，1989年之前，條例下，夫妻一直以丈夫的名義進行合併評稅，並無其他選擇。1989年後《稅務條例》修訂，放寬夫妻可以選擇各自向稅務局申請評稅。目前本港《稅務條例》除了容許一夫一妻配偶申請合併評稅，並同時容許一夫多妻配偶申請丈夫與其中一名妻子合併評稅。
+
+<figure>
+<img src="https://web.archive.org/web/20220525100041im_/https://hkcnews.com/news_新聞/hk-discuss/2017/12/同性伴侶-律師-上訴庭-20171212171406_36e9_large.jpg" alt="">
+<figcaption>代表梁鎮罡的英國御用大律師Karon Monaghan。林勵攝</figcaption>
+</figure>
+
+代表梁鎮罡的英國御狀Karon Monaghan陳詞時表示，《稅務條例》第2條中的「婚姻」有兩個定義，一是「香港法律承認的任何婚姻」，或第二「在香港以外任何地方由兩個有行為能力結婚的人按照當地法律而締結的婚姻，不論該婚姻是否獲香港法律承認」。Monaghan指出，第二個條件不可能如政府一方所說，要根據婚後居住地婚姻法律理解，否則第二部分條文，根本完全沒有意思。
+
+上訴庭法官林文瀚質疑，《稅務條例》第10條的寫法不只是「婚姻」，而是清楚列明「丈夫與妻子」，質疑是否應根據字面理解。高院首席法官張舉能也質疑，除非「妻子」定義「有時包括丈夫」，「但始終（條例中）已婚妻子不是男人，語言上有困難（如此解讀）吧！」
+
+Monaghan回應說，條例中「丈夫」及「妻子」只是「已婚的男性」及「已婚的女性」，條例中沒有提及限於一男一女。她承認，立法會立法時，的確沒有考慮同性婚姻，但正如全球新形勢，認為必須根據第2條的釋義整體理解《條例》。她又反駁，《稅務條例》甚至容許一夫多妻申請合併評稅，但同性伴侶只是兩個成年人、一對一之間的關係，對稅制並非什麼「大動作」，反而不應因為政策立場而歧視不同性取向的人。
+
+代表政府的英國御狀Monica Carss-Frisk反駁說，《稅務條例》第10條，字面上清楚是指丈夫與妻子，「沒有合理可能理解為丈夫與丈夫、妻子與妻子」，將「婚姻」理解為異性夫妻，也是政府的一貫政策立場。
+
+她續指，即使《稅務條例》容許一夫多妻等其他婚姻模式，看不到1989年修訂時，立法原意是進取到容許同性婚姻，正如稅務局局長在誓章所言，《條例》的修訂只是容許一夫多妻婚姻，但未至於動搖一男一女的基本婚姻立場。

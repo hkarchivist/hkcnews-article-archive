@@ -1,0 +1,88 @@
+---
+title: "【東京殘奧】24運動員出征八項目　本港首度直播殘奧　港台電視每日5小時　港隊賽事優先"
+date: "2021-08-16"
+last_updated: "2021-08-16 19:26:50"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "直播"
+  - "東京2020殘疾人奧運會"
+url: "https://web.archive.org/web/20211027013115/https://hkcnews.com/article/44442/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD24%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44442/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD24%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【東京殘奧】24運動員出征八項目　本港首度直播殘奧　港台電視每日5小時　港隊賽事優先
+
+東京2020殘疾人奧運會將於下周二（8月24日）舉行，港隊派出24名運動員出戰八大項目。政府繼早前大灑金錢購入東奧轉播權後，再次購入殘奧轉播權，香港的大氣電波將歷史性首次於香港直播開幕禮、閉幕禮及各項賽事。行政長官林鄭月娥日前表示，香港電台電視32台將於殘奧期間直播不少於70小時有關賽事節目，預計除了開幕及閉幕禮外，港台電視32將會每日直播約5小時的各項賽事，並優先播出港隊有份出戰的項目，例如硬地滾球及羽毛球等，以及每晚推出2小時的賽事精華《東京殘奧時刻》，並增設手語即時傳譯和設有烏都語配音版，關注不同市民的需要。
+
+
+{{< video src="https://web.archive.org/web/20211027013115if_/https://www.youtube.com/embed/CjBW5vwgb08" >}}
+
+
+因疫情致延遲一年舉行的東京殘奧會，將於下周二晚上7時（香港時間）進行開幕禮。來自超過160個國家及地區、約 4,400 名運動員，將參與22個運動項目，包括射箭、田徑、羽毛球、硬地滾球、獨木舟、單車、馬術、五人制足球、盲人門球、柔道、舉重、賽艇、射擊、坐式排球、游泳、乒乓球、跆拳道、三項鐵人、輪椅籃球、輪椅劍擊、輪椅欖球及輪椅網球，所有賽事將合共產生537面金牌。
+
+香港代表團於上屆里約熱內盧2016殘奧運勇奪2金2銀2銅，自1972年起參與共12屆殘奧運，累積了40金、37銀、49銅共126面獎牌，成績驕人。
+
+東京殘奧會將舉行至9月5日，香港代表團共派出24名運動員出戰八個運動項目，分別為輪椅劍擊、硬地滾球、游泳、射箭、田徑、羽毛球、馬術及乒乓球，當中一半運動員均為首度出戰。
+
+<figure>
+<img src="https://web.archive.org/web/20211027013115im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/東京2020殘疾人奧運會-香港代表團-殘疾人奧運會-20210813190012_29c4_large.jpg" alt="">
+<figcaption>行政長官林鄭月娥向出戰東京殘奧會的香港代表團授旗。　政府新聞處圖片</figcaption>
+</figure>
+
+### 東京2020殘疾人奧運會港隊運動員名單：
+
+- **輪椅劍擊   
+** 余翠怡 – 女子 A 級花劍個人賽、女子 A 級重劍個人賽 、女子花劍團體賽、女子重劍團體賽   
+ 吳舒婷 – 女子 A 級花劍個人賽、女子 A 級重劍個人賽 、女子花劍團體賽、女子重劍團體賽   
+ 鍾婉萍 – 女子B級花劍個人賽、女子B級重劍個人賽 、女子花劍團體賽、女子重劍團體賽
+
+- **硬地滾球**   
+ 何宛淇 – 混合BC3級個人賽、混合BC3級雙人賽   
+ 劉慧茵 – 混合BC4級個人賽、混合BC4級雙人賽   
+ 廖詠彤 – 混合BC3級雙人賽   
+ 楊曉林 – 混合BC2級個人賽   
+ 梁育榮 – 混合BC4級個人賽、混合BC4級雙人賽   
+ 謝德樺 – 混合BC3級個人賽、混合BC3級雙人賽   
+ 黃君恒 – 混合BC4級個人賽、混合BC4級雙人賽
+
+- **殘疾人游泳   
+** 陳睿琳 - 女子S14級100米背泳、女子SB14級100米蛙泳、女子S14級100米蝶泳、女子S14級200米自由泳、女子SM14級200米個人四式、混合S14級4 x 100米自由泳   
+ 張可盈 – 女子S14級100米蝶泳、女子SM14級200米個人四式、混合S14級4 x 100米自由泳   
+ 許家俊 – 男子S14級100米背泳、混合S14級4 x 100米自由泳   
+ 鄧韋樂 – 男子S14級100米蝶泳、男子S14級200米自由泳、男子SM14級200米個人四式、混合S14級4 x 100米自由泳
+
+- **殘疾人射箭**   
+ 危家銓 – 男子複合弓公開組個人賽
+
+- **殘疾人田徑**   
+ 任國芬 – 女子T36級100米、女子T36級200米   
+ 鄧雨澤 – 男子T20級跳遠
+
+- **殘疾人羽毛球**   
+ 陳浩源 – 男子WH2級單打   
+ 朱文佳 – 男子SH6級單打
+
+- **殘疾人馬術**   
+ 鍾美娟 – 混合III級盛裝舞步個人賽、混合III級盛裝舞步個人自選動作賽、混合公開組盛裝舞步團體賽   
+ 曾靝賜 – 混合III級盛裝舞步個人賽、混合III級盛裝舞步個人自選動作賽、混合公開組盛裝舞步團體賽   
+ 謝佩婷 – 混合I級盛裝舞步個人賽、混合I級盛裝舞步個人自選動作賽 、混合公開組盛裝舞步團體賽
+
+- **殘疾人乒乓球**   
+ 吳玟薈 – 女子TT11級單打   
+ 王婷莛 – 女子TT11級單打
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027013115/https://hkcnews.com/aboutus/#subscribe)

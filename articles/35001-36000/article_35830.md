@@ -1,0 +1,69 @@
+---
+title: "【申報489萬選舉開支】 區議員王百羽李軒朗等涉串謀詐騙被捕　被指提供虛假報價單申索開支"
+date: "2020-11-22"
+last_updated: "2020-11-22 22:34:51"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "王百羽"
+  - "串謀詐騙"
+url: "https://web.archive.org/web/20210925041441/https://www.hkcnews.com/article/35830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35836/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD489%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35830/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35836/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD489%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【申報489萬選舉開支】 區議員王百羽李軒朗等涉串謀詐騙被捕　被指提供虛假報價單申索開支
+
+元朗區議員王百羽今晨被警員上門搜屋，消息指，王百羽與九龍城區議會議員李軒朗，以及公司「U Made This」董事陳梓謙涉串謀詐騙，今早被商業罪案調查科拘捕。警方下午交代事件，商罪科警司葉永林稱三人涉嫌串謀製作虛假文書，以虛報選舉開支，欺騙政府金錢。他又表示，警方於王住所檢獲大量仿製武器，包括25支仿製槍等，再加拘捕一頂「管有仿製火器及彈藥」。
+
+<figure>
+<img src="https://web.archive.org/web/20210925041441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/串謀詐騙-李軒朗-王百羽-20201122211839_15f7_large.png" alt="">
+<figcaption>據悉，王百羽與李軒朗合組團隊，參選9月立法會「超級區議會」議席，申報的選舉總支出為489萬元，當中450萬元由創作公司「U Made This」捐贈。</figcaption>
+</figure>
+
+今早清晨6時許，前學民思潮發言人張秀賢於Facebook表示，元朗區（天恆）區議員王百羽及九龍城區（土瓜灣南）區議員李軒朗，被商業罪案調查科拘捕。及後，王百羽亦於個人Facebook上載一條逾兩分鐘片段，聽到有數名懷疑警員，手持法庭搜查令搜查王百羽寓所，並要求王出示身份證明文件及交出手機。
+
+李軒朗的Facebook早上亦發文「助理按：軒朗於今晨約七時被商業罪案調查科上門拘捕，現身處田心警署，已有律師陪同。」
+
+約下午2時半，李軒朗的Facebook再發文指商業罪案調查科警員到達九龍城區議員李軒朗寓所，以涉嫌串謀詐騙作出拘捕，並帶返警署問話。及後，警方帶同李軒朗議員到達位於土瓜灣的區議員辦事處進行搜證。期間，警方在辦事處搜出數枚手寫揮春。帖文指，揮春上寫有「實現革新」、「五大訴求」等字樣。警方搜出揮春後，先是拍攝之後帶走。
+
+### 林卓廷:憂警方取代廉署調查選舉舞弊案
+
+曾任廉政公署調查主任的立法會議員林卓廷表示，案件性質明顯屬於《選舉（舞弊及非法行為）條例》範圍，據廉署和警方的長期共識，應由廉署調查。他指，各執法部門各有角色和責任，憂慮今次先例一開，日後警方可以用「串謀訛騙」、「洗黑錢」等指控，調查選舉相關案件、貪污案，甚至「公職人員行為失當」案件，取代廉署成「超級執法部門」。
+
+他要求廉署回應，是否將調查選舉舞弊的職能拱手相讓予警方，又指立法會新界東參選人方國珊參選兩日已有 260 萬的選舉開支，認為疑點重重，要求執法部門以同一標準嚴肅調查案件，否則會令公眾質疑執法部門以雙重標準「放生自己友」。
+
+<figure>
+<img src="https://web.archive.org/web/20210925041441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/仿製武器-王百羽-20201122211920_1236_large.png" alt="">
+<figcaption>警方指在其中一名29歲被捕人士，家中檢獲大量仿製武器，包括一批仿製槍（8支長槍及17支手槍）、仿製彈藥及1把弓。   蘋果日報圖片</figcaption>
+</figure>
+
+### 被指提供虛假文件欺詐選舉開支
+
+警方下午於警察總部開記者交代事件，商業罪案調查科警司葉永林表示，警方早前接獲市民報案，投訴在本年立法會換屆選舉時，有候選人涉嫌提交虛假資料，虛報其選舉開支，藉此欺騙政府選舉資助。商業罪案調人員調查後，今日拘捕3名男子，介乎26至29歲，涉嫌串謀詐騙，包括兩名為選舉候選人，一名公司前董事。
+
+葉永林說，兩名候選人涉嫌向選舉事務處提交選舉申報書，報稱接受公司前董事價值450萬元的捐贈，候選人其後向選舉事務處申請489萬元資助。根據法例，政府會向候選人發還全數款項，包括捐贈。警方有理由相信3名被捕人串謀製作虛假文書，包括報價單及收據，藉此虛報選舉開支，騙取政府金錢。有關候選人正處申報及申索階段，未取得政府資助，警方調查針對他們涉嫌提供虛假文件以作欺詐之用。他又稱，就事件作出深入調查，發現有關人士申報的項目或個案金額大及超出預算。被追問警方針對各項項目例如形象指導設預算時，葉永林回應指，調查仍在進行中，並將進入司法階段，不便透露證據及調查方向。
+
+<figure>
+<img src="https://web.archive.org/web/20210925041441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/串謀詐騙-王百羽-20201122211854_1ed7_large.png" alt="">
+<figcaption>王百羽由數名警員押送至天恒邨恒麗樓議員辦事處搜查。   蘋果日報圖片</figcaption>
+</figure>
+
+### 被捕者家中搜大量仿製槍
+
+葉永林指，今日拘捕行動中檢獲一批文件、電腦及手提電腦，同時在其中一名29歲被捕人士家中檢獲大量仿製武器，包括一批仿製槍（8支長槍及17支手槍）、仿製彈藥及1把弓，該名被捕人士另涉管有仿製槍械及彈藥被捕。案件仍在調查中，不排除更多人被捕。
+
+有記者問到，選舉資助上限為 730 萬，而王百羽及李軒朗申索的金額只是489萬，未有超出上限，葉永林則回答指並不是金額數量多少，亦不是捐贈的問題，也不是「claim幾多嘅問題」，而是有否提供虛假報價單及收據，而有關候選人仍在申索資助的階段，並未取得相關款項。
+
+他又被問到，若候選人向一間公司購買「服務」，之後申報一定的金額，警方如何釐定該「服務」並非所列的價值金額？葉永林則指警方就今次案件深入調查，發現申報的item或個案「係好大，超出預算」，但未有回應如何超出預算，至於有否主動調查其他候選人，葉亦指不便透露。對於警方在搜證過期中，撿走一些寫有標語的揮春，葉亦指由於相關文件涉及選舉及宣傳，所以撿走調查。
+
+
+{{< video src="https://web.archive.org/web/20210925041441if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F218445666567971%2F&show_text=false&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925041441/https://www.hkcnews.com/aboutus/#subscribe)

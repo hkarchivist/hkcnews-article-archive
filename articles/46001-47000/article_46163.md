@@ -1,0 +1,73 @@
+---
+title: "【煽惑參與六四案】鄒幸彤自行抗辯指涉案文章不屬煽惑　警禁集會違憲"
+date: "2021-10-05"
+last_updated: "2021-10-05 16:49:38"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "鄒幸彤"
+url: "https://web.archive.org/web/20211204042225/https://hkcnews.com/article/46163/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46163/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽惑參與六四案】鄒幸彤自行抗辯指涉案文章不屬煽惑　警禁集會違憲
+
+現因被控煽動顛覆國家政權罪還柙的前支聯會副主席鄒幸彤，被指宣傳及呼籲市民參與今年六四集會，被控煽惑他人明知而參與未經批准集結罪，案件今日開審。鄒幸彤自行抗辯，表明她在網上發佈的文章不屬煽惑，指警方禁制集會的決定違憲，及檢控限制她的言論及集會自由。鄒提出需時在獄中參考法律書籍，裁判官一度問：「（監獄）有冇得上網㗎？」
+
+犯人欄內的鄒幸彤今繼續穿印有米奇老鼠圖案的白色T恤，外面披淺綠色外套，帶笑意的雙眼頻頻望向公眾席。控方由外聘大律師黃錦卿代表，右邊的辯方律師桌則空無一人。開庭時裁判官陳慧敏詢問鄒：「點解今日你冇律師代表嘅？我見你上幾堂都有。」本身是大律師的鄒幸彤聞言輕快謂：「之前我申請保釋吖嘛，審訊我想自己做返。」
+
+<figure>
+<img src="https://web.archive.org/web/20211204042225im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/六四32-鄒幸彤-20210607150904_172e_large.jpg" alt="">
+<figcaption>鄒今年六月因被指宣傳及呼籲未經批准集結被捕，及後獲准保釋，至七一前夕再被捕，被控「煽惑他人明知而參與未經批准集結罪」。</figcaption>
+</figure>
+
+鄒幸彤在陳官查詢下表示，仍未收到控方開案陳詞及「同意案情（admitted facts）」文件。陳官指出，控辯雙方原定應在9月29日將本案「同意案情」交予法庭，但至昨天仍未收到，著書記聯絡早前代表鄒的大律師張耀良後，方知她準備自辯。鄒稱數星期前已通知控方有關資訊，不知為何控方未有就「同意案情」聯絡她。陳官指出，代表鄒的律師樓並無通知法庭。
+
+庭上討論透露，控方指控鄒透過在FB、Twitter及明報發表的文章作出煽惑，陳官問鄒在本案將採用什麼爭議點。鄒首先表明爭議涉案文章的意思不屬煽惑，其次是警方禁制集會的決定是否違憲，最後是本案的拘捕及檢控是否限制她的言論及集會自由。鄒同時表明，她並不爭議自己曾發佈有關文章。
+
+> 鄒幸彤立場：   
+ ⚫️涉案文章的意思不屬煽惑   
+ ⚫️警方禁制集會的決定違憲   
+ ⚫️本案的拘捕及檢控限制她的言論及集會自由
+
+
+### 官：被告的爭議點屬政治範疇法庭不需考慮   
+ 鄒：警方的禁制是否有合法目的屬法律問題
+
+陳官引述黃之鋒2014年公民廣場案的終院案例指，法庭不會辯論政治，只會依據法律裁斷事實，指出鄒的爭議點屬政治範疇，並非法庭需考慮的要項。鄒反駁指，法庭需考慮警方的禁制是否有合法目的，「呢個係法律嘅問題。」
+
+陳官問鄒是否只有法律爭議，沒有事實爭議。鄒不同意，認為爭議發表文章的意圖，亦屬事實爭議之一。陳官回應：「冇人知你點諗，除非開咗你嗰腦，或者你上庭，我聽你點講，最後法庭推論作出裁斷。」
+
+陳官表示，既然鄒不爭議控方案情，案件可直接去到中段陳詞的階段，繼而裁定案件表證是否成立。陳官解釋至一半，突然謂：「其實我都唔需要同你講，你係大律師。」
+
+<figure>
+<img src="https://web.archive.org/web/20211204042225im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/六四集會-鄒幸彤-20211005123843_238f_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 官：監獄入面邊度搵法律書籍？
+
+鄒表示需要一至兩星期時間在獄中參考法律書籍，以準備書面陳詞，陳官聞言詢問：「你喺監獄入面邊度搵法律書籍？」鄒笑言：「都係靠記憶，或者朋友可以幫手。」陳官追問：「有冇得上網㗎？」公眾人士聞言哄堂大笑。
+
+此時「阿牛」曾健成突然從公眾席站起舉手謂：「早晨法官，希望審訊可以有張枱畀佢（鄒）睇文件。」陳官見狀未有制止，回應謂：「你放心，我會安排。」
+
+### 旁聽人士：「佢會走呀，佢一定會逃走呀。」
+
+鄒用休庭時間閲畢文件後，陳官再開庭時詢問懲教人員：「如果而家畀被告出嚟，人手安排會唔會緊張？」公眾席再傳出笑聲，有人打趣謂：「佢會走呀，佢一定會逃走呀。」鄒獲准坐在右邊的辯方律師席，她不同意「同意案情」部份內容，表示案情中支聯會向警方申請集會通知書的情節，與本案無關；即使相關，寫法亦不正確。控方表示可與鄒商議有關內容，「睇下可唔可以寫得中性啲」。
+
+控辯雙方經休庭商議後，控方表示「有少少進展」，惟由於鄒要求控方舉證支持部分段落的內容，故需傳召一名警司及一名負責撿取證物的警員出庭作供。由於錄取口供需時，鄒亦需要時閱讀有關證供，陳官押後案件至明早續審。
+
+### 鄒：「多謝大家過嚟呀！」   
+ 公眾：：「我哋會等你出嚟㗎！」
+
+散庭時，有旁聽人士大叫：「平反六四！」鄒聞言歪著身子，微笑著輕輕回應：「平反六四！」她後來又舉拳高叫：「結束一黨專政！」臨入犯人欄時，她凝望留下來的旁聽人士，說：「多謝大家過嚟呀！」有人隔着玻璃幕高叫：「我哋會等你出嚟㗎！」
+
+被告鄒幸彤被控一項煽惑他人明知而參與未經批准集結罪，指她於今年5月29日至6月4日期間，非法煽惑其他身份不詳的人，參與未經批准的公眾集結。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204042225/https://hkcnews.com/aboutus/#subscribe)

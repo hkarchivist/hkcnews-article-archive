@@ -1,0 +1,78 @@
+---
+title: "匿名七十後對〈一封來自九十後的匿名信〉回應"
+date: "2019-06-14"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "九十後"
+  - "包圍立法會"
+  - "七十後"
+url: "https://web.archive.org/web/20211025174553/https://www.hkcnews.com/article/21293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 匿名七十後對〈一封來自九十後的匿名信〉回應
+
+<figure>
+<img src="https://web.archive.org/web/20211025174553im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/包圍立法會-楊軍-逃犯條例-20190614031325_4d7c_large.jpg" alt="">
+<figcaption>照片來源：楊軍牧師攝</figcaption>
+</figure>
+
+**（編者按：黑色字是〈一封來自九十後的匿名信〉原文，紅色字是匿名七十後回應。照片為編者所加，並非撰寫原文的九十後青年。）**
+
+【撰文：匿名七十後】
+
+我相信於這一刻，許多九十後以至零零後都面臨心理崩潰的狀態。 因為我們又一次成為了備受社會各方責備的一群「暴徒」。
+
+作為曾經年輕過的七十後，我們心裡也不好過， 因為我們無法完全理解你們的各種行為。
+
+我明白社會各界對逃犯條例甚至昨天的集會有著不同的看法， 但我懇請社會各界停止對年輕人的責備，並稱呼我們為「暴徒」。 這個稱呼對於我們的傷害難以想像， 特別是由香港行政長官的口中說出。 若果你真的認為你是我們香港年輕人的母親，懇請你三思這稱呼。 因為我相信於這世界上，無論其兒女有多反叛或任性， 並沒有一個母親會以如此狠毒的言語來形容其兒女。
+
+我也明白年輕人對逃犯條例的訴求， 但以粗暴的方式堵塞佔據交通要道、 自制各種不同類型武器衝擊立法機關等場地，除了以「暴徒」 來形容你們，我找不到一個更恰當的名詞。 這種暴力抗爭令社會年輕一代產生一種錯覺， 就是訴求的終極手段只能透過暴力解決。至於特首的比喻， 她是以母親的身份說出關愛孩子的行為，這是她的個人感受， 她沒有說過自己是全港七百萬人的母親。 作為香港特區的最高決策人， 她所作的每一個決定肯定不能滿足所有人。面對你們「不守法、 不合作、不討論」的行為，我認為決策者對你們已經相當包容。
+
+其實我們走出來是需要很大的勇氣，不單止要背負著家庭的壓力， 還要面對著前途盡毀的風險，甚至政府和社會各界的指責。 但是我們仍然要那麼愚蠢地走上街頭，承受著一切的風險和壓力， 向政府作出我們的訴求，只因我們愛香港，只因我們在乎。
+
+你們顛覆社會，影響大部分市民日常生活當然需要很大的勇氣。 但請不要以「愛香港」作為藉口，大部分在社會默默工作、 辛苦經營的人們卻因為你們的「愛」受到影響。 你們的前途可以是一片光明， 但你們卻選擇這種手段向政府表達訴求。 你們是否一定要以暴力爭取不可？你們創意無限， 能否整合一個社會大眾能夠接受的方法爭取？
+
+我們年紀尚輕，或許與香港共同經歷的並沒有上一代那麼豐富。 我們的這份愛並不建立於香港為我們帶來的財富或地位， 而是建立於身邊的人和事。 我們與社會的聯繫建基於一段段的關係和當中的感情。 當我們發現香港人的聲音甚至生命不被尊重時，我們感到恐懼， 同時亦感到我們心目中的香港正一步步地被改變。 我們懷念暢所欲言的自由風氣，我們珍惜屬於香港的獨有文化， 我們仍奢望擁有一個尊重香港人聲音的政府。
+
+你說你們對香港的愛「並不建立於香港為我們帶來的財富或地位， 而是建立於身邊的人和事」，我想每個人對愛的定義也不盡相同。 如果徹底破壞年長一輩多年為香港建立的繁榮與穩定也算是愛的話， 那麼社會與你們的關係似乎是互相排斥。 我不禁想問你們與社會的聯繫和感情，是建基於何種關係？「 暢所欲言的自由風氣」在香港仍然存在， 但在任何一個文明社會也不會接受以暴力行為來表達自由。 請你們不要把自由無限擴大，如果自由不受約束， 社會的秩序就蕩然無存。
+
+這就是為什麼我們不惜一切，都要走上街頭，捍衛屬於我們的家。
+
+請不要把影響社會安寧說成捍衛，你的所謂「捍衛屬於我們的家」， 某程度上是在破獲大家一起辛苦建立的家園， 摧毀一切得來不易的成果。
+
+政府連日來的態度、言語、咀臉，都令我們厭惡。「沒有半點心虛」 這一切只令我們不寒而慄。
+
+年輕人對持不同意見人們的指罵、行為、 意識形勢都令我們作為年長一輩感到失望。我們反思我們的過失， 嘗試理解你們的控訴， 換來的卻是一連串對社會各階層構成實質及精神層面的破壞。 你們行動前也「沒有半點心虛」， 因為你們把這些不被社會大部份人士認同的行為， 包裝成對香港的愛。
+
+其實，上一代的批評與指罵只會把我們帶來傷害甚至推向絕望， 令到我們許多年輕人感到非常無力和孤獨， 所以我再次懇請社會各界停止對我們的指責。 就算你們多不同意我們的作為， 亦懇請你們不要作質疑我們熱愛香港的心。二十來歲的我們， 真的承受不起這個社會對我們的離棄。
+
+誠然，我們從來也沒有離棄你們，我們嘗試以不同方法了解你們， 希望能夠解決你們的訴求與煩惱。 但熱愛香港是否非要透過這種上街暴力抗爭的方式不可？ 更可悲的是，你們以為愛就可以無視一切法紀。 現代文明社會的最大特質就是通過大眾討論達成共識。 社會上具爭議性的議題從來都不會達至百份百的同意， 政策施行者能夠做的就是權衡各方利益， 盡最大努力提供大部分人能夠接受的方法。
+
+六月十三日早晨，香港人如常上班上學，一切彷彿回復平靜。 這就是一天的抗爭所換來的嗎？
+
+經過六月十二日漫長的一日，香港的撕裂已經達至極點。 你們帶來的所謂抗爭，不單影響在周遭工作及生活的人， 更令大部分在這片彈丸之地營營役役， 沉默不語生活的人們感到更加無力。 因為你們把大家辛苦建立的價值一手摧毀。
+
+我不求什麼， 只希望廣大市民若果於今天在街道上碰見任何身心疲累的年輕人， 希望你們能跟他們說一聲加油。就算你多不同意年青人的行為， 至少讓他們感受到這個家的溫暖。這聲「加油」對我們來說， 真的意義非凡。
+
+如果我有機會碰見年輕人，我會向他們說「辛苦了， 但請不要破壞我們的香港。」我們對你們的愛，從來沒有減少。
+
+至少，你還在乎。   
+ 加油，共勉之。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025174553/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211025174553im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

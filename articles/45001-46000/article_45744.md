@@ -1,0 +1,99 @@
+---
+title: "鄒幸彤發公開信反對支聯會自行解散　不願港人抗爭歷史被弱化為零星個人反抗"
+date: "2021-09-23"
+last_updated: "2021-09-23 20:39:19"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "鄒幸彤"
+  - "支聯會"
+  - "六四紀念館"
+url: "https://web.archive.org/web/20211027134933/https://hkcnews.com/article/45744/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45748/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45744/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45748/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鄒幸彤發公開信反對支聯會自行解散　不願港人抗爭歷史被弱化為零星個人反抗
+
+支聯會將於周六（25日）舉行特別會員大會表決解散動議，還押中的支聯會副主席鄒幸彤發公開信，坦言自己選擇莫失莫忘、堅守到底，即使承受四條關於支聯會及六四的控罪、漫長牢獄生涯的脅迫，但更重視這場政治審判的運動能量，以及港人抗爭歷史的組織維度，會否被政權弱化為零星個人反抗。
+
+她認為自行解散與當局剔除註冊差別很大，自行解散必然對運動造成挫折，令日後工作更難展開。她仍期望能夠有機會向世界闡明支聯會的理念，繼續這場已堅持32年的運動。她形容支聯會正面對創立以來最大危機及抉擇，征途「被終結」還是轉入新篇章，就看會員大會的決定。
+
+<figure>
+<img src="https://web.archive.org/web/20211027134933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/鄒幸彤-20210923203235_28d2_large.jpg" alt="">
+</figure>
+
+對於支聯會主席李卓人及前副主席何俊仁日前發表公開信，呼籲成員支持解散支聯會。鄒幸彤表明，仍然持不同意見，亦看不到主動解散支聯會，對繼續理念有任何幫助。她透露收到一個令人擔憂的傳聞，稱六四紀念館已被設置針孔和偷聽器，反對解散者可能被秋後算帳等，但認為「放出如此風聲，正正說明他們對支聯會的道義力量是如何害怕。」
+
+她說理解憂慮，自從國安上門掃蕩紀念館後，認為該處已不再是一個可以安全討論的地方。「我只遺憾自己身在獄中，無法給出一個解決這個困局的辦法，若然會員們因為人身安全的考慮，無法出席會員大會，或無法在會上發言，或無法按自己真實的意願投票，我亦十分理解。」
+
+支聯會常委會上月23日通過啟動解散程序，將於本周六召開特別會員大會表決議案，有關決議須獲得出席並參與表決的四分之三成員支持方屬有效。李卓人及何俊仁因前年反修例非法集結案被判入獄，二人日前在獄中發信呼籲成員支持解散支聯會，信中指「就當前的社會環境，我們認為支聯會最好的處理方案，就是主動解散。」兩封信件由電腦列印，內容相同，李卓人及何俊仁分別於信上簽署及填上日期。
+
+<figure>
+<img src="https://web.archive.org/web/20211027134933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/何俊仁-支聯會-李卓人-20210923203628_af67_large.jpg" alt="">
+<figcaption>支聯會主席李卓人及前副主席何俊仁早前發公開信，呼籲成員支持解散支聯會。</figcaption>
+</figure>
+
+### 【鄒幸彤致支聯會成員團體公開信（前）】
+
+各位會員：
+
+在這艱巨時刻，辛苦大家了！
+
+支聯會創立32年，歷經風風雨雨，始終屹立不倒。從成立之初，我們就被政權定性為顛覆組織，現在這指控則以法律之名正式落到我們的頭上來了。時勢如此，經過風浪的會員們都不會驚訝，我們一起沉著應對吧。
+
+今天，支聯會作為香港第一宗「煽顛罪」的第一被告。相信「被宣告」為非法組織也是早晚之事。一旦定罪，當局可引用國安法第31條責令支聯會停止運作，吊銷註冊。然而，政權已迫不急待說要引用《公司（清盤及雜項條文）條例》剔除支聯會的公司註冊了，甚至已強令刪除了我們的網站和社交媒體平台。
+
+如此情況之下，遺憾常委成員未能親身出席會員大會和眾會員一起分析時局、共商應否解散之事，故只能以此公開信函方式，與大家分享一些昔日常委會的考慮和個人現在的看法：
+
+早在8月初，即本人剛保釋出來的時候，便已聽到有中間人傳來風聲，稱「如不解散，後果嚴重」，並設下「一周死線」。在其後的一周裡，教協、民陣先後宣佈解散。可是，這些組織仍遭官媒公開地窮追猛打，指其解散不能逃避「罪責」。
+
+支聯會作為碩果僅存的、規模較大的民間組織，一方面非常憂慮這種恐慌性解散對民氣的打擊，不希望以自身行為助長恐懼蔓延。另一方面，亦對「解散救人」的所謂「承諾」存疑，認為自行解散後，只會讓當局的打壓更肆無忌憚。但是，面對強權的威脅，成員及伙伴們的即時安危，亦是我們必須考慮的。即使不能抹去往績，或許，解散、躺平、不再做事……可能會減低出現進一步衝突的風險。
+
+然而，形勢發展已讓我們不得躺平，必須繼續做事。當政權要求交出成員和活動等資料之時，我們必須據理力爭，並需要在保護伙伴與避免激怒當權者之間，作出選擇；當「支聯會」成為被告，在未來的審訊中，我們亦要在捍衞組織立場與自行消散之間，作出選擇；當一位又一位伙伴入獄，一個接一個組織解散，政權已選擇了全面殲滅，我們便要在堅持到底，還是俗稱的止蝕離場，作出選擇。
+
+**在這個選擇題上，我選擇了莫失莫忘，不離不棄，堅守到底。雖然我正承受著四條關於支聯會及六四的控罪和漫長牢獄生涯的脅迫，但我更重視的，是這場政治審判的運動能量，以及港人抗爭歷史的組織維度，會否被政權弱化為零星的個人反抗。這不僅對留下來堅持的人們，亦對香港公民社會的未來，影響深遠。**
+
+另一方面，如組織解散或可屬於國安法第33條下的「自動放棄或防止犯罪」， 對眾被告來說，可能是個減刑理由。不過，本人必須在此聲明，即使會員大會最終議決解散，個人亦絕不可能以此成為求情理由。當初我選擇在國安法下，仍出來參選，個人已有長期坐牢獄的心理準備。
+
+**過去32年來，相信大家與我一樣，不甘心放棄「五大綱領」、放棄為六四死難者討回公道、放棄與天安門母親一起同行，爭取公義與民主。當然，最後不管大家如何選擇，我均甘之如飴。但是「自行解散」必然對運動造成一定挫折，令日後工作更難展開。而我仍期望能夠有機會向世界闡明支聯會的理念，繼續這場已堅持了32年的運動。**
+
+大家自然會問，即使不「自行解散」，當局剔除法律上的註冊，結果不是一樣嗎？ 不，大不一樣。是自行決定中止運動，抑或只是「被取消」，差別大了。
+
+法律註冊的身份不過是軀殻，某些時候更是政權給予公民社會的枷鎖，更何況是威權體制，怎會讓公民團體正常運作呢？！因此，在極權之下，過去不少公民團體也會在沒有註冊的情況下，繼續堅持為公義發聲的。這就是「民心不死，抗爭仍在」 的爭取民主必然態度。
+
+個人認為，對仍要在這裡生活的人而言，放棄抗爭不是選項。得道者多助，相信選擇繼續堅持，定必有更多的同路人走到我們身邊，起碼本人可以承諾，只要大家鬥志尚在，我仍願意在崗位上，戰鬥到底。
+
+支聯會正面對創立以來最大的危機及抉擇。我們的征途是就如此「被終結」，還是轉入一個新篇章，就看大家在會員大會的決定。最後…… 衷心感謝大家今日的承擔，更感恩有幸一起同抗爭、共命運、爭民主！
+
+<figure>
+<img src="https://web.archive.org/web/20211027134933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/支聯會-六四紀念館-20210916143824_96d4_large.jpg" alt="">
+<figcaption>資料圖片</figcaption>
+</figure>
+
+### 【鄒幸彤致支聯會成員團體公開信（後）寫於李卓人、何俊仁公開信後】
+
+我寫下了上述給會員的信，才收到阿人和仁哥的公開呼籲。
+
+請讓我坦白說：我仍然持不同意見，亦看不到主動解散支聯會，對繼續我們的理念有任何幫助。
+
+面對的危機越大，更需要沉著分析每個選擇的利弊。政權已經全面亮劍，在這關口才「配合」其行動，不可能換到任何「好處」。
+
+**或許法律意義的解散最終不可避免，可是自行解散，卻會立即且不可逆地令支聯會失去聲音及話語權，斷絕以支聯會之名繼續抗爭的任何可能，** 更詳細的理由，在前文中已有所述。
+
+看兩位在公開信中的表述，覺得二人或許有另外的考慮，沒法在公開信中言明。我對兩人的經驗和判斷甚為信任，但我仍無法說服自己主動解散是一 個「好」選項，遑論「最好處理」。
+
+這是牢獄帶給我們的考驗：無法暢順溝通，制定共同對策，只能如此隔空交流，中間還充滿時差。但一個民主組織，應該是這樣吧：有不同信息和意見的交流、碰撞、辯論、互相遊說，然後開會共同決定。可惜我無法親自出席會員大會，但個人仍希望給大家多一個可能：請反對解散議案，給支聯會一個機會繼續走下去。
+
+**但我也收到一個令人擔憂的傳聞，稱紀念館已被設置針孔和偷聽器，以及反對解散者可能被秋後算帳等等。他們要放出如此風聲，正正說明他們對支聯會的道義力量是如何害怕。我理解這是個真實的憂慮。因為自從國安上門掃蕩紀念館後，那兒確實已不再是一個可以安全討論的地方。我只遺憾自己身在獄中，無法給出一個解決這個困局的辦法，若然會員們因為人身安全的考慮，無法出席會員大會，或無法在會上發言，或無法按自己真實的意願投票，我亦十分理解。我相信大家定能找到其他方法，表達對支聯會工作的支持。**
+
+你們的堅持，會是獄中人最大的力量。 謝謝大家！
+
+彤
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027134933/https://hkcnews.com/aboutus/#subscribe)

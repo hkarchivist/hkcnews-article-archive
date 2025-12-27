@@ -1,0 +1,56 @@
+---
+title: "蓬佩奧中國政策顧問余茂春：特朗普的中國政策理念和操作難逆轉"
+date: "2020-11-17"
+last_updated: "2020-11-17 12:18:07"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中美關係"
+  - "美國之音"
+  - "余茂春Maochun Miles Yu"
+url: "https://web.archive.org/web/20210726125400/https://www.hkcnews.com/article/35651/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDmaochun_miles_yu-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35658/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35651/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDmaochun_miles_yu-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35658/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 蓬佩奧中國政策顧問余茂春：特朗普的中國政策理念和操作難逆轉
+
+<figure>
+<img src="https://web.archive.org/web/20210726125400im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/中美關係-余茂春Maochun%20Miles%20Yu-蓬佩奧-20200721120618_29fb_large.png" alt="">
+<figcaption>余茂春（右）與蓬佩奧。資料圖片</figcaption>
+</figure>
+
+美國國務卿蓬佩奧的首席中國政策及規劃顧問余茂春接受《美國之音》訪問時說，即使拜登入主白宮，特朗普的對中國政策主要理念和操作方式將難以逆轉。他稱，「中共每天都在證明我們這些重新認識的理念是正確的」。
+
+《美國之音》網頁刊載長篇署名報道 [〈專訪余茂春：不管誰當總統，特朗普對華政策理念不可逆轉〉](https://web.archive.org/web/20210726125400/https://www.voachinese.com/a/trumps-china-policy-miles-yu-pompeo-adviser-lagacy-20201116/5664909.html) ，引述這位1994年獲加州大學柏克萊分校歷史學博士、之後擔任美國海軍學院現代中國和軍事史教授的中國政策專家稱，在中共的行為沒有根本改變的情況下，根據其行為重新認識的對華政策理念和方式也沒有改變的理由，他說：
+
+> **不管誰當總統，他畢竟是美國的總統，他一定是按照美國人民的利益來考慮。這是美國民主共和兩黨的共識。**
+
+報道引述余茂春表示，對中國政策在特朗普政府外交政策中佔據頭號地位。
+
+> **如果幾十年後看特朗普政府最大的成就，其中很顯然是本屆政府領導全世界對中國共產黨統治的中國有了重新的戰略上的定義。**
+
+> **特朗普政府對華政策最大的成就是在政策理念上有了根本改變。**
+
+### 三大理念 拋打中國牌
+
+《美國之音》說，余茂春提到三大理念：拋棄打「中國牌」、拋棄以接觸為中心、認清中共不等於中國人民。第一，拋棄自尼克遜政府以來幾十年實行的打「中國牌」策略，明確指出中國是美國國家安全的最大威脅。余茂春說，「我們不是通過打中國牌去獲取另外一種戰略目標，而就是針對中國來制定我們的對華政策。所以中國再也不會是美國戰略中的一個過客」。
+
+第二，余茂春指，接觸政策沒有改變中國，卻讓「中共通過接觸政策想來改變美國甚至全世界」；過去的接觸政策中所謂「求同存異」是非常危險的，往往為了經濟利益而犧牲了「像人權、社會制度、政治制度等方面所謂的『異』」，即普世價值觀。
+
+第三，余茂春說：「本屆政府劃清了中共和中國人民不是一回事，中共不等於中國人民那麽一個概念。」
+
+### 杜絕特殊利益集團
+
+報道引述余茂春稱，這些理念是基於對中共政權本質的認識而作出的，基本上是不可逆轉的，因為「這不僅是美國的什麽策略，中共每天都在證明我們這些重新認識的理念是正確的」。他又指，特朗普政府的對華政策並非不跟中國接觸，而是以不同於以往的方式接觸。那就是前提是對中共不表信任，而且雙方要對等，行事以結果為導向，還要坦誠透明。「我們以不相信中共的承諾為基礎，但要求中共自己根據實際情況來核實，也就是所謂的Distrust And Verify」，因為「中共在香港問題上、國內的人權問題上、南中海問題上等等一系列問題上，基本上是不誠實的」。
+
+《美國之音》說，余茂春讚揚特朗普政府秉持原則性的現實主義，指責歷屆美國政府對華政策制定中受到特殊利益集團和外國代理人的影響，他說：「比如對華政策制定過程中，華爾街，還有美國以前的高官和政客現在投身做中共代理人的這些人，對美國對華政策的制定有非常巨大的影響。」他稱特朗普政府基本上杜絕這些特殊利益集團和外國代理人對華政策的制定和影響。
+
+> **這一點我身臨其中，有非常深刻的感觸。無私才能無畏，才能看到像蓬佩奧國務卿所做的非常有前沿性的而且非常大膽的對華政策，因為沒有受到特殊利益集團的控制和操作。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726125400/https://www.hkcnews.com/aboutus/#subscribe)

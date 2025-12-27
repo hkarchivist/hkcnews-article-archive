@@ -1,0 +1,50 @@
+---
+title: "立會選舉提名未開波　中聯辦先半公開操盤"
+date: "2021-10-29"
+last_updated: "2021-10-29 22:10:52"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "中聯辦"
+  - "西環"
+  - "民建聯"
+  - "民建联"
+  - "DAB"
+  - "民主建港協進聯盟"
+  - "Democratic Alliance for the Betterment and Progress of Hong Kong"
+  - "立法會選舉"
+url: "https://web.archive.org/web/20220125200949/https://hkcnews.com/article/47061/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47065/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47061/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47065/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 立會選舉提名未開波　中聯辦先半公開操盤
+
+
+{{< video src="https://web.archive.org/web/20220125200949if_/https://www.youtube.com/embed/jIlrdzzs9hI" >}}
+
+
+### [【香港這一天】結集](https://web.archive.org/web/20220125200949/https://bit.ly/2Cj8v4t)
+
+新一屆立法會選舉提名期明日開始， 民建聯及工聯會今日分別拍板參選名單。根據傳媒報道， 國務院港澳辦主任夏寶龍上周末南下深圳，會見建制派核心人士， 為未來4年立法會的組成「定調」。 特首林鄭月娥周二見記者時不評論傳聞， 但指中央既然做了修改選舉制度的重大舉措， 當然很關心落實過程中，是否不會出現問題， 以及要求任何公開選舉須做到公平、公正、誠實和廉潔。
+
+過去兩日，有建制派人士進入中聯辦， 建制派兩大黨今日才敲定參選名單，中央半公開操盤十分明顯， 先大幅修改遊戲規則，再揀選參選人士，這豈只是林鄭口中的「 關心」？
+
+反修例風暴後，中央先實施港區國安法， 再對實施24年的香港選舉制度進行大手術，，落實「愛國者治港」 ，整套沿自殖民地時代， 以地區直選及功能組別間接選舉的選舉制度大變身， 將選舉委員會增加人數並擴大功能，掌控提名權， 在制度上讓中央透過中聯辦「協調」參選具體名單，所謂就選舉「 定調」，是指是否容許真正競爭、或只可以有「可控的競爭」，即「 做做樣」的競爭，甚至是等額選舉。
+
+夏寶龍南下深圳通知中央決定，中聯辦再逐一邀請相關人士， 估計是通知中央的參選名單安排。新時代下新選舉是中央從劇本、 分配角色，是一手包辦的「一條龍」選舉，獲中央「祝福」 的候選人只須按劇本演出。
+
+中央出組合拳重建香港新秩序，由愛國者治港，帶領香港由亂入治， 再重現興盛，所謂「唔衰得」。中央先將「反對派」清零，再清理「 忠誠的廢物」，換上較年輕、具戰鬥力新血。民建聯派出18人出選 ，包括10個地區直選選區，當有4個屬新人，柯創盛、蔣麗芸、 梁志祥及黃定光不角逐連任。
+
+地區直選每區有兩席，民建聯相信穩取一席， 其餘一席由工聯會及其他建制派與民主思路與新思維等「第三道路」 競爭。根據建制圈子引述消息，中央希望有競爭， 選委員選出的40席不會成為等額選舉，地區直選可能出現兩個建制 對一個「非建制派」的格局。
+
+泛民大小政黨將不會派人參選，「非建制派」 相信只剩下狄志遠及湯家驊等及其團隊，能否取得足夠提名， 決定權在中央。中央不封殺，他們才有一線機會入閘， 能入閘亦不代表可取得泛民選民的票，取決于有多少泛民支持者「 含著淚」投票，不想建制派全取地區20席， 在不心甘情願下投狄志遠及湯家驊等標榜的「第三道路」。
+
+泛民全線「躺平」，在選舉中不會有角色，泛民選民投票意欲近乎零，當中不少視狄志遠及湯家驊等所說的「第三道路」是建制B隊，現階段估計，真正會出來投票的並不會太多，最終恐怕是「陪跑」。新立法會增至90席，官員和建制派強調不搞「清一色」，建制派也有不同聲音，有人真的相信「謊言說上一百次便變成事實」 ？
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20220125200949im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

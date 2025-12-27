@@ -1,0 +1,49 @@
+---
+title: "港府預留80億國安「維穩費」　陳茂波避答愛黨"
+date: "2021-02-24"
+last_updated: "2021-02-24 18:58:48"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "港版國安法"
+  - "財政預算案2021"
+url: "https://web.archive.org/web/20210805050622/https://www.hkcnews.com/article/38486/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38499/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD80%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38486/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38499/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD80%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港府預留80億國安「維穩費」　陳茂波避答愛黨
+
+政府在新一份《財政預算案》的賬目中披露，預留80億元作為「未來數年」維護國家安全的開支及相關人事編制，但財政司司長陳茂波在演詞中並無提及，也無提供詳情。
+
+今次是港府自國安法去年6月30日生效後，公眾首次得悉有關開支，陳茂波承認在去年12月已經批出撥款，但解釋今年2月已經在2020/21年支付及入賬（ [PDF第11頁](https://web.archive.org/web/20210805050622/https://bit.ly/3dIqJPg) ），來年毋需再撥款。
+
+陳茂波在記者會上，被多次追問「未來數年」到底是幾多年、如何衡工量值判斷成效、還有什麼部門獲撥款。他只是確認中聯辦主任駱惠寧列席的國家安全委員會曾經「睇過」數據，自己也當然有參與編制，其他詳情不便多說。
+
+陳茂波說：「在好多唔同地方，涉及國家安全開支都係一個機密資料，我只能說我會按國家安全法內的要求，在今年內有資料交給立法會。」
+
+<figure>
+<img src="https://web.archive.org/web/20210805050622im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/財政預算案2021-國安法-20210224170216_153c_large.png" alt="">
+<figcaption>政府在2月底將國家安全非經常撥款入賬，鬼祟避過在預算案文本中披露。</figcaption>
+</figure>
+
+80億元的預算有幾多？數值上，相等於整個政府2021年度政府開支預算1.2%，但政府預留採購病毒疫苗計劃預留了84億元，整個寬免個人利得稅、差餉、水費排污費等支持企業措施，則預留了95億元開支。
+
+根據國安法第19條，財政司司長經特首批准後，由政府收入中撥出非經常性的專門款項支付維護國家安全的開支及人員編制，不受香港法律規定的限制。財政司司長須每年就該款項的控制和管理向立法會提交報告。陳茂波無回應何時向立法會提交報告。
+
+曾經觀望是特首潛在人選之一的陳茂波三度避答「愛黨」爭議，雖然記者多次追問，他只是當聽不到，連不予評論都無提及。
+
+陳茂波在預算案中，大談香港的優勢定位，包括重申香港在「國家的發展大局中角色獨特，無可替代」，包括要協助內地安全有序地推進金融開放，以支持國家的實體經濟發展。
+
+他在結語中，形容香港的深層次矛盾不可能瞬間解決，傷口需要時間復元，他寄語：「結無論綁得多緊，總有解開的方法。讓時間給我們解決問題的空間。」
+
+被問及有關說法是否要染指特首，陳茂波說只是「單純地」反映預算案諮詢過程中的心路歷程，目前首要工作是防疫抗疫，及部署經濟恢復。
+
+（17：00更新陳茂波回應）
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805050622/https://www.hkcnews.com/aboutus/#subscribe)

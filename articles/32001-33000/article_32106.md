@@ -1,0 +1,55 @@
+---
+title: "【認暴動罪】還柙青年阿均獄中信：遇見大隻勇武、書生手足，都係有血有肉嘅人"
+date: "2020-07-19"
+last_updated: "2021-02-02 18:30:18"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "赤柱監獄"
+  - "國安法"
+url: "https://web.archive.org/web/20210726122041/https://www.hkcnews.com/article/32106/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37777/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32106/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37777/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【認暴動罪】還柙青年阿均獄中信：遇見大隻勇武、書生手足，都係有血有肉嘅人
+
+去年7月28日，有44人被指在上環干犯暴動罪，25歲的阿均（化名）是其中一位。今年5月尾，他於庭上表示擬認罪並要求取消保釋，至今已還柙近2個月。阿均回信眾新聞講述近況以及對港區國安法的看法。
+
+阿均說，在獄中遇到形形式式的人，譬如跟大隻「真勇武」練體能、遇到讀政政（政治與行政學系）的本土派跟他分享《金剛經》。6月底，他從荔枝角收押所被調到赤柱監獄：「中間隔咗十幾日先再收到家書，嗰段日子，雖然我表面冇嘢，但我內心係幾崩潰。」至於國安法，他說「樂見」攬炒，並籲打好文宣戰。
+
+相關文章： [25歲青年承認暴動罪：牆外比牆內，更沉重難過](https://web.archive.org/web/20210726122041/https://www.hkcnews.com/article/30295/%E8%AA%8D%E7%BD%AA-728%E4%B8%8A%E7%92%B0%E8%A1%9D%E7%AA%81-%E6%9A%B4%E5%8B%95%E7%BD%AA-30347/25%E6%AD%B2%E9%9D%92%E5%B9%B4%E6%89%BF%E8%AA%8D%E6%9A%B4%E5%8B%95%E7%BD%AA%EF%BC%9A%E7%89%86%E5%A4%96%E6%AF%94%E7%89%86%E5%85%A7%EF%BC%8C%E6%9B%B4%E6%B2%89%E9%87%8D%E9%9B%A3%E9%81%8E)
+
+<figure>
+<img src="https://web.archive.org/web/20210726122041im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/赤柱監獄-728上環衝突-暴動罪-20200719171817_2dfb_large.jpg" alt="">
+<figcaption>眾新聞製圖。（左圖攝於阿均認罪還柙前）</figcaption>
+</figure>
+
+以下是阿均的來信全文：
+
+還柙咗一段小日子，仍然對呢度感到有少少新鮮，彷彿被人掟咗入個新世界，而我當然唔係呢個世界嘅人。入到嚟遇到各式各樣嘅人，有詐騙、傷人 (有啲即係私了)、(903播緊數碼暴龍01日文主題曲，好正!) 醉駕、毒品、打劫……當然有背景嘅人仍然係大多數，政治犯 (入面統稱「黃絲」，縱然我唔會咁稱呼自己) 只係少數，所以有「他鄉遇故知」之時，絕對感到欣喜。有遇過大隻嘅真勇武，跟佢做咗一轉體能，我彷似係水中被人撈出嚟咁，而佢仲可以繼續做多轉。亦遇過本土派，讀政政的，無所不談，係一個流動圖書館，今日佢就向我分享《金剛經》。
+
+初見面時，傾起大家衰邊單，發現當日上報紙嘅人活生生出現起我面前，我除咗有「哦 ! 原來係你 !」嘅反應之外，亦會有「被捕嘅唔係數字，而係有血有肉嘅人」嘅感慨，真係好近，而「這事每日也發生」(呢首歌好見血)。又有見過拎氣槍指住警察嘅，自稱「黃絲」，claim 612每月九千蚊私飯錢，轉頭就扔咗份「解悶工廠」，應該都只係因為情緒失控而犯案，佢係有少少躁狂。入面真係乜人都有。
+
+與外界聯繫嘅方式，只有探訪同埋書信。有段時間因為我調離荔枝角，中間隔咗十幾日先再收到家書，嗰段日子，雖然我表面冇嘢，但我內心係幾崩潰。不幸之中嘅小幸係有筆友經議員回信 (因議員信件特別處理，所以仍能收到)，同埋我晚晚都翻睇舊信，勉強叫做補到少少血。除此之外，基本上還柙生活都尚算「愉快」。
+
+講下國安法，「香港人驚驚 ! 國安法殺埋嚟我驚驚 !」睇新聞見到大家不斷避紅線，又有唔少專業人士分析點先踩線，但紅線變得快過武漢肺炎，自由嘅淨土只會愈來愈少，「今日割五城，明日割十城，然後得一夕安穩。」你又避得去邊? 中共空降國安公署，有指引監督香港國安事務之職能，結果只會好似果張紅底文宣所畫，三個齒輪卡埋一齊，最終注定係攬炒。所以國安法係我「喜聞樂見」的，畢竟最出血嘅一定唔會係我呢啲no stake嘅人，波叔，你收成好未 ?
+
+「你在牢籠被引渡，渡往了啞巴的國度。」香港喺我眼中，其實已經淪陷咗，始終賴以維生，引以為傲嘅制度、自由、聲譽、保障已經一一消逝。無根之樹，焉能不倒 ? 所以我希望各位保留有用之軀，要記住極權最害怕嘅係文宣，因為勇武只能脅迫政權 (同埋製造畫面[sosad])，但文宣可以喚醒人心 ! 所以國安法主要係用嚟打文宣嘅，不費一兵一卒，就叫你親手撕走，攻心 ! 千祈唔好忘記你嘅信念同埋呢個時代嘅歷史，即使他朝移居海外，只要你仍然相當自由，你始終係呢個時代嘅香港人。
+
+身處白色恐怖，請揸緊你嘅中指。「你可以卑微如塵土，但不要扭曲如蛆蟲。」
+
+二零年七月五日午
+
+<figure>
+<img src="https://web.archive.org/web/20210726122041im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/暴動罪-728上環衝突-赤柱監獄-20200719170203_23d0_large.jpg" alt="">
+<figcaption>阿均從赤柱監獄寄來的信。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726122041/https://www.hkcnews.com/aboutus/#subscribe)

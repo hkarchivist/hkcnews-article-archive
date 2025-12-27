@@ -1,0 +1,92 @@
+---
+title: "【集會判監】歐美政界法律團體齊譴責　促釋放政治犯及停以公安條例打壓"
+date: "2021-04-16"
+last_updated: "2021-04-17 00:30:20"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "831"
+  - "八三一"
+  - "hong kong watch"
+  - "818集會"
+url: "https://web.archive.org/web/20210801170120/https://www.hkcnews.com/article/40366/818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831-hong_kong_watch-40371/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40366/818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831-hong_kong_watch-40371/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【集會判監】歐美政界法律團體齊譴責　促釋放政治犯及停以公安條例打壓
+
+2019年8.18和8.31兩宗未經批准集結案判刑，多名民主派人士判監，歐美政界、法律界及台灣政府都批評事件打壓異己及侵犯人權。國際律師協會人權研究所及英格蘭和威爾士律師協會人權委員會發表聯合聲明，譴責今次檢控及不合比例的定罪，「對行使和平示威而未履行程序要求者提出刑事控罪，是不必要、不合比例及容易被濫用。」
+
+聲明指，聯合國人權事務委員會多次關注港府用《公安條例》檢控和平示威者，做法侵犯受《公民和政治權利國際公約》保障的人權。
+
+因新疆事件中受中國制裁的國際律師協會人權研究所總監Helena Kennedy說，對民主派人士的判刑不公平及攻擊現代民主原則，促請各國加入譴責，並要求港府立即釋放被告和撤銷所有控罪。
+
+英格蘭和威爾士律師協會人權委員會主席Schona Jolly批評，以公安條例打壓和平示威是破壞香港基本人權，製造寒蟬效應，「表達意見和和平集會會導致入獄」。他們促請港府立即採取行動，落實和平集會及表達意見的自由。
+
+歐美多國政界人物 [透過「香港監察」（Hong Kong Watch）發聲明](https://web.archive.org/web/20210801170120/https://www.hongkongwatch.org/all-posts/2021/4/16/international-parliamentarians-condemn-todays-imprisonment-of-the-most-moderate-and-distinguished-pro-democracy-activists) ，促請各國政府制裁中國。美國眾議院議長佩洛西亦表示，對判刑感到悲傷和不安。台灣副總統賴清德指眾被告不是罪犯，而是真正的愛國者，總統府發言人張淳涵亦批評判決限制港人遊行集會的權利。
+
+政府晚上發聲明，批評有海外政客公開要求釋放已認罪或經審訊定罪的被告，對此感到驚訝。聲明指：「這些要求荒誕無稽，明目張膽違反國際法及不干預的基本原則。」
+
+### 彭定康：記住所有摧毁香港的人的恥辱
+
+末代港督彭定康狠批中共持續全面攻擊香港的自由和法治。他說：「中共根本不明白，不能夠透過威迫和監禁來令香港人擁護極權和貪腐的政權。」（The CCP simply does not understand that you cannot bludgeon and incarcerate people into loving a totalitarian and corrupt regime）他又指出所有縱容或參與摧毁香港的人，即使將來會持外國護照匆匆逃離香港，世人都會記住他們的恥辱。
+
+<figure>
+<img src="https://web.archive.org/web/20210801170120im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/09/彭定康-一國兩制-20170919182141_76b0_large.jpg" alt="">
+<figcaption>末代港督彭定康。資料圖片</figcaption>
+</figure>
+
+英國工黨的影子亞洲事務大臣Stephen Kinnock表示，今日是香港民主和自由的黑暗的一天，但盛讚9名被判刑的勇敢的民主派人士，「啟發了我們所有人」（the nine brave individuals who have been sentenced today are an inspiration to us all.）
+
+### 羅姆尼促港府釋放黎智英、李卓人等人
+
+美國共和黨參議員羅姆尼（Mitt Romney）呼籲當局立即釋放黎智英、李卓人和其他今日被判囚的民主派人士，又強調會與港人站在一起爭取自由、民主。他促請美國政府與盟友對中共施加有意義的制裁以支持港人。
+
+另一共和黨參議員斯科特（Rick Scott）則表示，今日的判刑完全不合理，批評中共總書記習近平試圖令相信自由的港人噤聲。他促請美國商界思考應否支持中國，又呼籲美國人民應該只光顧支持人權、拒絕與中國合作的公司。
+
+美國眾議院議長佩洛西在Twitter發文，表示對於李柱銘和其他民主派領袖因為和平示威而被判刑，感到悲傷和不安，認為這是又一件北京侵犯香港法治的事件。她表示美國國會將繼續專注於透過立法和外交努力，與盟友一起確保中國要對此負上責任，並支持香港維持法治與言論自由。
+
+<figure>
+<img src="https://web.archive.org/web/20210801170120im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/羅姆尼-20210416222047_258a_large.jpg" alt="">
+<figcaption>美國參議員羅姆尼。美聯社圖片</figcaption>
+</figure>
+
+來自香港的加拿大國會議員關慧貞，促請加國政府立即為懼怕遭受政治檢控的港人提供庇護。她說：「一國兩制已被釘死。這群自由鬥士的判刑，標誌今天是『東方之珠』失去靈魂的黑暗一日。」
+
+### 台灣政界譴責判刑  副總統賴清德：他們是真正的愛國者
+
+在台灣，副總統賴清德表示一眾被告不是罪犯，而是真正的愛國者。台灣總統府、行政院及陸委會等都對818和831未經批准集結案判刑做出回應，譴責北京當局侵害香港民主及人權；陸委會則呼籲港府釋放所有良心犯。
+
+總統府發言人張淳涵說，對於北京當局繼續侵害香港的民主及人權，再次表達高度遺憾和譴責，此一判決無疑將使香港人民集會遊行的權利受到大幅限縮。他說，人權是普世價值，再次呼籲北京當局，正視香港人民的主流民意，唯有與香港人民展開誠懇對話，才能化解爭議，讓香港社會回歸平靜。而民主的台灣會持續撐香港、挺香港人、挺普世價值。
+
+<figure>
+<img src="https://web.archive.org/web/20210801170120im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/台北-台灣總統府-台灣-20200815154221_ab2f_large.png" alt="">
+<figcaption>總統府發言人促請北京當局正視香港主流民意。資料圖片</figcaption>
+</figure>
+
+行政院發言人羅秉成則說，中國向來漠視人權，自毀一國兩制的承諾，踐踏香港的自由民主，世界各主要國家已一再加以譴責、抨擊，而我們臺灣有主權，也重視人權；人民愛好和平，也珍惜自由，才有今天的民主臺灣。
+
+羅秉成表示，看到媒體報導香港將爭取自由民主的黎智英先生等人定罪判刑，深表同情與遺憾，更要再次譴責北京當局罔顧、壓迫港人爭取民主與自由的決心。而此事也讓臺灣人民更加戒慎警惕，若有一天不幸被中國併吞，那臺灣勢將淪為今日的香港，任人宰割。
+
+行政院陸委會則表示，對於令人敬重的香港民主人士一再遭到政治打壓，深表同情及遺憾，相關方面先是剝奪他們集會遊行的權利，現在又對他們和平理性表達訴求，予以定罪，企圖擴散寒蟬效應。
+
+陸委會表示，對香港民主人士的境遇，以及香港情勢的沉淪，都感到沉痛；陸委會譴責利用法律手段，迫使異議人士噤聲的作為，希望相關單位能夠立即釋放所有香港的良心犯，並呼籲當權者，不要再秋後算帳清除異己，否則終遭人民唾棄。
+
+### 政府發聲明回應：要求荒誕無稽、違反國際法
+
+政府晚上發聲明，指對於有海外政客公開要求釋放已認罪或經審訊定罪的被告，感到驚訝。聲明指：「這些要求荒誕無稽，明目張膽違反國際法及不干預的基本原則。」政府批評對法庭的判刑作出毫無事實基礎的攻擊，是完全不尊重法治。聲明指這些行為可能構成藐視法庭，亦削弱公眾對妥善執行司法工作的信心。
+
+各國十分關注兩宗案件的判刑，今日早上多國駐港總領事館派員到法院旁聽，包括歐盟駐港辦事處副辦事處主任韋理斯Charles Whiteley、荷蘭駐港副總領事Rogier Hekking、瑞典駐港副總領事雷博恩，加拿大、法國和德國領事館亦有派員到場。
+
+<figure>
+<img src="https://web.archive.org/web/20210801170120im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/818集會-831-20210416221524_2e71_large.jpg" alt="">
+<figcaption>多國駐港總領事館今早派員到法院旁聽。周滿鏗攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210801170120/https://www.hkcnews.com/aboutus/#subscribe)

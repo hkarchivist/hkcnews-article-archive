@@ -1,0 +1,88 @@
+---
+title: "【國家安全日】官媒連轟內地人來港參與反華活動　指李亨利曾見長毛、資助周永康"
+date: "2021-04-15"
+last_updated: "2021-04-15 21:02:39"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "梁國雄"
+  - "梁國雄議員"
+  - "長毛"
+  - "LEUNG Kwok-hung"
+  - "long hair"
+  - "羅冠聰"
+  - "Nathan LAW"
+  - "黃之鋒"
+  - "Joshua Wong"
+  - "周永康"
+  - "危害國家安全"
+  - "國家安全"
+  - "全民國家安全教育日"
+  - "光復香港，時代革命"
+  - "張崑陽"
+  - "國家安全教育"
+  - "李亨利"
+url: "https://web.archive.org/web/20210726171639/https://www.hkcnews.com/article/40310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40318/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40318/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國家安全日】官媒連轟內地人來港參與反華活動　指李亨利曾見長毛、資助周永康
+
+
+{{< video src="https://web.archive.org/web/20210726171639if_/https://www.youtube.com/embed/BvFRD1SFAYc" >}}
+
+
+「全民國家安全教育日」來到第六年，每年官媒都會「應節」推出一系列的報道，不過今年的焦點似乎在於內地人參與香港事務。央視詳細報道「李亨利案」的詳情，指李亨利長期資助香港社會運動，並曾與梁國雄、周永康會面。《法治日報》則報道，有內地學生來港加入反華組織，向內地倒灌香港鬥爭經驗，在網上公開稱要「光復香港」。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171639im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/李亨利-20210415174426_2e08_large.png" alt="">
+<figcaption>李亨利資助危害國家安全犯罪活動罪成，被判監11年。央視片段</figcaption>
+</figure>
+
+在2019年11月，內地商人李亨利因涉嫌「資助危害國家安全犯罪活動罪」被捕，於本月2號被判監11年，央視節目《焦點訪談》近日披露案件詳情。
+
+原名李滬祥的李亨利於上海出生，現年66歲，早年入籍伯利茲，但報道指他對某西方大國極度崇拜，平時都自稱是該國的華僑。報道稱李亨利於80年代曾因引誘婦女賣淫和詐騙被捕，種下他怨恨和仇視政府的種子，後來更受到西方思想影響，持續多年資助某國一名姓楊的反華分子。廣州市國家安全局幹警引述用李亨利指：「只要是對中國不利的事情，他都會不遺餘力地支持。」
+
+### 曾與梁國雄長談、資助周永康　促成反對派與外國高官會面
+
+報道指李亨利一直有關注香港形勢，早在20年前已經開始來港參與社會活動，作出捐贈。於2011年的6月，他慕名前往香港與「長毛」梁國雄秘密會面，當時他們就香港問題交流到深夜。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171639im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/李亨利-長毛-20210415174413_30e1_large.png" alt="">
+<figcaption>央視指李亨利曾與梁國雄秘密會面。央視片段</figcaption>
+</figure>
+
+在2014年佔中運動期間，李亨利透過他長期資助的楊先生聯絡到學聯時任秘書長周永康。李亨利在鏡頭前形容他與周永康見面的情形：「一個很遠的地鐵站，我說我已經到了，他說我就站在你後面。後來他一看我年紀這麼大，他本來在電話裡叫我亨利哥，後來他說應該叫你亨利叔。」上海市國家安全局幹警補充：「在獲悉周永康即將前往歐洲某國參與某反華論壇活動，並且接受培訓的時候，李亨利當即表示願意為周永康支付當次赴歐洲的出行費用。」
+
+報道指李亨利在2018年參與了某西方大國涉港制裁法案，在2019年亦資助反修例運動，並促成黃之鋒、周永康、羅冠聰、張崑陽等人與某西方大國的高級官員會面。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171639im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/李亨利-周永康-20210415174326_115d_large.png" alt="">
+<figcaption>央視指李亨利曾資助周永康前往歐洲論壇。央視片段</figcaption>
+</figure>
+
+### 周永康：與李只有一面之緣　不懂「哥前叔後」稱呼陌生人
+
+被央視點名的周永康、羅冠聰和張崑陽都有就報道作出回應。周永康指不認識李亨利，與促成會面的楊先生也不稔熟。他與李亨利只有一面之緣，2015年夏天在鑽石山地鐵站出口傾談過數分鐘。李亨利表示他十分支持香港及中國的民主運動，稱讚香港的民主運動，希望中國當局有改革自強的一天，並祝願周永康前往捷克布拉格參與「Forum 2000」順利。周永康則回應：「大家咁話。」
+
+他指「Forum 2000」由前捷克總統和猶太集中營倖存者所設立，質疑為何會被央視定性為「反華論壇」，而他前往捷克的機票及住宿費用亦是由大會提供。對於李亨利於鏡頭前的自白，周永康指：「本人在香港成長，為人內斂，不懂大陸用語『哥前叔後』稱呼陌生人，更遑論『亨利叔』、『亨利哥』（OS：十萬個黑人問號）。」他稱假若認識李亨利，亦會稱對方做Henry，猶如他通常自我介紹為Alex。
+
+[羅冠聰](https://web.archive.org/web/20210726171639/https://www.facebook.com/NathanLawKC/posts/2525530970931554) 和 [張崑陽](https://web.archive.org/web/20210726171639/https://www.facebook.com/sunnycheungky/photos/a.113213860293540/283632423251682/) 亦指不認識李亨利，否認在外地接受過任何錢銀上的資助。他們會見外國政要並不需要任何「中間人」推薦，亦不需要巨額金錢促成，只需要透過正常不過的會面申請。羅冠聰直言這些在央視認罪的片段多數是由中共國安機構威逼所致，是政治宣傳手段，完全不需要認真看待。
+
+### 內地學生來港加入反華組織　向內地倒灌香港鬥爭經驗
+
+官媒《法治日報》亦報道了2宗內地學生參與香港社會運動的案件。26歲的楊同學於2017年來港修讀電影碩士，自3年前開始參與某境外敵對組織的活動，幫忙宣傳、管理網絡群組。他於群組中引導話題討論，轉發相片影片，發布封殺中資企業的聯署信，討論中國領土問題，並提議利用WiFi熱點和AirDrop傳播「敵對理論」，以擴大組織的影響力。
+
+楊同學在2019年亦經常在Twitter上轉發聲援香港反修例運動的帖文，又引導成員「關注、討論、抹黑」香港警察，向內地倒灌香港的「鬥爭經驗」。他最終在去年6月被捕，承諾不再從事危害國家安全的活動。
+
+在社交媒體上高調支持反修例運動的還有25歲的陳同學，報道指他自2014年起長期留港攻讀學士和碩士，逐步形成反華政治立場，在思想和言行上極力否定中國共產黨和社會主義制度，並加入反華組織。他在2019年多番在網上攻擊中央政府對港的管治，公開稱要「光復香港」。
+
+國安在去年5月審查陳同學，並進行思想教育。他書寫10萬餘字的悔過書，指要「痛改前非」，不再參與任何違法活動。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726171639/https://www.hkcnews.com/aboutus/#subscribe)

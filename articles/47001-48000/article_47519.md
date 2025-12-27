@@ -1,0 +1,53 @@
+---
+title: "15人涉葵涌連儂牆貼文宣案　兩少女認刑毀罪還柙候判　官指「規模龐大、內容煽動」"
+date: "2021-11-10"
+last_updated: "2021-11-10 19:15:36"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "連儂牆"
+  - "刑事損壞"
+url: "https://web.archive.org/web/20220117155517/https://hkcnews.com/article/47519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47534/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47534/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 15人涉葵涌連儂牆貼文宣案　兩少女認刑毀罪還柙候判　官指「規模龐大、內容煽動」
+
+去年2月多人在葵涌連儂牆涉張貼文宣被捕，警方事隔年半檢控15人刑事毀壞罪，當中包括一名教師及多名學生。案件今（10日）於西九龍裁判法院聽取答辯，兩名15歲及16歲少女承認刑事毀壞。裁判官香淑嫻指被告犯案早有準備，文宣內容具煽動性，規模龐大，判刑時要考慮社會氛圍，下令索取社會服務令、更生中心、教導所等多份報告。兩名少女須還柙三星期，等候下月1日判刑。
+
+<figure>
+<img src="https://web.archive.org/web/20220117155517im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/連儂牆-20211110190957_1868_large.png" alt="">
+</figure>
+
+### 欄杆貼滿富政治色彩海報　含「光復香港」字句
+
+案情指，2020年2月因逃犯條例修訂的爭議，多區有人在牆壁貼上紙張形成連儂牆，包括涉案連接葵涌邨商業中心的天橋。2月24日警方接報到場，看到一班人在貼文宣，附近欄杆貼滿充滿政治色彩句子的海報，包括「光復香港」、「如果唔好彩畀人告暴動要坐監，我會等你」、「若要成功，必要行動」。附近牆上的海報，與被捕人士身上攜有的同一式樣。
+
+### 兩少女截查時分別在貼海報及手持黏貼工具
+
+認罪的16歲吳姓少女當時手執三張印有「五大訴求」、「黨鐵事故」的海報，貼上的海報導致水泥牆有損毀，她被截查時承認正在貼海報。15歲少女則拿著紅色桶，內有油刷及白膠漿，警誡下緘默。其他被捕人士分別在欄杆貼上同款海報，有人在枱上處理膠水和整理幾百張文宣海報。
+
+房屋署聘請21名清潔工清走該些海報，總清潔費為2,351元。被告須就清潔費各自支付$156.7予房屋署，從保釋金中扣除。
+
+### 案發時僅14歲　辯方求情指判斷力弱
+
+代表二人的辯方律師求情指，她們案發時均僅14歲，就讀同一所中學，老師對二人評語非常好。她們品格良好，獲學校、家庭及社工支援，辯方希望法庭體恤二人案發時年輕，判斷力弱，經社工一年半輔導後已重回正軌，她們亦願意繼續接受輔導。辯方指事件無造成永久損壞，手法相對和平，二人被查時無逃跑，而且是單一事件，二人重犯風險甚低，請法庭為被告索取感化及社會服務令報告，讓她們繼續更生。
+
+<figure>
+<img src="https://web.archive.org/web/20220117155517im_/https://hkcnews.com/news_新聞/hk-discuss/2018/09/香淑嫻-20180912162144_1f6a_large.jpg" alt="">
+<figcaption>裁判官香淑嫻</figcaption>
+</figure>
+
+### 裁判官額外索取更生中心、教導所報告
+
+裁判官香淑嫻指本案有其嚴重性，因張貼海報的規模十分龐大，文宣內容十分具煽動性及多樣化。她指被告與一班人夥同犯案，分工合作，是早有準備，備有「成桶漿糊」等器具，另要考慮當時的社會氛圍。
+
+香官接納兩名少女為15名被告中年紀最輕，容易受人煽動犯案。惟除辯方提及的報告外，她另下令索取多份報告作判刑考慮，包括更生中心、教導所及青少年罪犯評估專案小組報告。二人須還柙至12月1日判刑。
+
+### 其餘被告不認罪或押後答辯
+
+其餘被告准以原有條件繼續擔保，12月29日作審前覆核及答辯。15名被告依次為鄒文燕 （18歲）、葉嘉儀（18歲）、吳姓少女（16歲）、15 歲少女、李霈濠（21歲）、陳信豪（20歲）、廚師張家禧 （21歲）、梁詠彥 （21歲）、朱麗茵（20歲）、林慧淇（19歲）、鄭珈熹（19歲）、黃文杰（21歲）、李永熙（23歲）、教師李重熙（31歲）及鍾正浩（22歲）。
+
+各人同被控一項「刑事毀壞」罪，被指損壞屬於房屋署的天橋牆壁及欄杆。15歲少女、梁詠彥、鄭珈熹、黃文杰、李永熙、李重熙及鍾正浩另被控交替性質的「管有物品意圖損壞財產」罪，涉分別管有油漆刷、白膠漿、可用作張貼海報的工具等物。
+
+案件編號：WKCC2800/21

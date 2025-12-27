@@ -1,0 +1,67 @@
+---
+title: "消失的文件　崩潰的制度"
+date: "2019-01-31"
+last_updated: "2019-02-01 01:06:23"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "港鐵"
+  - "港 鐵 公司"
+  - "mtr"
+  - "地鐵"
+  - "香港地鐵"
+  - "mtr hong kong"
+  - "hong kong mtr"
+  - "mtr hk"
+  - "香港 地铁"
+  - "hk mtr"
+  - "Mass Transit Railway"
+  - "沙中線"
+  - "紀錄缺失"
+url: "https://web.archive.org/web/20210729023953/https://www.hkcnews.com/article/18299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18301/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/18299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18301/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 消失的文件　崩潰的制度
+
+
+{{< video src="https://web.archive.org/web/20210729023953if_/https://www.youtube.com/embed/Kt9N9btUHUs" >}}
+
+
+沙中線紅磡站工程醜聞沒完沒了，再有3處工程發現新問題，涉及南面及北面連接隧道、列車停放處有施工缺失，以及未經同意改動工程；工程驗收紀錄不全，是消失抑或是被消失，甚至是從來未有做過紀錄，仍然是個謎，一項近千億元計的基建項目，直接關乎公眾安全，工程過程出現的錯漏、疏忽及可能的違法行為，令人難以置信。最新3處出事消息昨晚公報後，公民黨立法會議員陳淑莊揚言，將要求立法會引用權力及特權條例調查事件，預計最快下月15日於內務委員會討論。
+
+<figure>
+<img src="https://web.archive.org/web/20210729023953im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/紅磡站-沙中線-20190131002411_9172_large.png" alt="">
+<figcaption>最新出現施工紀錄缺失的3處地點包括：列車停放處、南面和北面的連接隧道。</figcaption>
+</figure>
+
+今日（周四）下午，特首林鄭月娥宣佈擴大調查沙中線紅磡站工程問題的獨立委員會職權範圍，委員會將會同時調查新發現的三個問題，但不會調查沙中線其他車站的工程問題；她說，其他車站問題的性質不同，認為應先集中處理紅磡站工程問題，如果委員會同時開展對其他車站的研究，恐怕會將其工作拖至很長，未必是最理想。林鄭見記者前，經民聯盧偉國對傳媒說不排除支持動用特權法查，林鄭主動提再由調查委員會主席夏正民處理，建制相信會收貨收口，否決陳淑莊的動議。
+
+<figure>
+<img src="https://web.archive.org/web/20210729023953im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/林鄭月娥-20190131233504_bc37_large.png" alt="">
+<figcaption>特首林鄭月娥主動宣布，由夏正民主持的調查委員會擴及調查最新三處出現的工程缺失問題。</figcaption>
+</figure>
+
+調查委員會聆訊接近尾聲，早前聆訊集中在剪短鋼筋問題，最新披露港鐵未能提供約四成的檢查及測量申請表格（RISC Form），林鄭要求委員會加料，當然對查找工程監管、釐清責任誰屬有幫助，但沙中線現階段所被揭露出的問題，很可能並非全部的問題，各種甩漏、不當行為，很可能陸續有來，所反映背後的問題可能更複雜及更重要。
+
+沙中線工程醜聞不絕，總承建商禮頓是責無旁貸，在調查委員會聆訊中，禮頓否認有不足和做錯，推卸責任，盡顯大企業傲慢和不負責任；公眾要問的是，港鐵當初憑什麼準則批出合約？是港鐵是是但但、有眼無珠？抑或禮頓蒙混過關？
+
+港鐵是沙中線項目的管理者，收取接近八十億元管理費，對項目監管的粗疏甩漏，令人咋舌，四成的檢查及測量申請表格紀錄消失了，究竟是禮頓有提交，他們遺失，抑或是根本沒有提交，也弄不清楚，沒有紀錄，又為何項目可照做，令人摸不著頭腦；港鐵收管理費，但沒有做好管理，是明顯不過的事實；公眾要問的是，港鐵的管理問題，政府是否一直毫不知情？一無所知是否因為政府在港鐵董事局的代表怠惰？抑或是他們一直被誤導、蒙在鼓裏？
+
+工程界立法會議員盧偉國對工程有4成表格出現缺失，形容是「制度崩潰」；沙中線造價接近千億，最終何時可通車？運輸及房屋局局長陳帆昨日也沒有答案。立法會一個重要的角色是監察政府，行政部門須要向他們負責，議員完全有權有責，運用特權法調查一向標榜制度優勢的香港，出現「制度崩潰」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729023953/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210729023953im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

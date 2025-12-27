@@ -1,0 +1,53 @@
+---
+title: "同為公眾利益清拆　中大生籲政府原區安置石籬中轉屋居民"
+date: "2021-10-23"
+last_updated: "2021-10-23 09:09:53"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "公營房屋"
+  - "石籬中轉屋"
+  - "中轉屋"
+url: "https://web.archive.org/web/20211204141641/https://hkcnews.com/article/46810/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46810/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46810/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46810/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 同為公眾利益清拆　中大生籲政府原區安置石籬中轉屋居民
+
+【撰文：香港中文大學博群社區研究計劃學生團隊】
+
+香港的中轉房屋為一種過渡性房屋，用作安置一眾因天災或政府清拆行動而失去居所的市民，為他們提供臨時住所。在《2020 施政報告》中，政府提出於2022年底前清拆市區最後一個中轉房屋——石籬中轉房屋，以作公營房屋發展用途。屆時，約79户中轉屋居民將會因為未能獲配公屋單位，而需被迫遷入偏遠的屯門寶田中轉房屋，或領取不足以應付租金的單身人士津貼／二人家庭津貼，自行另覓居所。前者將會使一眾居民失去社區網絡，承擔各種各樣的搬遷成本；而後者不但未能應付基本的住屋開支，更要求一眾居民放棄現時的公屋輪候編號，才能領取津貼。面對兩難的選擇，這些中轉屋居民究竟何去何從？
+
+<figure>
+<img src="https://web.archive.org/web/20211204141641im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/博群全人發展中心-石籬中轉屋-中轉屋-20211023040143_2be8_large.png" alt="">
+</figure>
+
+### 願為公眾利益被清拆　居民冀原區安置保社區網絡
+
+為了探討其他可行的安置方案，香港中文大學博群社區研究計劃的學生研究團隊就石籬清拆行動進行研究，並提出了三個新的安置方案，包括：（一）增加過渡私人樓宇租住津貼、（二）運用原區舊公屋作中轉屋過渡安置、及（三）運用全港各區舊公屋作即時永久安置。團隊在社工的協助下，以問卷調查、家訪及焦點小組收集了石籬中轉屋居民對方案的意見。結果顯示，居民並不接受方案一，亦只是有條件地接受方案二。他們對方案三的反應則最為正面，超過七成的受訪居民都贊同運用全港各區舊公屋作即時永久安置。居民表示，他們明白香港基層市民都需要政府多建公屋，亦願意遷出，但既然因公眾利益而被逼遷離原有居所，就並非一般輪候公屋的情況，理應有更合理的安置待遇。他們希望政府能以長久、安穩、可負擔的單位安置他們，令他們毋需承擔多次搬遷的壓力與成本。
+
+<figure>
+<img src="https://web.archive.org/web/20211204141641im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/石籬中轉屋-博群全人發展中心-中轉屋-20211023040209_28c9_large.png" alt="">
+</figure>
+
+### 政策應一視同仁　現資源夠即時永久安置79戶
+
+參考其他同樣為公眾利益而被清拆的情況之安置計劃，公營市區重建的租戶及寮屋清拆戶只要合乎輪候公屋資格，就有機會選擇房委會或房協的出租公屋，亦有機會入住市區的公屋單位。但是，同樣是為公眾利益而被拆遷的石籬中轉屋居民則沒有相同的待遇，有違公平原則。中轉屋居民的安置補償理應與公營市區重建下租戶的補償安置看齊，方為合理。而事實上，香港現有不少的閒置單位。根據文件顯示， 葵青區內30 年樓齡以上的舊屋邨之空置單位共有 164個，其中 25個單位空置超過一年而不足兩年，另外 24個單位空置超過兩年。可見，政府現時有足夠的資源運用原區公屋即時、永久安置這79戶中轉屋居民，給予他們公平的安置待遇。最後，由於中轉房屋的主要服務對象有其獨特性，我們主張應在全港十八區善用閒置的資源，去延續中轉房屋的安全網功能。有關這一點，本團隊將另撰文詳述。
+
+【 **此系列總共有四篇文章，由香港中文大學博群社區研究計劃學生團隊撰寫。該團隊在2021年就石籬中轉房屋的清拆安置方案及未來中轉屋發展進行了逾十個月的研究。在這系列的文章中，研究團隊將會解釋是次研究的重點，分別探討：（一）石籬中轉屋的安置安排、（二）利用閒置土地建設中轉屋的可行性、（三）改善中轉屋入住流程的方法及（四）擴大中轉屋服務對象的需要。** 】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204141641/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211204141641im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

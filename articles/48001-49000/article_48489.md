@@ -1,0 +1,33 @@
+---
+title: "健康碼實名登記無追蹤功能 安心出行會否實名制？ 薛永恒：保留與時並進安排"
+date: "2021-12-02"
+last_updated: "2021-12-02 21:32:49"
+author: "記者郭鈺誠"
+category: "眾聞"
+tags:
+  - "薛永恆"
+  - "安心出行App"
+  - "香港健康碼"
+url: "https://web.archive.org/web/20220705133152/https://hkcnews.com/article/48489/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapp-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48500/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48489/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDapp-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48500/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 健康碼實名登記無追蹤功能 安心出行會否實名制？ 薛永恒：保留與時並進安排
+
+政府公布健康碼詳情，下星期四開始接受申請，市民可將安心出行紀錄上載到港康碼。現時港康碼沒有追蹤功能，只靠用戶自行上載安心出行紀錄。創新及科技局局長薛永恒無回應內地是否滿意香港安排，薛永恒多次問到安心出行將來會否轉實名制，「未來會否更新，會保留番一個與時並進的安排。」
+
+創新及科技局局長薛永恆，政府資訊科技總監林偉喬，副政府資訊科技總監黃志光今日（12月2日）下午於政府總部召開記者會，公佈有關香港健康碼（港康碼）的詳情。
+
+<figure>
+<img src="https://web.archive.org/web/20220705133152im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/香港健康碼-20211202180543_158e_large.jpg" alt="">
+</figure>
+
+薛指出，港康碼將會與「安心出行3.0」於12月10日上午9時同步推出，屆時市民可以透過網上申請註冊港康碼帳戶試用，待正式通關時使用。另一方面，若港人日後申請免檢疫通關，則需要透過港康碼申請「轉碼」至中國內地的「粵康碼」或澳門的「澳康碼」。而更新後的「安心出行3.0」則具備上傳最近21日到訪紀錄至港康碼的功能，市民可以自行決定是否更新應用程式。黃在介紹港康碼功能時提到，港康碼將需要用戶提交身份證資料和提供住址證明和用作接受信息的手提電話號碼，相關資料將會與入境處和房委會的數據庫作比對確認。
+
+有關港康碼是否具備追蹤功能和有關保障私隱方面，薛指出港康碼將不會具備追蹤功能，使用安心出行的紀錄亦會先經市民同意後才上載至港康碼和政府數據庫。但若市民確診或被界定為高風險族群，則港康碼可能會將相關紀錄與內地有關部門共享，才可達至聯防聯控的效果。
+
+被問到如何確保上載行蹤的紀錄準確以及安心出行會否進行實名制時，薛表示，市民申請港康碼時需要實名登記，但現階段暫時無意推行安心出行實名制，但相關安排會按照社會需要與時並進，因此未能保證或承諾安心出行不會推行實名制。
+
+至於若上傳不準確的紀錄會否面臨刑事責任，薛回應，市民有責任確保上傳的資料屬實，若上傳虛假資料則一定會有刑事責任。林舉例，市民如果明知有意圖取用他人的安心出行紀錄上載至自己的健康碼，則可能須負上法律後果。但若非刻意，只是進入部份場所時因為場所沒有提供安心出行二維碼或市民「漏嘟」安心出行導致紀錄不完整，則無須負上刑責。薛補充，如果場所因應防疫需要在法例上有要求，而市民沒有掃描二維碼，便需要負上刑責。
+
+席間亦有傳媒問到港康碼相對內地健康碼容許用戶自願上傳而非強制上傳，會否擔心內地當局不認可。薛則無正面回應，僅指出港康碼開發時有得到內地專家認可合作進行對接，亦有保持與內地專家深入探討，縱然內地很多地方值得學習，但香港擁有自己一套系統。對於更新後的安心出行能否降回舊版，林回應，安心出行透過流動應用程式商店更新後則不能還原至舊版。而黃亦強調，升級後的版本只是額外提供上傳至港康碼的功能，「用戶可以選擇用或者選擇唔用都得」。

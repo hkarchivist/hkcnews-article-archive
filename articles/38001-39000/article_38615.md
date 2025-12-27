@@ -1,0 +1,54 @@
+---
+title: "林妙茵：謎樣的警隊國安處——8個月擴編20倍？"
+date: "2021-02-27"
+last_updated: "2021-02-27 18:45:03"
+author: "林妙茵"
+category: "眾說"
+tags:
+  - "香港警務處"
+  - "警務處"
+  - "警務署"
+  - "香港警務署"
+  - "香港警务处"
+  - "維穩"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210928064849/https://www.hkcnews.com/article/38615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38617/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38617/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林妙茵：謎樣的警隊國安處——8個月擴編20倍？
+
+再窮不能窮國安。$8000000000無須（亦無從）審批的國安開支用在那裡，開始有點眉目。有電視台引述消息指，80億主要用於警務處轄下的國家安全處，編制「目標是4000人」。
+
+消息如真確，警務處2021年編制是38390人，單是國安處，就佔整支警隊10.4%。究竟國安處是否已包在這編制中，亦不清楚。據國安法，國安人員編制「不受特區現行有關法律規定的限制」。換言之，似乎完全保密都可以。事實上在來年警隊的預算中，就完全沒有提及國安編制和綱領。但在政府公開的電話簿中，又有警務處副處長（國家安全）劉賜蕙等四人的名字。
+
+<figure>
+<img src="https://web.archive.org/web/20210928064849im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/副警務處長-劉賜蕙-20201110142412_25b7_large.jpg" alt="">
+<figcaption>警務處副處長（國家安全）劉賜蕙。資料圖片</figcaption>
+</figure>
+
+4000人是甚麼概念？香港入境處有9223人、海關有7864人，廉政公署有1542人。即是說，警隊國安處介乎1/3至1/2個入境處、半支海關及2.6個廉署。以2020年底全港人口計，香港每1868人，就將有一名警隊國安處人員。
+
+國安法去年甫實施， [《大公報》7月曾報道](https://web.archive.org/web/20210928064849/http://www.takungpao.com.hk/news/232109/2020/0705/470925.html) ，警隊國安處的編制「有近200人」。換言之，在不足8個月內，警隊國安處編制擴充（或擬擴充）20倍之多，必定是特區政府內擴張速度最快的單一部門。中央及特區政府以往均多次指出，國安法實施後，香港由亂入治，「頭面人物紛紛『變臉』，或宣布『退出政壇』，或與『港獨』『黑暴』割席；⋯不少做賊心虛、留有案底的亂港分子腳底抹油偷偷跑路」（ [新華社國安法系列報道28/12/2020](https://web.archive.org/web/20210928064849/http://big5.xinhuanet.com/gate/big5/m.xinhuanet.com/2020-12/28/c_1126916346.htm) ）。如果200人的編制，加上國安法立法，已震懾了頭面人物，擴編20倍後的目標又是甚麼人？主要工作又是甚麼？
+
+這還未計及中央駐港國安公署。這個編制同樣保密的機構，去年7月曾有報道指，編制300人。至今有沒有擴編？更難稽考。
+
+我完全明白，國安工作有保密的必要，但既已有媒體引述了「編制4000人」的講法，警務處可否證實一下數字真確與否？畢竟，這是一筆80億元的公帑，納稅人至少想知道這筆血汗錢在養多少人，又有甚麼工作需要2.6隊廉署去做？
+
+**本文原刊 [作者Facebook](https://web.archive.org/web/20210928064849/https://www.facebook.com/102043048608968/posts/104199388393334/?d=n)**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928064849/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 林妙茵](https://web.archive.org/web/20210928064849im_/https://www.hkcnews.com/uploads/avatars/4f400c77-5312-48f6-9a6b-52924b0a344e.png?317817742)
+
+**博客 | 林妙茵**
+
+【林妙茵・荒唐集】前電視台港聞採主，記錄加速時代的香港。文章雖長，too long please read。

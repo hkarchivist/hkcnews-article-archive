@@ -1,0 +1,46 @@
+---
+title: "港大換血預示港產精英下場"
+date: "2020-11-03"
+last_updated: "2020-11-03 10:04:54"
+author: "假才子"
+category: "眾說"
+tags:
+  - "香港大學"
+  - "HKU"
+  - "the university of hong kong"
+  - "Hong Kong University"
+  - "李小加"
+url: "https://web.archive.org/web/20210726154359/https://www.hkcnews.com/article/35277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35277/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港大換血預示港產精英下場
+
+港大危機接二連三，炒戴妖、撕文宣、紅副校，最新還有李小加加入校委，傳是鋪路接替明年期滿的李國章做校委會主席，以及據說要加強各系院長由校長任命成份。當然，一堆收成期本地精英繼續鬼遮眼，甚麼都舉手通過，真是跟當年不肯離開大陸的商人一樣，把刀在你頭頂都冇反應。
+
+<figure>
+<img src="https://web.archive.org/web/20210726154359im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/張翔-申作軍-李小加-20201103040912_1a4c_large.jpg" alt="">
+<figcaption>背景清一色，來自大陸的精英份子。</figcaption>
+</figure>
+
+事關炒戴妖和撕文宣，尚可說是針對示威運動，但張翔做校長、前黨委副校、李小加主席、強化院長任命，不就是要校長、校委、副校、院長，全部都是他的人，還要是大陸人嗎？不要說戴耀廷陳文敏，本地人再聽話如盧寵物梁卓偉之流，都是不及根正苗紅的大陸人好，都冇得升！以後本地學者可能撈到個副教授已經要偷笑了。相信本地校委也遲早要走，不斷溝入李小加一樣的新來港精英，全面換血。
+
+對港大這一套，其實跟大陸常講對香港有「全面管治權」、「實質任命權」的有權用盡一樣，相信港大只是第一步，公職會越來越多委任這類人，如各類委員會，甚至港資公司董事局，這麼多年來派這麼多大陸專才來港，是時候出動了，讓他們掌握社會方方面面層層面面。說不定屍焗腸、行會成員、甚至公務員團隊都會大清洗。反正權在他們手，人事制度？A piece of cake而已。
+
+有些收成期校委還說，人家大陸學者夠quali。超，大陸14億人，要找到有quali的人來換你香港人血有幾難？700萬人換晒都得，留港不留人呀！常常說年輕人怕大陸學生競爭，現在大陸連你們那個年齡層都派人爭你們位，看誰損失大囉。你班收成期精英真的以為自己好叻？圍內圍威喂就夜郎自大而已。歧視？你不如說三隻小豬不讓柴狼入屋是歧視？人家想吃你還要主動讓人吃，你當自己佛祖獻肉嗎？不要說沒有一早警告你們呀。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726154359/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 假才子](https://web.archive.org/web/20210726154359im_/https://www.hkcnews.com/uploads/avatars/058f1c51-5648-439a-bd56-51fde2c9899c.png?1475201573)
+
+**博客 | 假才子**
+
+【假才子・假分析】筆者是比較政治碩士學歷，現為傳媒工作者。取名「假才子」是因為現在流行才子才女，但又沒人敢承認自己是假大空才子才女，故先行澄清。文章寫得不好還請見諒，畢竟我不是真才子。

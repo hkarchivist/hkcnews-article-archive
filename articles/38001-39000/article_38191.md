@@ -1,0 +1,130 @@
+---
+title: "【奪命垃圾槽】全港屋苑兩年前被要求改細槽口　至今兩成未完工、41屋苑不符標準現停用　有法團與房署爭拗工程費責任"
+date: "2021-02-16"
+last_updated: "2021-02-16 15:55:36"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "業主立案法團"
+  - "清潔工"
+  - "垃圾槽"
+url: "https://web.archive.org/web/20210726161201/https://www.hkcnews.com/article/38191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38241/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD41%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38241/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD41%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【奪命垃圾槽】全港屋苑兩年前被要求改細槽口　至今兩成未完工、41屋苑不符標準現停用　有法團與房署爭拗工程費責任
+
+他眼前漆黑一片，身上被一袋袋垃圾重重壓著，動彈不得，只得任由飯菜餸汁及髒水黏著身體，淹沒在酸臭的垃圾之中。在兼職的這個晚上，他走進垃圾房清理垃圾，豈料被暗黑的垃圾槽吞噬，沿槽管從35樓飛墮而下，最終跌入垃圾堆中沉沒。
+
+午夜，大廈住客酣睡中，地面垃圾房悄然寂靜。沒有人發現，一條生命正在那大型垃圾桶中，悄悄流逝。到有人發現他時，他已陷入昏迷，最後因身體多處受傷，搶救無效。
+
+上月22日午夜，屯門山景邨景樂樓一名58歲男清潔工人，懷疑在垃圾房清理垃圾期間，從35樓垃圾槽，意外飛墮至地面垃圾房的大型垃圾桶，最終不治。這類意外並非首例。11年間，同類意外發生過5次，奪去3人性命。
+
+人命何價？意外為何一次又一次地發生？
+
+2017年發生同類意外後，勞工處於2018年中曾要求屋苑法團及物管公司，縮窄垃圾槽口至法定大小。不過，處方回覆眾新聞查詢時指，至今仍有約兩成屋苑未完成有關工程。是次山景邨意外後，勞工處巡查發現41個屋苑的垃圾槽不合標準，已發出「暫時停工通知書」即時停用。
+
+今次發生意外的山景邨屬出售公屋，管理由法團負責，負責物管的公司沒有回覆眾新聞查詢。法團2018年收到勞工處通知後，為何兩年半來仍未進行工程？眾新聞探討其中兩個被停工的屋苑，嘗試尋找線索，發現兩個屋苑法團均與房署因工程費用有過爭拗責任誰屬。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/清潔工-垃圾槽-20210215161417_294e_large.jpg" alt="">
+</figure>
+
+根據《建築物（垃圾及物料回收房及垃圾槽）規例》，垃圾槽口需不大於35 × 25 厘米。一般新式垃圾槽均依此尺寸規定而建，不過不少早年落成的屋苑，所採用的舊式垃圾槽，沒有統一尺寸，但都較此要求大。據傳媒所拍的照片，出事的山景邨垃圾槽口尺寸約為50 × 50 厘米，可以通過一個成人，相信屬於不少舊式屋邨均採用的垃圾槽設計。
+
+2010年，大元邨首次發生清潔工墮槽意外。大元邨屬於公共屋邨，房委會於意外發生後，即2011年，曾就公共租住屋邨，進行改善槽口工程。房屋署回覆指相關工程已完成。勞工處亦指，據掌握的資料，所有公共屋邨垃圾槽均符合規例要求。
+
+至2017年，馬鞍山錦泰苑再發生清潔工墮槽死亡意外，出事的垃圾槽同樣屬於舊式槽口。這次出事的輪到居屋屋苑。意外發生後，勞工處於 **2018年5月** 去信予居屋及租置屋的業主立案法團及物業管理公司，敦促儘早改善垃圾槽等裝置的設計及構造安全，以符合《建築物（垃圾及物料回收房及垃圾槽）規例》規定。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/清潔工-垃圾槽-20210215160458_1d48_large.jpg" alt="">
+</figure>
+
+意外發生後，勞工處向山景邨有關僱主及物業管理公司發出「暫時停工通知書」，停止使用垃圾槽，需改用升降機運送垃圾。
+
+山景邨兩年半來未有進行改善工程，應向誰問責？
+
+房屋署回覆查詢時指，山景邨是房委會在「租者置其屋計劃」下出售單位的屋邨，並於2005年成立業主立案法團。法團已接管屋邨的管理權責，與私人物業無異，故須負責屋邨的管理、維修保養及改善屋邨設施等。
+
+眾新聞曾向山景邨物管公司置佳物業服務有限公司查詢，惟未獲回覆。
+
+山景邨居民組織「山景新氣象」指，從未聽過法團或管理公司通知過住戶，有關勞工處要求改裝槽口一事，或就事件諮詢住戶意見。直至近日發生意外後，居民曾到管理處要求解釋事件， [惟被「落閘」](https://web.archive.org/web/20210726161201/https://www.facebook.com/LemonWongHK/videos/762924584338403) ，拒絕對話。
+
+勞工處指，意外後已即時派員到場調查，並已發出「暫時停工通知書」，停止使用該屋苑內的垃圾槽運送垃圾，直至信納他們已採取措施消除有關危害，才可恢復使用。勞工處正進行調查查找有關持責者的法律責任，若調查發現有違例事項，定會依法處理；有關調查工作仍未完成，故此不宜透露意外細節。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/山景邨-垃圾槽-20210215141007_1536_large.jpg" alt="">
+<figcaption>據《蘋果日報》報道，山景邨垃圾槽口尺寸約為半米乘半米，相信屬於舊式垃圾槽。蘋果日報圖片</figcaption>
+</figure>
+
+除了山景邨外，勞工處近日亦巡查多個屋苑的垃圾槽，處方回覆查詢時指，於2月5日完成巡查行動， **向41個垃圾槽不符標準的屋苑發出「暫時停工通知書」** ，惟以涉及執法工作及相關部署為由，沒有透露有關屋苑的名單。
+
+勞工處回覆查詢時指，在處方2018年向屋苑法團及物業管理公司發出信件後積極跟進，大部份屋苑已完成改善工程。至目前為止， **約有兩成屋苑未完成有關改善工程** 。該兩成屋苑中，大部份已開展有關工程，亦有少數正進行招標或選擇聘用顧問公司考慮適當的處理方案。
+
+兩成屋苑槽口工程遲遲未進行，當中究竟有何原因？翻查部分屋苑的法團文件，發現有法團與房署曾因工程費用有過角力。
+
+### 兆麟苑
+
+屬於居屋的屯門兆麟苑，亦收到勞工處的「暫時停工通知書」。當區區議員甄霈霖指，法團去年3月曾向居民發出問卷，就改裝槽口方案諮詢意見，惟之後卻不了了之，直至月初被勞工處要求停工後，須改用升降機運送垃圾，法團才發通告，表示已選擇承辦商承接改裝工程。
+
+甄霈霖指，據了解法團曾以房署出售時垃圾槽口尺寸合法，但現時規格不符法例為由，要求房署負上改裝的責任。
+
+翻查兆麟苑法團網站，現任法團去年3月曾向住戶寄出 [問卷調查](https://web.archive.org/web/20210726161201/https://siuluncourt.blogspot.com/2020/03/blog-post.html) ，諮詢就改裝工程的意見。信中提到，法團曾於2018年11月刊登招標廣告，及後因收到業戶意見認為，垃圾槽是按照房委會原有設計，法團接管以來未有修改，認為工程由業主一力承擔有欠公允，故法團向房委會反映，要求房委會承擔應有責任，惟多番商討後房委會未有作出正面回應，故法團於2020年2月再重新招標，並就數個改裝方案諮詢意見，安排於原定3月舉行的業主大會中議商討。不過，原定去年3月舉行的業主大會並沒有舉行，最後三度以疫情影響場地租借為由延期。
+
+改善垃圾槽口工程費用，在兆麟苑 [最新的通告](https://web.archive.org/web/20210726161201/https://siuluncourt.blogspot.com/2021/02/blog-post_8.html) 顯示工程費約為$247,800。兆麟苑法團回覆查詢時指，就有關垃圾槽改善事宜，法團與管理公司自收到勞工署通知後已積極跟進，除與勞工署溝通了解相關要求外，亦透過問卷方式收集居民意見，原本打算待業主周年大會議決，惜受疫情影響，業主大會因場地問題而被迫延期，至今仍未能確實召開會議的日期及地點。有見及此，法團早前已就改善工程公開招標，並已選擇承辦商，務求盡快開展工程。
+
+### 天盛苑
+
+另一居屋屋苑天盛苑同樣被要求停工。同樣地，屋苑法團亦曾就工程責任問題與房署角力。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/垃圾槽-業主立案法團-房屋署-20210215160525_1366_large.jpg" alt="">
+</figure>
+
+翻查天盛苑業主立案法團會議紀錄，有關垃圾槽口的討論在收信後2個月、即 [2018年7月的會議](https://web.archive.org/web/20210726161201/http://tinshing.net/wp-content/uploads/2018/08/%E7%AC%AC%E5%9B%9B%E6%AC%A1%E5%B8%B8%E5%8B%99%E6%9C%83%E8%AD%B0%E7%B4%80%E9%8C%84.pdf) 首次提出，提到當時勞工處巡視後發現大廈垃圾槽口不符要求，不過法團認為由於屋苑現時垃圾槽口的設計屬房署原有設計，屋苑沒改動過，懷疑事件屬於垃圾槽設計上的缺失，故去信房署要求跟進。
+
+會議紀錄引述房屋署回覆指，天盛苑屬於居屋屋苑，與一般私人物業無異，屋苑日常管理事務由業主立案法團或物業管理公司負責管理及執行，其中包括垃圾槽口事宜，法團可自行決定及負責進行改善設施。
+
+法團不滿回覆，認為房署沒有按法例設計大廈，屬「樓宇先天設計失誤」，房署卻將責任推卸至法團及管理公司，故法團於2018年7月向申訴專員公署投訴。
+
+至 [2018年11月](https://web.archive.org/web/20210726161201/http://tinshing.net/wp-content/uploads/2018/12/20181227172841620.pdf) ，法團於收到房屋署回覆指，天盛苑的垃圾槽口是房委會1996年按照當時公營房屋所採用的標準設計所建造，而房委會轄下樓宇獲豁免於《建築物條例》，故毋須跟從其規定。雖然後來2000年成立了獨立審查組，負責按照《建築物條例》和屋宇署的現行政策和指引，規管房委會的新發展工程項目，但並不會追溯現有建築物是否合規，因此垃圾槽口並不涉及錯誤設計問題。房署指，居屋屋苑屬於私人物業，須受《建築物管理條例》、政府租契及公契所規管。當屋苑成立業主立案法團，接收屋苑管理權責後，屋苑的日常管理事務已由法團管理，法團有責任提供安全工作環境予受僱於屋苑工作的人士，因此法團應自行決定是否有需要改善垃圾槽口。
+
+[2019年1月的會議紀錄](https://web.archive.org/web/20210726161201/http://tinshing.net/wp-content/uploads/2019/03/20190326185857348.pdf) 載有申訴專員公署的回覆。公署認同房委會說法，認為房委會轄下建築物獲豁免受《建築物條例》規限，因此房委會在設計及建造時毋須依從規定。
+
+會議紀錄提到，法團主席甘天成不滿結果，認為房委會於物業售賣前不受監管，而物業售賣後，業主需要承擔房委會的缺失。法團諮詢的法律意見認為，房委會漠視日後業主對建築物須承擔的法律責任，只按其政策建築樓宇，有關政策有損業主合法利益，或可構成司法覆核。法團當時建議向傳媒反映問題。
+
+事隔一年後，法團於 [去年1月會議紀錄](https://web.archive.org/web/20210726161201/http://tinshing.net/wp-content/uploads/2020/02/20200217182409024.pdf) 匯報有關工程招標事宜，指服務處已邀請十間公司報價，惟由於承辦商投標金額差距大而未有議決，待7月新管理公司接手後再重新招標。
+
+上月意外發生後，天盛苑管業處貼出通告，指勞工處巡查後發現垃圾槽口未合標準，向屋苑發出暫時停工通知書。通告提到，去年初因承辦商投標金額差距大而未有就工程議決，管業處於上月意外後已安排承辦商就工程報價，並會與法團管委會跟進。
+
+眾新聞曾向天盛苑業主立案法團查詢，惟未獲回覆。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/垃圾槽-清潔工-20210215161732_2be1_large.jpg" alt="">
+<figcaption>天盛苑垃圾槽口。受訪者提供</figcaption>
+</figure>
+
+對於意外之所以發生，任職清潔工20多年的羅智偉指，垃圾房有時地面會有油漬或水，如果遇上垃圾塞槽，有些經驗不夠的工友，或者會探身入槽處理，稍一不慎就會滑倒或失重心發生意外。羅智偉說，如果工友倒垃圾的經驗不足，較易遇到塞槽的情況。萬一遇到塞槽時，他多數會用長棍推下垃圾，或者用水喉加重垃圾的重量，不然就用勾勾起垃圾，不過他也說，這些處理方法也很視乎工友倒垃圾的經驗。他建議至少槽口要縮細，「咁你點唔小心都跌唔到落去」；或者改用升降機運送垃圾。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161201im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/垃圾槽-清潔工-20210215161742_53b9_large.jpg" alt="">
+<figcaption>羅智偉指，通常遇到塞槽，會用長棍推下垃圾。鄭靖而攝</figcaption>
+</figure>
+
+清潔服務業職工會組織幹事杜振豪指，倒樓(即將每層垃圾倒到地下)在眾多清潔種類來說較辛苦，因此經常不夠人手，有時需要請兼職或替工，有時不太熟悉工序的話，就容易發生意外，就如是次山景意外以及2017年錦泰苑意外，兩名清潔工都是兼職或替工。他指，對於塞槽的情況，有些經驗不足的清潔工，可能會探身入槽用手或腳嘗試推下垃圾，容易造成意外。清潔公司為工人辦的培訓可能一年只有一兩次，「做開嘅或者會聽過，但兼職嘅，相信公司唔會特別為佢講一次，所以特別容易出事。」加上倒樓工作大多是單獨行事，發生意外的話也未必有人即時發現。
+
+勞工處在近日意外發生發巡查多個屋苑，向41個屋苑發出停工通知書。杜振豪批評勞工處未有做好本份，「呢個工作其實應該一早做，但勞工處後知後覺，唔太緊張，於是就發生問題。」
+
+### 改細槽口，是否就可解決到問題？
+
+杜振豪指，收窄槽口後，至少清潔工安全可受到保障，不過會衍生其他問題，「住戶用幾大嘅垃圾袋你控制唔到，你想像吓咁大嘅垃圾袋，槽口咁細，咁工友咪要將個垃圾袋拆開，逐件細件咁掉落去。一來工友會多咗程序，二來都唔衛生。」
+
+長遠來看，他認為如果香港未來要做垃圾分類回收的話，其實繼續用垃圾槽亦很難處理，所以最好應該在大廈地面設置垃圾分類回收的設施，讓居民養成自行分類垃圾的習慣。這個長遠的構想涉及整個文化的轉變，相信需要時間。短期而言，杜振豪認為可改用升降機運送垃圾，「有啲人覺得臭，其實你綁好啲袋口，應該係冇味。佢覺得臭，不只係嗅覺，亦係觀感問題，心理上覺得垃圾、清潔工污糟，令佢唔想喺一個正常出入的地方會見到垃圾出現。」他建議住戶掉垃圾應要紮好垃圾袋，亦避免將尖銳易碎的玻璃放進袋中。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726161201/https://www.hkcnews.com/aboutus/#subscribe)

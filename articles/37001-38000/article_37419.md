@@ -1,0 +1,50 @@
+---
+title: "政府委員會建議院舍優先接種　「聚焦」兩疫苗科興未上榜　許樹昌：衞生署已多次催交數據"
+date: "2021-01-21"
+last_updated: "2021-01-21 22:49:59"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "疫苗"
+  - "許樹昌"
+  - "科興生物"
+url: "https://web.archive.org/web/20211127224740/https://www.hkcnews.com/article/37419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37422/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37422/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 政府委員會建議院舍優先接種　「聚焦」兩疫苗科興未上榜　許樹昌：衞生署已多次催交數據
+
+本港即將展開武肺疫苗的接種計劃，港府目前已簽訂採購協議的三款疫苗，製造商分別是中國科興、中國復星/德國BioNTech、英國牛津/瑞典阿斯利康。衞生署今日傍晚發新聞稿，表示兩個科學委員會建議聚焦於復星/BioNTech及阿斯利康供應的兩款疫苗，並讓院舍院友及職員最優先接種。至於政府原稱會最先供港的科興疫苗，則現階段榜上無名。按照政府上月說法，復星/BioNTech疫苗本季到港；牛津/阿斯利康的要下半年才到港。
+
+政府專家顧問許樹昌接受眾新聞電話訪問，解釋指主要因為科興至今未有第三期數據，他並不知道數據一再延誤發布的原因，但表示衞生署已經多番催促。眾新聞向政府查詢，包括是否知悉科興未有第三期數據的原因、科興疫苗是否仍會供港，晚上獲回覆指：「衞生署正向各與政府達成採購協議的疫苗製造商積極跟進，以盡快取得有關數據作評估及審批。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127224740im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/BioNTech-復星醫藥-疫苗-20210121215118_9532_large.jpg" alt="">
+<figcaption>復星/BioNTech供應的疫苗BNT162b2。BioNTech_Group Twitter圖片</figcaption>
+</figure>
+
+衞生防護中心轄下的疫苗可預防疾病科學委員會，以及新發現及動物傳染病科學委員會1月7日舉行聯合會議，特首專家顧問團亦都有份出席。兩個科學委員會今日發表「暫擬共識建議」，認為應聚焦復星/BioNTech供應的BNT162b2及阿斯利康供應的AZD1222兩款疫苗，兩款疫苗均需接種兩劑。
+
+委員會又建議接種優次為：
+
+**第一位** 安老院舍／殘疾人士院舍和其他院舍設施的院友及職員
+
+**第二位** 醫療機構人員及其他具高感染風險的必要服務人員，及60歲或以上人士
+
+**第三位** 年齡介乎16至59歲有長期健康問題的人士
+
+至於原定於本月供港、首批100萬劑的中國科興疫苗，則不屬是次會議的「聚焦」之列。政府專家顧問許樹昌指，「主要係佢未交資料俾衞生署，你未交我哋都無會開，我點可以建議使用呢。講緊係第三期數據，要有哂安全數據、效率，就唔係經傳媒發表、嗰啲非正式數據，要詳細報告同埋醫學雜誌都有數據咁先得。」
+
+許樹昌表示不知道科興至今未有第三期數據的原因，「以我所知，衞生署催咗佢好耐，幾多次我唔會知，因為我唔係喺衞生署做，我剩係知道佢哋都催過好多次吓。」但他補充，如果科興能盡快提交完整數據予衛生署，科學委員會一定會盡快開會審理。
+
+而事實上，科興已經至少三度延遲發表第三期臨床檢測結果，其中最大規模的臨床測試在巴西，由當地布坦坦研究所（Instituto Butantan）負責，最新說法稱有效率（effectiveness) 為50.38%，但無詳細報告。
+
+眾新聞向政府查詢，科興疫苗是否仍會供港、是否知悉科興未有第三期數據的原因，以及如果疫苗有效率僅為50.38%，是否仍滿足採購協議的要求。晚上獲回覆指，「衞生署正向各與政府達成採購協議的疫苗製造商積極跟進，以盡快取得有關數據作評估及審批。政府會確保疫苗符合安全、效能和質素的要求，以及按照《預防及控制疾病（使用疫苗）規例》（第599K章）相關要求及程序嚴格審批作緊急使用，方會安排市民接種。政府現正積極進行各項籌備工作，並會適時公布相關細節。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127224740/https://www.hkcnews.com/aboutus/#subscribe)

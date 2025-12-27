@@ -1,0 +1,55 @@
+---
+title: "青年被控前年沙田暴動　辯方質疑警方從幫港出聲及起底網站得知被告資料"
+date: "2021-10-25"
+last_updated: "2021-10-25 20:56:22"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "暴動"
+  - "網上起底"
+  - "沙田衝突"
+url: "https://web.archive.org/web/20220127090613/https://www.hkcnews.com/article/46861/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46890/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46861/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46890/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 青年被控前年沙田暴動　辯方質疑警方從幫港出聲及起底網站得知被告資料
+
+前年7月14日沙田反修例遊行，警方首次進入新城市廣場驅趕示威者，爆發警民衝突。從事殯儀業的男子被指當日向警方防線投擲水樽，被控一項暴動罪，案件今日開審。庭上透露，警方在事發後逾半年，才根據掌握資料到粉嶺拘捕被告。辯方質疑，警方是從建制組織「幫港出聲」Facebook專頁的帖文及「起底網站」，得知被告的資料。
+
+被告賴俊樂（28歲）被控於2019年7月14日，在沙田正街新城市廣場一期 L3層中庭，連同其他身分不詳的人參與暴動。
+
+<figure>
+<img src="https://web.archive.org/web/20220127090613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/沙田衝突-暴動-20211025170401_2165_large.jpg" alt="">
+<figcaption>被告賴俊樂。</figcaption>
+</figure>
+
+### 影片疑拍攝到被告投擲水樽
+
+控方在開案陳詞指，2019年7月14日，由於沙田發生一系列事件，警方進入新城市廣場及沙田港鐵站維持治安，但遭示威者包圍、投擲雜物及指罵。及後警署警長葉克勤及其隊員進入中庭，示威者一度後退，惟有5人卻衝前向警方擲水樽。
+
+控方指，被告為該5名示威者之一，當時身穿藍白色上衣，沒戴口罩。
+
+### 被告錄影會面認出擲樽男是自己
+
+經調查後，翌年3月27日，警方以非法集結罪名在粉嶺拘捕被告，他在警誡下稱：「我有去沙田，但我冇做犯法嘢。」同日他被送往上水警署接受錄影會面，從閉路電視畫面認出擲水樽男子就是他本人，並在截圖上簽名確認。同年6月9日，警方登門以暴動罪名拘捕被告，他在警誡下說：「我冇嘢講。」
+
+辯方不爭議案發時被告身處沙田，亦不爭議「我有去沙田，但我冇做犯法嘢」屬自願招認。
+
+拘捕被告的偵緝警員黃少康今供稱，去年3月27日傍晚，他按人事登記處提供的資料，往粉嶺寶聯樓尋找被告，但沒有人應門。鄰居告知被告「唔喺度住」，他於是到附近一帶尋找。
+
+<figure>
+<img src="https://web.archive.org/web/20220127090613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/沙田衝突-警員-20211025170356_2144_large.jpg" alt="">
+<figcaption>偵緝警員黃少康。</figcaption>
+</figure>
+
+### 警員稱摸門釘後　在樓下巧遇被告
+
+黃少康稱，剛好「落樓」不久，即見到一名男子拉低口罩，在垃圾桶旁吸煙。他認得該男子就是被告，於是上前展示委任證表明身份，要求男子出示身分證，繼而宣布拘捕及警誡，並將被告解往其住所搜屋。
+
+辯方質疑，警方是透過「幫港出聲」Facebook專頁帖文及「起底網站」，才得知被告的個人資料，包括其姓名及身分證號碼。黃表示不知道，他本人亦沒見過相關帖文。
+
+辯方又指，警方當日非偶遇被告，而是登門發現被告並非居於上址，遂致電要求他前來。而在被告進行錄影會面前，警員曾向被告展示一張來自起底網站的相片，要被告認出自己，黃少康全否認。
+
+案件明續。
+
+案件編號：DCCC 538/2020

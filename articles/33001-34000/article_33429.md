@@ -1,0 +1,64 @@
+---
+title: "坐下？躺下？長者的抉擇"
+date: "2020-08-31"
+last_updated: "2020-08-31 11:01:34"
+author: "香港聖公會福利協會"
+category: "眾說"
+tags:
+  - "老人家"
+  - "長者"
+  - "老人"
+  - "香港聖公會福利協會"
+url: "https://web.archive.org/web/20211027064642/https://www.hkcnews.com/article/33429/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33429/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 坐下？躺下？長者的抉擇
+
+對於行動不便或體弱的長者來說，他們大多數在日常生活中，寧願選擇躺在床上，而不是坐在椅子上休息。這是因為他們擔心長期維持坐立姿勢，可能無力支撐身體軀幹，臀部也有機會因此感到痛楚。此外，很多長者也害怕麻煩到別人，要經常勞煩照顧者把自己從床上攙扶，甚至搬到椅子上面。   
+   
+ 雖然老友記有各種擔心是一件十分正常的事，不過維持良好的坐立姿勢，其實對於長者的身體有許多好處。以下就為大家簡介一下：   
+   
+ **1.可維持身體軀幹的肌肉力量，當長者做出其他身體姿態時，姿態會較良好；**   
+ **2. 增強心肺功能及肺活量，減少肺部感染併發症的機會；**   
+ **3.承上，心肺功能強化後，全身的血液循環會更加順暢；**   
+ **4.與躺臥床上比較，能更加安全及有效地進食；**   
+ **5. 提升新陳代謝，改善排便狀況；**   
+ **6. 減少嗜睡情況，長者精神更好；**   
+ **7.增強身體活動性；**   
+ **8. 提升長者的自我形象，減少長者自視為「病患者」的感覺；**   
+ **9. 促進社交，增加長者與照顧者溝通的機會。**
+
+<figure>
+<img src="https://web.archive.org/web/20211027064642im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/老人家-香港聖公會福利協會-20200831105154_14f3_large.jpg" alt="">
+<figcaption>照片來源：PhotoPin</figcaption>
+</figure>
+
+要鼓勵長者多點坐立，我們可以建議長者使用座墊或坐姿輔具，讓長者臀部的壓力可以平均分散，從而令他們可以坐得更長時間及舒適，同時可以減少照顧者扶正長者的次數。   
+   
+ 至於怎樣才算是合適的座墊？合適的座墊應能覆蓋整個臀部、減少生出壓瘡的機會等。由於座墊的款式琳瑯滿目，特性及功能各有不同，所以建議在購買前，先向專業人士查詢一下，確保購買到功能及價錢上均合適的座墊。   
+   
+ **本文由香港聖公會福利協會「康健天地」提供**
+
+**本文的資訊內容只供參考之用，並非提供個別診斷或治療意見。如有疑問，請諮詢醫護或專業人士意見。**   
+   
+ [香港聖公會福利協會facebook](https://web.archive.org/web/20211027064642/https://www.facebook.com/hkskhwc/)   
+ [香港聖公會福利協會YouTube](https://web.archive.org/web/20211027064642/https://www.youtube.com/user/HKSKHWC)   
+ [香港聖公會福利協會Instagram](https://web.archive.org/web/20211027064642/https://www.instagram.com/hkskhwc_1966/)   
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027064642/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 香港聖公會福利協會](https://web.archive.org/web/20211027064642im_/https://www.hkcnews.com/uploads/avatars/b527d52b-faf3-490b-b905-ced398b441a9.png?1854398952)
+
+**博客 | 香港聖公會福利協會**
+
+【香港聖公會福利協會專欄】香港聖公會福利協會（簡稱福利協會）於1966年成立，本著「個別關懷・全面照顧」的服務格言和「轉化生命・活出豐盛」的服務精神提供多元化服務，包括：幼兒、青少年、家庭、長者、精神復康、醫療、輔導及培訓服務等。網頁：http://www.skhwc.org.hk/

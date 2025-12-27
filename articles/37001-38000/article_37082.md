@@ -1,0 +1,69 @@
+---
+title: "【衝擊國會】特朗普遭割席兩部長辭職　料「逼宮」機會降　據報曾研總統權力特赦自己"
+date: "2021-01-08"
+last_updated: "2021-01-08 15:05:13"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "donald trump"
+  - "donald trump jr"
+  - "特朗普"
+  - "唐纳德 特 朗 普"
+  - "當勞侵"
+  - "彭斯"
+url: "https://web.archive.org/web/20210919141629/https://www.hkcnews.com/article/37082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37084/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37082/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37084/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【衝擊國會】特朗普遭割席兩部長辭職　料「逼宮」機會降　據報曾研總統權力特赦自己
+
+美國總統特朗普支持者衝擊國會風波繼續燃燒，交通部長趙小蘭及教育部長Betsy Devos先後辭職，多個美國傳媒都引述消息說內閣曾經初步討論過引用美國《憲法》第25條修正案，令副總統彭斯即時取代特朗普總統職位，但《紐約時報》引述接近彭斯消息說他反對做法，認為引起更多混亂，據報獲其他閣員支持。
+
+儘管特朗普可能避過提早兩個星期下台，新聞網站Axios引述政府高層官員「幾乎一致」認為特朗普不適任及精神錯亂（unfit and unhinged），留任的行政官員已經準備好抵抗特朗普非法或危險的指令，直至被特朗普解僱。
+
+《紐約時報》同時報道，特朗普在選舉日後，曾向幕僚提及想史無前例地特赦自己，並詢問在法律及政治上的效果。報道指，特朗普周三一度拒絕譴責支持者衝擊國會的行為，白宮法律顧問Pat Cipollone稱，他呼籲示威者走向國會山莊及「fight」，可能招致法律後果。美國總統任內免受檢控，但卸任後失去免責權。歷史上從未有任何總統嘗試過特赦自己。
+
+特朗普美國時間周三曾出席國會外「拯救美國」集會，期間再次無根據地說選舉舞弊，並強調「我們不會退讓」、「國家受夠了」，呼籲支持者到國會山莊「制止（選舉）被偷走」（ **特朗普 [發言全文](https://web.archive.org/web/20210919141629/https://abcnews.go.com/Politics/trump-told-supporters-stormed-capitol-hill/story?id=75110558)** ）。台下則高喊「為特朗普而戰！」（Fight for Trump!）
+
+特朗普的言論事後被民主黨質疑是煽動支持者衝擊國會，當時參眾兩院正處理確認總統選舉的選舉人票程序。
+
+屬民主黨的參議院少數領袖舒默及眾議院議長佩洛西，先後呼籲副總統彭斯啟動《憲法》第25條修正案程序暫代總統，否則會支持彈劾特朗普。兩人都形容，總統特朗普煽動支持者，導致「政變」事件。共和黨國會議員中雖然只有零星地公開支持建議，但幾乎無人為特朗普辯護。
+
+運輸部長趙小蘭在給部門同事的信中證實請辭，成為首個辭職閣員。她提及，總統特朗普在國會外集會致詞，支持者其後衝擊國會一事本來完全可以避免，形容事件令人深受困擾。趙小蘭丈夫是共和黨多數黨領袖麥康奈爾，後者亦譴責特朗普支持者所為。
+
+<figure>
+<img src="https://web.archive.org/web/20210919141629im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/美國教育部-Betsy%20DeVos-教育部長-20210108144638_14b0_large.jpg" alt="">
+<figcaption>與特朗普關係良好的教育部長Betsy DeVos也請辭。</figcaption>
+</figure>
+
+事隔大半日後，一直與特朗普關係良好的教育部長Betsy DeVos成為第二個請辭的閣員。她在辭職信中指責，總統特朗普的言詞影響事態：「閣下言論對事態影響是無容置疑的，對我而言這就是轉折點。」
+
+DeVos在信中形容，本來應該慶祝本屆政府的成就，「如今我們卻要收拾暴力示威者因嘗試破壞眾人之事、蹂躪國會山莊的亂局。」她表示，是為履行對憲法、美國人民及自由的誓言而辭職。她的辭職將在美國時間周五生效。
+
+DeVos的幕僚長Josh Venable其後 [在Twitter](https://web.archive.org/web/20210919141629/https://twitter.com/joshvenable/status/1347270053608226823) 公開呼籲彭斯啟動憲法第25條修正案程序。
+
+由於啟動憲法第25條修正案程序需要彭斯加過半閣員（即至少15人中8人）支持，趙小蘭及DeVos請辭少了兩票，令內閣逼特朗普下台的機會大減。
+
+[CNBC引述消息](https://web.archive.org/web/20210919141629/https://www.cnbc.com/2021/01/07/mnuchin-pompeo-discussed-trump-removal-after-dc-riots.html) 說國務卿蓬佩奧及財長姆欽均非正式地與幕僚討論引用憲法第25條修正案的可能性，但分析執行相關程序可能耗時超過一星期、署任部長能否投票也成疑問，而逼宮可能反而令特朗普成為極右陣營的英雄。報道引述一個前高級官員說：「當下大致的計劃就是讓時間自然流走。」
+
+Axios [報道](https://web.archive.org/web/20210919141629/https://www.axios.com/trump-advisers-25th-amendment-alternative-b84640f7-0469-498d-b4cf-0ba1d873cee4.html?utm_campaign=organic&utm_medium=socialshare&utm_source=twitter) ，參議院跨黨派呼籲國家安全顧問奧布賴恩及白宮法律顧問Pat Cipollone為了國家安全及政府延續留任。據報，國務卿蓬佩奧也計劃留任到政權交接。
+
+在衝擊事件後特朗普未即時回應，罕有地是白宮新聞秘書Kayleigh McEnany先代表「整個白宮」，最強力譴責衝擊國會行為，並呼籲「檢控暴徒」。
+
+特朗普美國時間周四晚發表錄影講話，表示1月20日後會有新的政府上場，並說「能夠擔任你們總統是畢生的榮幸」。言論被廣泛解讀為特朗普首度承認落敗。
+
+特朗普同時譴責暴力衝擊，破壞美國民主，但又同時向衝入國會的支持者說「愛你們」。
+
+華盛頓署任檢察長Michael Sherwin被問及會否起訴特朗普時，表示會研究所有相關人等，「不只是走入（國會）大樓的人」，如果有證據切合相關犯罪元素，就會提出起訴。他表示，會考慮以串謀煽動、暴動罪及叛亂罪檢控衝擊國會的人，以及不排除檢控串謀的國會警察。
+
+與此同時，美國跨黨派要求調查國會保安安排，也有聲音質疑當日保安較應付其他黑人權益示威行動寬鬆。參眾兩院的警衛長（sergeant-at arms）均向兩院議長請辭，國會山莊警察總長Steven Sund亦已辭職。
+
+衝擊國會事件中，共有5人死亡，包括1名國會警察殉職，警方指他與示威群眾有肢體接觸，回到警署後倒斃地上，另一名中槍身亡的是特朗普女支持者。其餘三人據報是因為心臟病發、人踩人及中風致死。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919141629/https://www.hkcnews.com/aboutus/#subscribe)

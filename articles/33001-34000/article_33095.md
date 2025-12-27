@@ -1,0 +1,68 @@
+---
+title: "【7.1進入立會案】11人被控暴動罪　控方將呈5小時TVB片段"
+date: "2020-08-20"
+last_updated: "2021-02-01 17:24:31"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "王宗堯"
+  - "gregory wong"
+  - "王宗尧"
+  - "孫曉嵐"
+  - "劉頴匡"
+  - "7.1立法會案"
+url: "https://web.archive.org/web/20210921235552/https://hkcnews.com/article/33095/71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37714/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtvb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33095/71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37714/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtvb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【7.1進入立會案】11人被控暴動罪　控方將呈5小時TVB片段
+
+去年7.1反修例遊行期間，大批示威者進入立法會大樓，警方事後分別起訴多人暴動罪及「進入或逗留在會議廳範圍」。其中11名被告，包括港大學生會前會長孫曉嵐、民間集會團隊發言人劉頴匡、藝人王宗堯等，今午（20日）到區域法院應訊，5宗案件押後至10月16日進行答辯。控方在庭上透露，呈堂片段包括長達5小時的TVB影片，以及其他媒體的公開資料，包括約4小時的有線新聞片段。
+
+<figure>
+<img src="https://web.archive.org/web/20210921235552im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/回歸22周年-七一衝擊立法會-2019七一警民衝突-20190701232114_8aaa_large.jpg" alt="">
+<figcaption>去年7月1日，有大批示威者進入立法會會議廳。事後警方分別拘捕和起訴多人。周滿鏗攝</figcaption>
+</figure>
+
+案件原定今日進行答辯，惟辯方表示所有被告仍在處理法援事宜，需時聽取法律意見。區域法院首席法官高勁修批准押後答辯。
+
+控方另申請合併5案審理，指11名被告均涉及相同控罪和事件，亦有17至18名共同證人，包括機電工程署職員、約8名立法會職員和保安等。控方另表示將呈上長達5小時的TVB影片，以及其他公開新聞資料，包括約4小時的有線新聞片段。至於其餘呈堂新聞片的長度、涉及哪些新聞機構等詳情，控方則未有透露。
+
+就控方的合併申請，只有城大學生報編委黃家豪表示反對。辯方指黃家豪已申請法援，但需待法援律師正式接手，才能聽取相關法律意見，譬如是評估控方證據是否合適。考慮到有被告尚未完成申請法援程序，法官高勁修批准同樣押後處理合併事宜。
+
+保釋條件方面，除了「佔旺畫家」潘浩超和「佔旺女村長」畢慧芬繼續被還柙；被告何俊諺沒有申請更改條件，其餘8人申請將警署報到次數由每週一次減至隔週一次，基礎為減少疫情下的疾病傳播風險。法官高勁修考慮到公共衞生情況、被告旅遊證件已被沒收，以及過往報到記錄良好，批准辯方申請。
+
+散庭後，法院門外只有零星幾名聲援人士。除了劉頴匡留步回應臨立會爭議，其餘被告離開時亦均沒發言。穿上印有「香港同舟人」上衣的王宗堯，則在法院外舉起泰國反政府示威中常見、衍生自電影《飢餓遊戲》（The Hunger Games）的抗爭「三指手勢」。
+
+<figure>
+<img src="https://web.archive.org/web/20210921235552im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/7.1立法會案-王宗堯-20200820201027_25a7_large.jpg" alt="">
+<figcaption>王宗堯今日（20日）穿上印有「香港同舟人」的上衣出庭。邢穎琦攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921235552im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/劉頴匡-7.1立法會案-20200820200902_1ce1_large.jpg" alt="">
+<figcaption>被告劉頴匡。邢穎琦攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921235552im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/7.1立法會案-孫曉嵐-20200820200846_1ddb_large.jpg" alt="">
+<figcaption>被告孫曉嵐。邢穎琦攝</figcaption>
+</figure>
+
+5宗案件涉及共11名被告，年齡介乎20至41歲，年紀最大的是王宗堯。各人均被控一項進入或逗留在會議廳範圍罪和一項暴動罪。
+
+首宗案件的6名被告依次為：城大學生報編委黃家豪（21歲）、廚師羅樂生（20歲）、運輸工何俊諺（22歲）、「佔旺女村長」畢慧芬（24歲）、港大學生會前會長孫曉嵐（24歲），以及「佔旺畫家」潘浩超（32歲）。他們同被控一項暴動罪和各一項進入或逗留在會議廳範圍罪，控罪指6人於去年7月1日在立法會綜合大樓，與其他不知名者參與暴動；於同日違反《立法會（權力及特權）條例》第8(3) 條所發出的行政指令，即逗留在會議廳時未有遵守秩序，或遵從立法會人員為維持秩序而發出的指示。
+
+潘浩超另多被控一項暴動罪、一項刑事毀壞和一項參與非法集結罪，指他於同日在立法會綜合大樓外，與其他不知名者參與暴動；損壞政府總部大樓；以及在政府總部外連同其他身份不詳的人集結在一起，並作出擾亂秩序的行為。
+
+第二宗的2名被告為：《熱血時報》記者馬啟聰（30歲）和藝人王宗堯（41歲）；第三、四、五宗案件被告分別為：地盤工沈鏡樂（24歲）、民間集會團隊發言人劉頴匡（26歲）和吳志勇（25歲）。他們各被控一項暴動罪和一項進入或逗留在會議廳範圍罪，指他們於去年7月1日在立法會綜合大樓，與其他不知名者參與暴動；於同日違反立法會行政指令，即逗留在會議廳時未有遵守秩序，或遵從立法會人員為維持秩序而發出的指示。
+
+【案件編號：DCCC606-610/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921235552/https://hkcnews.com/aboutus/#subscribe)

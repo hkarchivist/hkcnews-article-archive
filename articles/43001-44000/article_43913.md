@@ -1,0 +1,76 @@
+---
+title: "長者適合打新冠肺炎疫苗嗎？"
+date: "2021-08-03"
+last_updated: "2021-08-04 11:57:01"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "老人家"
+  - "長者"
+  - "老人"
+  - "新冠疫苗"
+  - "接種疫苗"
+url: "https://web.archive.org/web/20210923235938/https://www.hkcnews.com/article/43913/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43955/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43913/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43955/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 長者適合打新冠肺炎疫苗嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20210923235938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/專業和你傾-老人-接種疫苗-20210803123312_1e2c_large.png" alt="">
+</figure>
+
+【撰文：老人科專科醫生馬仲儀】
+
+最近説起打疫苗，大家總是鬧哄哄；什麼現金、購物卷、甚至樓宇抽獎。一般人説到打疫苗還可以輕輕鬆鬆，但照顧者替長者和父母替子女作決定時真的要思前想後，那會貪圖小便宜呢！
+
+<figure>
+<img src="https://web.archive.org/web/20210923235938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/老夫妻-照顧者-20210802155325_1939_large.jpg" alt="">
+<figcaption>長者是否適合接種新冠肺炎疫苗？</figcaption>
+</figure>
+
+有關新冠疫苗的資訊很多，歐美藥廠的疫苗大部分是運用新的生物科技研發，大眾（甚至一般醫護人員）要理解當中原理需花頗多時間，可能因此出現了不少似是而非的傳聞。我不打算在這裏全面講解各種疫苗，只想澄清幾點：第一，目前沒有可靠的科學證據顯示mRNA疫苗會影響接種者自身的基因；第二，暫時也沒有實在的科學證據證明接種mRNA疫苗引致各樣的退化性腦科疾病；第三，接種滅活疫苗不會令人直接染上新冠肺炎。
+
+再來試試解答大家心中一些問題：患有各種心血管疾病，或所謂「三高」的長者適合接種新冠肺炎疫苗嗎？香港政府現在提供復必泰（或在外國稱輝瑞）和科興兩種疫苗，根據藥廠提供相關的資料，心血管疾病和糖尿病並非不適合接種復必泰的原因，而藥廠則提議科興疫苗接種者要留意那些長期病患的控制情況。
+
+### 接種疫苗前應留意身體狀況
+
+另外，不少長者患有一些長期腦神經科疾病，如認知障礙症、柏金遜症和各種精神科疾病，他們適合接種新冠疫苗嗎？大家可以再看看藥廠提供的資料，復必泰疫苗並未把患有長期腦神經科疾病的人列為不適合接種。最後，很多長者經常因不同原因的感染，或長期病患的病情變化而入院治療，他們又適合接種疫苗嗎？長者出院後可先休息和觀察一段短時間，若身體情況穩定便可考慮接種。面對一些體弱或有較多長期病患的長者，照顧者亦應在接種疫苗前數天開始留意他們的身體狀況和維生指數。
+
+<figure>
+<img src="https://web.archive.org/web/20210923235938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/新冠肺炎-疫苗-接種疫苗-20210802155443_2885_large.jpg" alt="">
+<figcaption>接種新冠肺炎疫苗和各類心血管併發症，甚至死亡，有關係嗎？</figcaption>
+</figure>
+
+相信大家心中最想知道的就是：接種新冠肺炎疫苗和各類心血管併發症，甚至死亡，有關係嗎？較早前，政府專家顧問委員會已向公眾解釋，他們在審視過所有呈報個案後，得到了當中沒有關連的結論。換個角度思考，現時所有新冠肺炎疫苗都是在緊急情況下推出應用，無論科研製造和臨床安全性觀察的時間都被縮短了，大家有這樣的疑慮也十分合理。我只能說以色列和歐美一些國家已替數以萬計長者，包括體弱的，接種了復必泰疫苗，他們的數據暫未有看到那些併發症數字和死亡率飆升；相反，研究証實復必泰疫苗能令長者引起足夠的免疫系統反應和繼而帶來臨床保護。
+
+有照顧者認為長者長期留在家中或院舍，很少社交活動，可以不需接種。可惜，長者在疫情下很被動，容易被身邊人和照顧者感染，他們的病情一般較嚴重，併發症多，死亡率高，因此他們是社會上最應該廣泛和及早接種的一群，而現時我們能選擇的兩種新冠肺炎疫苗，都能有效減低他們得重症和死亡的機會。再者，很多住在院舍的長者在疫情期間都被迫與家人分隔，這對他們的身心健康有很壞的影響，似乎只有長者和他們的家人都接種疫苗，最能令大家安心讓他們重聚。
+
+<figure>
+<img src="https://web.archive.org/web/20210923235938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/老人院-20170721210636_1c65_large.png" alt="">
+<figcaption>長者長期留在院舍，可以不需接種疫苗？</figcaption>
+</figure>
+
+### 發燒代表身體對疫苗產生反應
+
+照顧者又應如何留意長者接種疫苗後的身體變化呢？一般對疫苗的過敏反應在接種後短時間，至兩、三天內出現，和一般藥物敏感反應相若。發燒是接種後最常見的情況，這代表身體正在對疫苗產生反應，建立免疫力，所以不需過份害怕。有些長者不會發燒，他們可能只有肌肉疼痛，疲憊或精神食慾不振等徵狀。我們除了要讓長者多休息和吸收足夠水份外，更要多留意他們的進食和精神狀況。如長者持續發燒，維生指數異常，或接種後兩、三天後狀態仍然欠佳，便應帶他們求醫。
+
+政府專家顧問們為了讓社會盡快建立群體免疫，當然會勇往直前地推廣接種新冠肺炎疫苗；前線醫護人員、照顧者和家長在替自己的病人、長者和子女考慮時小心謹慎，平行各方利弊更是無可厚非。接種疫苗一事並非只有一面，無論在科學、公共衛生及醫療道德的層面上同樣值得深入討。每人在這事上都應有權表達自己意見、得到充分資訊，和自行作出選擇；猜度、斥責、威脅和道德綁架只會令社會和成功抗疫的目標愈走愈遠。
+
+**作者簡介：** 馬仲儀，公共醫療醫生協會會長，老人科專科醫生，亦有復康科專科資格。中大醫學院畢業，經歷沙士襲港，關注老人及基層的醫療健康。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923235938/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20210923235938im_/https://www.hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

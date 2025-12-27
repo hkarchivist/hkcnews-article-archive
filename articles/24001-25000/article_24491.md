@@ -1,0 +1,63 @@
+---
+title: "警員身上展示「行動呼號」　議員質疑前線未必跟從"
+date: "2019-10-29"
+last_updated: "2019-10-29 05:50:44"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+  - "委任證"
+  - "行動呼號"
+url: "https://web.archive.org/web/20210924092434/https://www.hkcnews.com/article/24491/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24498/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24491/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24498/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警員身上展示「行動呼號」　議員質疑前線未必跟從
+
+警察公共關係科總警司謝振中昨表示，警隊將會實施新措施，警員會在制服上顯示寫有行動呼號的白色硬卡，代表其所屬的部隊、小隊及崗位，每位警員都有其獨有的行動呼號，稱新措施可讓市民辨識，同時保護警員私隱。公民黨立法會議員楊岳橋質疑，前線警員會否依從規矩顯示行動呼號。
+
+<figure>
+<img src="https://web.archive.org/web/20210924092434im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/1027尖沙咀旺角衝突-行動呼號-20191029013351_e59f_large.jpg" alt="">
+<figcaption>周日晚上，有警員在本來擺放委任證的位置，展示其行動呼號。黃思銘攝</figcaption>
+</figure>
+
+謝振中指，過往行動部隊如機動部隊的警員亦有使用行動呼號，作內部識別崗位之用，而過去一星期部分在示威現場的警員亦有使用，為平衡市民識別警員身份，同時顧及警員私隱保護，會將行動呼號這措施，逐步分階段推展至有份參與處理示威行動的部隊，市民如欲投訴，可向警察投訴科提供此行動呼號。
+
+另外，謝振中稱，警員蒙面並非為逃避法律責任或避免起底，而是保護裝備，因為有警員曾被攻擊面部，因此警隊提供頭部及臉部的保護裝備，包括面罩、抗火罩、防鎅護頸箍。謝又稱，警員樣貌從來不是識別警員身份的唯一可行方法，透過行動代號識別一樣有效。
+
+便衣警員現時未有行動呼號，亦未有展示警員編號，被問到新措施的推展時間表時，行動部高級警司汪威遜說，警方會不斷檢視，反問為何大家針對警方一定要顯示編號，「當警方出示唔到或者有裝備遮住嘅時候，大家將呢件事放大，話點解我哋警方冇做到，不如大家諗一諗，當你每一日做十幾個鐘頭，每一日我哋同事仲要擔心屋企人被起底，自己小朋友返學驚有其他事情，屋企出入都驚佢哋唔安全。但我哋同事每一日都喺度做緊嘢。畀你哋，你哋會點面對呢個困難？」
+
+<figure>
+<img src="https://web.archive.org/web/20210924092434im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/20191029012747_1fa4_large.png" alt="">
+<figcaption>被要求提供行動呼號措施的推展時間表時，汪威遜說，警隊壓力大，希望大家體諒。香港電台截圖</figcaption>
+</figure>
+
+汪威遜說，警方推行行動呼號的措施就是希望做得更好，「如果大家再將呢樣嘢放大，話警方不是，邊樣做得唔好……希望大家諒解我哋同事面對嘅壓力有幾大，點樣可以幫到我哋同事。」汪又提及警員面對網上起底的傷害，「大家要畀力量我哋警隊去為香港做嘢，支持係重要過挑剔點解警方呢度做得唔好。」他指，現時無辦法回答何時才可以做到，呼籲體諒要花時間實行新機制，只表示會盡快做。
+
+有組織罪案及三合會調查科高級警司李桂華表示，刑偵警員比軍裝警員較困難設立行動呼號，因為軍裝警員有陣式，在設立行動呼號方面會較易處理，但刑偵警員卻沒有此種安排，但他表示相當認同應有統一的行動呼號，對公眾辨認警員身份有很大幫助，期望社會可以給予時間建立準確的系統。
+
+不過，眾新聞周日晚在旺角拍得，有警員在胸前擺放委任證的位置，擺放區徽或貼上貼紙，並未有展示委任證或行動呼號。公民黨立法會議員楊岳橋質疑，前線警員是否會依從規矩顯示行動呼號，是極大疑問，「你有政策，我有對策。」他又質疑為何警方要用「旁門左道」，「有編號咪用編號囉，點解唔堂堂正正，畀市民知道執法中嘅警員係咩人？」
+
+<figure>
+<img src="https://web.archive.org/web/20210924092434im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/行動呼號-1027尖沙咀旺角衝突-20191029013359_9844_large.jpg" alt="">
+<figcaption>周日晚上，有警員沒有展示委任證或行動呼號，心口擺放了區徽。黃思銘攝</figcaption>
+</figure>
+
+至於催淚彈射中商店、巴士，汪威遜表示希望市民明白，現時警方的措施是希望減低與示威者近距離接觸的機會，減低肉博而造成的傷害，而要令措施有效，就不免要針對一群人，如發射催淚彈，也無辦法控制只有某幾個目標對象受影響；如發射水劑，也無法只針對著某個對象。汪威遜指，基於武器上的限制，不免影響到其他地方，警方會就此致歉，亦提醒市民，當有地方受暴力衝撃、非法集結時，不應在附近出現，「當武器係會影響到你嘅時候，你反而掉番轉問點解會影響到我，點解唔係針對嗰啲暴力人士，我相信警方做到嘅嘢有限。」
+
+**周日晚在旺角，多架車輛堵塞在馬路中間，警方卻發射多枚催淚彈，催淚煙飄入巴士，司機不適：**
+
+
+{{< video src="https://web.archive.org/web/20210924092434if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Fhkcnews%2Fvideos%2F2475344279413638%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924092434/https://www.hkcnews.com/aboutus/#subscribe)

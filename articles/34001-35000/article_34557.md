@@ -1,0 +1,68 @@
+---
+title: "教師被開刀　月娥撐飯蓋　暗批梁振英"
+date: "2020-10-06"
+last_updated: "2020-10-07 04:03:59"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "leung chun ying"
+  - "梁振英"
+  - "689"
+  - "CY Leung"
+  - "思歪梁"
+  - "狼英"
+  - "梁特"
+  - "梁特首"
+  - "港獨之父"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "教師釘牌"
+url: "https://web.archive.org/web/20211025004744/https://www.hkcnews.com/article/34557/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34558/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34557/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34558/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教師被開刀　月娥撐飯蓋　暗批梁振英
+
+
+{{< video src="https://web.archive.org/web/20211025004744if_/https://www.youtube.com/embed/kR7K-qLdrN4" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211025004744/https://bit.ly/2Cj8v4t)
+
+前特首梁振英近日發難，狙擊教育局hea處理被裁定專業失德的教師，不點名教育局局長楊 潤雄，指有人對國家主席習近平的說話，「為官避事平生恥」，當作耳邊風。他更以自己牽頭成立的803基金出手，申請司法覆核，要求教育局公開被裁定專業失德的教師資料。楊潤雄周一（5日）早上仍撐按現行機制和程序處理個案，晚上「跪低」交「人頭」 ，公布以嚴重專業失德為由，取消一名教師註冊。
+
+教育局宣稱該名教師在設計的校本教案、教學材料及工作紙，有計劃地散播港獨信息。特首林鄭月娥周二早上見記者，仍「死雞撐飯蓋 」，指以往的政府從未做過DQ（原話是de-register ）教師，指以往並非沒有有關問題，而是以往比較「避難」， 她做特首的現屆政府則迎難以上。林鄭不點名反駁梁振英，「小學雞鬥咀」味道濃。
+
+
+{{< video src="https://web.archive.org/web/20211025004744if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F1656862184490151%2F&show_text=0&width=560" >}}
+
+
+梁振英鞭韃楊潤雄，可說是衝著林鄭而來。林鄭發火，在記者會公開批評教育局晚上只以「回應傳媒查詢」的方式公布事件，而並非透過新聞公布，情況不理想，應該要加強透明度，所以已要求教育局局長下午召開記者會，以詳細紀錄在案的方式交代事件，亦指政府新聞處網頁沒有上載局方回應。
+
+林鄭被CY奚落，拿教育局和GIS出氣，再借「迎難以上」向CY放箭，自以為「好打得」，實際上是已被梁振英及中聯辦（涉事教師個案由親中報章界率先報道）牽著鼻子走。
+
+林鄭要證明比「以往的政府」（主要是梁振英政府）強硬，不避困難，要擴大打擊面，不但取消一位教師註冊，更揚言要揪出害群之馬，DQ將陸續有來。林鄭不惜冒法律訴訟風險，與全港最大教師工會對著幹，在學校散播白色恐怖，政府與教師關係更緊張。她被問到近日有大學民主牆被張貼有關港獨的標語時，表明港區國安法要求學校、社會團體、傳媒等加強國安法的宣傳及教育，大學亦責無旁貸，教育局局長將會與各大學校長會面，了解如何落實相關要求。
+
+楊潤雄及官員下午解畫交代個案，是自暴其短，缺乏理據。只因一個家長投訴、一個報章頭版報道、兩節課堂、一張工作紙，一位教師教學生涯告終。教師被視為魔鬼香，港教育進入白色恐怖年代，舉報有獎，教育工作者人人自危、互信破產年代，有能力的家長將加快送走子女到外國升學，再留下發展。
+
+香港百多年前是一灘爛石，經過幾代人努力，創造經濟奇績，將香港打造成國際都會，香港教育制度一直有不少「老、大、難」問題，但在本地教育制度下，仍能孕養不少各方人才，支援社會和經濟發展，今日再被林鄭形容為「無掩雞籠」。
+
+2016年下半年，梁振英管治4年，社會嚴重撕裂，發展停滯不前，2017年特首選舉開始醞釀，社會上出現ABC，anyone but CY，即誰人做都比梁振英好的說法。林鄭上任3年多，港人沒有懷念梁振英年代，林鄭不比梁振英好，甚至更差，比梁振英更「梁振英」；她不點名說自己比以往政府不「避難」 ，令人更驚慄，可以預見，一場教育災難即將來臨，而香港災區處處。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025004744/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211025004744im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

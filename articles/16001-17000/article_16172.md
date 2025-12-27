@@ -1,0 +1,61 @@
+---
+title: "觀光業的吊詭"
+date: "2018-11-03"
+last_updated: "2018-11-03 14:33:45"
+author: "華人基督徒義顯社"
+category: "眾說"
+tags:
+  - "澳門"
+  - "旅遊業"
+  - "威尼斯"
+url: "https://web.archive.org/web/20210919120121/https://www.hkcnews.com/article/16172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/16172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 觀光業的吊詭
+
+【撰文：言而】
+
+全世界每10個人當中至少有一人從事觀光業，以總體經濟力而言，旅遊業與石油、能源、金融及農業屬於相同等級，它在2007年對世界經濟貢獻了七兆美元，也是最大的僱主。然而，當地居民真的受益嗎？
+
+早在19世紀就被視為露天博物館的威尼斯，卻被聯合國教科文組織警告，其觀光業可能將這城市推向一座積水的墓地。單是停泊在碼頭的巨型郵輪，一艘船的柴油引擎所造成的空氣污染，就相當於每天一萬兩千輛怠速汽車總合的污染量，對這座禁止汽車通行的城市，真是一個悲哀的玩笑，也提醒我們觀光業並不是真正零污染的無煙工業。
+
+<figure>
+<img src="https://web.archive.org/web/20210919120121im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/威尼斯-城市-旅遊業-20181103070738_2962_large.jpg" alt="">
+<figcaption>因為租金和樓價太貴，很多威尼斯人被迫離開自己的家鄉到其他意大利城市生活。圖為威尼斯民眾上演一場威尼斯喪禮，諷刺這個城市已死。美聯社資料照片</figcaption>
+</figure>
+
+此外，觀光行業在當地市政官員的保護下，本地威尼斯人反而再無法在家鄉立足。租金及房地產不斷飆漲，不少民居被拆卸成渡假別墅給富裕的外國人享用，觀光客住宿的房產足足增加了450%，而區域劃分的法規又往往獨厚飯店業與國際連鎖業者。另一方面，供應日常必需品的小商店頻頻結業，市面大量充斥着只有遊客問津的商品，不少還是冒牌複製威尼斯手工藝的外國進口贗品，以致很多當地的業者或居民，除了無法從觀光業得益外，還因負擔生活開銷太重，而被迫遷離土生土長的家園。
+
+再看近如澳門，這十多年賭博旅遊業發展速度驚人，單從賭博業的收入便曾高於拉斯維加斯的10倍，人均GDP一躍成為亞洲之冠，失業率長期低於2%。可是，正如在李展鵬所著之 [《隱形澳門：被忽視的城市與文化》](https://web.archive.org/web/20210919120121/https://www.hkbookcity.com/showbook2.php?serial_no=1383823) 中指出，澳門卻逐漸變成不宜居又不宜遊的城市。
+
+<figure>
+<img src="https://web.archive.org/web/20210919120121im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/隱形澳門：被忽視的城市與文化-書籍-澳門-20181103065908_2946_large.jpg" alt="">
+</figure>
+
+表面上澳門每年派錢，卻沒有將資源充分投建在有需要的民生建設及配套上。樓價及租金高漲令通貨膨脹問題劇化，薪水追不上物價，而公共房屋又一直未能滿足基層市民的需求。大量湧入的勞工令澳門成為世界人口密度最高的地方，交通丶水電設施也追不上發展，但這個小城市每年卻要接待三千萬遊客，等於台灣的三倍，不但居民，甚至遊客都常一車難求，叫苦連天。
+
+<figure>
+<img src="https://web.archive.org/web/20210919120121im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/360全景-旅遊-澳門-20171223210805_1e14_large.png" alt="">
+<figcaption>遊客必到的澳門旅遊景點大三巴牌坊。黃志全攝</figcaption>
+</figure>
+
+當一個城市只看到遊客是米飯班主，而忽略了居民的人文生活也是觀光的一部分時，也就是旅遊業走逆向的警鐘。失去了當地人民支持和社區連結的景觀，只會淪為沒有人文精神襯托的外殻。   
+   
+ 觀光業是兩刃的利劍，發展得宜，居民與遊客便能共融共享。若只看眼前收益而犧牲了民生，造成擾民迫民，那麼不必要的對立反令旅遊業開倒車，頓失良機。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919120121/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 華人基督徒義顯社](https://web.archive.org/web/20210919120121im_/https://www.hkcnews.com/uploads/avatars/81bc8451-efb1-4dc2-9482-f5b0c5859fce.png?76270930)
+
+**博客 | 華人基督徒義顯社**
+
+【華人基督徒義顯社・義顯之聲】組織使命為：彰顯神國公義，普及社會倫理，結合靈修社參，服事華人教會。

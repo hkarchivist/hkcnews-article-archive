@@ -1,0 +1,76 @@
+---
+title: "【禁堂食】深水埗街坊高溫下路邊開餐　中式麵家負責人：只能捱多兩、三個月"
+date: "2020-07-29"
+last_updated: "2020-07-29 21:49:01"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "飲食業"
+  - "第三波疫情爆發"
+  - "禁堂食"
+url: "https://web.archive.org/web/20210729093710/https://www.hkcnews.com/article/32413/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32418/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32413/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32418/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【禁堂食】深水埗街坊高溫下路邊開餐　中式麵家負責人：只能捱多兩、三個月
+
+食肆全日禁堂食措施今日生效，暫維持七天。午飯時間，港九新界都有基層工友被迫要在公園或街頭開餐，期間還有斷斷續續的驟雨襲來，令人感慨。
+
+措施令飲食業步入寒冬，不少食肆選擇今日起關閉以減省成本。深水埗有中式麵家負責人認為，政府禁堂食措施「非常無謂」，指早前禁晚市堂食，生意額已下跌了五成，預計未來六日生意額會暴跌九成，指麵家只能捱多兩、三個月。
+
+記者今日中午時份在深水埗一帶觀察，發現街上的人流並不多，只有鴨寮街較多人。附近的西九龍中心更是人迹罕至，有保安員向記者表示，以往晏晝飯時間，有很多人前往頂層的美食廣場，因為價錢平、種類多，一向很受深水埗街坊歡迎，但今日商場如此冷清，他相信因為禁堂食措施生效，令商場的人流比之前減少七成。
+
+<figure>
+<img src="https://web.archive.org/web/20210729093710im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/禁堂食-香港人-深水埗區-20200729193324_2075_large.png" alt="">
+<figcaption>深水埗今日不少人汗流浹背，坐在街頭吃飯。   曾港深攝</figcaption>
+</figure>
+
+在人來人往的鴨寮街，有一名中年大漢坐在石凳，汗流浹背地吃着鳳爪排骨飯、喝着兩罐大啤酒，中間還夾雜着不少噯氣，看似十分享受。記者上前了解，他說是從事建築工程，準備在附近上班，因為擔心開工後沒有時間吃飯，故決定在上班前「食個快飯」，他又笑說：「好又一餐，唔好又一餐，都要食㗎啦。」
+
+這位先生說，平日極少在戶外吃飯，因為他很怕熱，向來堂食居多，「而家就冇計啦，唉，仆街政府淨係識做埋啲無謂嘢，錢又唔見佢派多啲喎！」說罷他便稱趕時間吃飯，不願多談。
+
+<figure>
+<img src="https://web.archive.org/web/20210729093710im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/禁堂食-口罩-20200729192958_2f18_large.jpg" alt="">
+<figcaption>陳伯不是無家者，多年買飯盒在公園吃，志在與友人聊天相聚。曾港深攝</figcaption>
+</figure>
+
+70多歲的陳伯，選擇在南昌街休憩處吃飯。他並非露宿者，但指多年來都是買飯盒在公園吃，當然沒有堂食般舒服，但志在與友人聊天相聚。但可能因現時疫情嚴峻，一向與他「打牙骹」的友人已經兩星期沒出現，這個公園仔近日也只餘下陳伯「打躉」。陳伯說：「肺炎呀嘛，個個都唔出街㗎啦，正常嘅。」他又笑說：「最緊要佢唔好無啦啦死咗就得㗎喇！」記者在他身上，感到淡淡憂傷與孤單。
+
+陳伯對於政府的禁堂食政策不置可否，反問記者：「點會有人覺得個政府係做得好？如果個政府係做得好，之前就唔會有咁多人出嚟搞事啦！啲人出得嚟搞事，就係唔滿意個政府囉！」
+
+天氣非常炎熱，間中更夾雜着雨點，一名男子手持一個燒味飯盒，站在連接西九龍中心及基隆街的行人天橋上進食。
+
+<figure>
+<img src="https://web.archive.org/web/20210729093710im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/第三波疫情爆發-禁堂食-深水埗區-20200729190111_ab68_large.jpg" alt="">
+<figcaption>朱先生指，這是他人生首次「企喺街邊」食飯。曾港深攝</figcaption>
+</figure>
+
+今年65歲的朱先生向記者表示，他在深水埗基隆街一間燒臘店購買飯盒後，四處尋找可吃飯的地方，本來打算在附近的南昌休憩處坐低，但剛才突然滂沱大雨，公園的枱櫈全濕，故打消了念頭。由於天氣炎熱，朱生希望找到一個有瓦遮頭的地方進食，「30幾度暴曬，點食啊？」最終他決定在連接西九龍中心及基隆街的行人天橋上，站立進食，「企喺度食，都起碼好過俾雨淋濕，或者曬到中暑。」
+
+對於政府全面禁堂食，朱先生感到非常不解：「排隊買飯嗰陣，咪又係好多人聚集！咁以後係唔係連排隊買飯都要禁先？」他亦覺得禁堂食對防疫「一啲用都冇」，因為市民買完飯盒返回辦公室或居所吃飯時，都是一同吃飯的。朱先生一邊大啖大啖地吃着叉燒燒肉飯，一邊跟記者說：「我真係人生第一次喺街邊企喺度食飯！」他又抱怨：「拎住個飯盒，拎到隻手都酸酸地，估唔到食個飯都要咁辛苦。」
+
+衛生防護中心傳染病處主任張竹君，回應食肆全日禁堂食的措施時，呼籲市民如果在戶外進食亦要注意個人衛生，盡量單獨用膳，不要聚集和聊天，盡快進食完畢便佩戴口罩。她又提醒市民不要將食物周圍放，用膳後要包好飯盒，清潔地方。對於有清潔工人在洗手間內用膳，張竹君指要盡量避免，因為就算沒有感染新冠病毒，也可能會食物中毒。張又認為，最理想是僱主容許員工在家工作，「如果僱主可以安排（員工）唔使返工就更加好啦。」
+
+<figure>
+<img src="https://web.archive.org/web/20210729093710im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/禁堂食-食環署-20200729193252_309f_large.jpg" alt="">
+<figcaption>食環署派出人員到深水埗一帶巡視食肆。曾港深攝</figcaption>
+</figure>
+
+第三波疫情令飲食業步入寒冬，不少食肆今日起關閉以減省成本。有食環署職員到深水埗一帶巡視，檢查食肆有沒有遵守禁止堂食的規例。位於深水埗汝州街的禧記麵家負責人梁先生認為，政府禁堂食措施「非常無謂」，指除了對飲食業帶來極大的衝擊外，對控制疫情並沒有任何幫助，「根本就唔關堂食事，係有好多人入境豁免搞到而家咁咋嘛！你而家無啦啦禁堂食，搞到幾多人幾鬼陰公，要踎喺街邊食飯，難聽啲講句，香港人喺林鄭面前仲衰過乞兒！」
+
+梁先生提及早前政府禁晚市堂食，其麵家的生意額已下跌五成，預計本周生意額會暴跌九成。他表示，禧記麵家一向以堂食客為主，外賣生意根本不能彌補禁堂食的損失：「做1000碗外賣，都不及做500碗堂食」。他又指出，現時只做外賣的成本，其實比堂食更加高，「外賣碗、外賣盒、即棄餐具同埋膠袋，呢啲都係錢嚟。」梁先生又提到，麵家由今晨7時開門營業到下午2時許，只做了約十宗生意。記者訪問期間，未見有顧客。
+
+梁先生擔心若果疫情持續，政府繼續收緊防疫政策，或令出街買外賣的人也減少，麵家未必捱得下去，在現時收支極不平衡之下，連帶僱員有機會被迫放無薪假、停工甚至裁員，這次禁堂食措施可謂「加速」他們倒閉的可能性，他預計麵家只能捱多兩、三個月。他希望政府盡快計劃對中小企發放新一輪的紓困措施，加大「防疫抗疫基金」的資助範圍和金額，並勸喻業主減租，助小商戶走過寒冬。
+
+<figure>
+<img src="https://web.archive.org/web/20210729093710im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/禧記麵家-禁堂食-20200729194320_1613_large.jpg" alt="">
+<figcaption>禧記麵家負責人梁先生認為，只要食肆清潔及防疫措施做足，根本不需要禁堂食。曾港深攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729093710/https://www.hkcnews.com/aboutus/#subscribe)

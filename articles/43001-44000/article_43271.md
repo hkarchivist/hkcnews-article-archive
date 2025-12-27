@@ -1,0 +1,57 @@
+---
+title: "羅健熙辭區議員　放下約束續地區工作　民主黨「不說永不參選」"
+date: "2021-07-11"
+last_updated: "2021-07-11 20:21:45"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "民主黨"
+  - "Democratic Party"
+  - "the democratic party"
+  - "羅健熙"
+  - "DQ區議員"
+url: "https://web.archive.org/web/20210919170739/https://hkcnews.com/article/43271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43273/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43273/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 羅健熙辭區議員　放下約束續地區工作　民主黨「不說永不參選」
+
+身兼南區區議會主席的民主黨主席羅健熙在政府傳就宣誓安排發信前夕，宣布辭去區議員職務，並代表辭職的民主黨區議員向市民致歉及希望市民諒解。他接受傳媒訪問時表示，民主黨區議員及個人都會繼續延續地區工作，反而期待沒有DQ陰霾的約束下做好社區工作，形容「關上一扇窗，就打開另一道門，繼續前行」。
+
+北京早前說選舉中不搞「清一色」，但港府透過放風變相逼區議員辭職。羅健熙批評政府對DQ區議員一事回應模糊，但現階段不會回應民主黨會否參選立法會或是否轉型，「不會說我們永遠不參選」，「現在不會rule out任何可能性」，具體仍留待9月會員大會定奪。
+
+相關新聞： [區議員「骨牌式」辭職　南區區會「最後」的日常　主席羅健熙散會前寄語：大家珍重](https://web.archive.org/web/20210919170739/https://bit.ly/36kRGDC)
+
+<figure>
+<img src="https://web.archive.org/web/20210919170739im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/羅健熙-20210711165424_262a_large.jpg" alt="">
+<figcaption>羅健熙（中）早前主持相信是宣誓前最後一次區議會。資料圖片</figcaption>
+</figure>
+
+坊間傳政府最快周一（12日）就宣誓安排向區議員發信，根據親建制《星島日報》早前引述不具名消息報導，即使收到信件後辭職，也有可能被認定違反誓言而追討薪津。連串傳言引發區議員「骨牌式」請辭，目前過半民主派區議員已經辭職，當中包括多名區議會正副主席。本身最大黨的民主黨中也有約一半區議員辭職。
+
+這波辭職潮最終燃燒至黨主席及2008年首次參選、2011年當選的羅健熙身上。他證實，周日下午向民政事務署署長謝小華發信辭去區議會職務。他形容決定糾結及感到十分遺憾，過去兩日考慮到政府不願意講清楚宣誓立場，加上財政負擔，及自己仍有地區工作想推展，如果不確定未來將影響地區工作。他批評，政府本來說盡快宣誓，其後拖延處理，然後透過放風處理嚴肅事件，批評政府雙重標準及亂畫紅線。
+
+他形容：「2019年出去投票的市民，呢票被政府攞走咗。」
+
+羅健熙今天下午以視像訪問見記者時，對政治形勢判斷未有太大改變，多數留待9月民主黨會員大會再決定，反而較多篇幅談及支援區議員繼續地區工作。他身後則掛上寫有已故南非總統曼德名言：「May your choices reflect your hopes, not your fears」的布袋。
+
+<figure>
+<img src="https://web.archive.org/web/20210919170739im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/DQ區議員-羅健熙-20210711184906_1769_large.png" alt="">
+<figcaption>羅健熙見記者（視像訪問截圖）</figcaption>
+</figure>
+
+他接受眾新聞查詢時直言，過去民主派雖然在區議會是少數，但政府仍會尊重，但過去一年半區議會受阻撓實在太多，甚至有如監察區議員。
+
+「今屆越來越過火，一掂到政策就要交給總署，搞一輪然後先過到，對區議員工作是好多constrain，我自己真心諗無constrain後更加自由。過去十年（區議會）會否反而限制了想像？所以對之後地區工作，我是期待的。」羅健熙如是說。
+
+雖然民主黨一半區議員辭職，羅健熙強調區議員「完全無法放底」社區，他個人也計劃由區議會主席額外薪津中資助開地區辦事處及服務，強調對區內承諾不受影響。他補充，民主黨也會資源上盡量支持地區工作，同時支援留任的區議員，「原則上希望可以幫到幾多就幾多。」
+
+至於中央官員聲稱選舉制度不搞「清一色」，但香港及澳門溫和民主派的空間越見收窄。羅健熙說，一直認為北京對所謂「清一色」及「混一色」的定義很彈性，就算民主黨可選都是篩選後才入閘。他也形容，對澳門DQ感到頗震驚，但香港狀況仍有待正式選舉時觀察，包括屆時入閘、提名及資格審查委員會的運作。他重申，到9月會員大會才決定會否參選，至於自己會否參選，他說持開放態度，「如果黨覺得派人參選，我是會接受黨的任務」，如果黨決定不參選，他自己也不會參選。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919170739/https://hkcnews.com/aboutus/#subscribe)

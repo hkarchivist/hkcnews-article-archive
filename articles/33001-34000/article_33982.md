@@ -1,0 +1,47 @@
+---
+title: "特首應人道援助內地被扣港人"
+date: "2020-09-18"
+last_updated: "2020-09-18 17:27:15"
+author: "王永平"
+category: "眾說"
+tags:
+  - "三權分立"
+  - "12港人"
+url: "https://web.archive.org/web/20210920210442/https://www.hkcnews.com/article/33982/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33995/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33982/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33995/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 特首應人道援助內地被扣港人
+
+12名港人因參與反修例運動，涉嫌觸犯多項罪行，企圖逃離香港期間，被內地公安拘捕，關押在深圳鹽田看守所。執筆時，這批港人(絕大多數是年輕人)已被監禁二十多天，尚未獲准會見家人，也未能由家人委託的律師處理案件。一些需要定期食藥的被囚人士也未能獲得家人提供的藥物。政府對此事的回應是千篇一律的兩點：第一，這批港人涉嫌非法入境內地，觸犯偷越國(邊)境罪，屬內地司法管轄範圍，依照內地法律處理，特區政府予以尊重及不會干預；第二，政府會透過駐粵辦及入境處官員，向被囚人士及其家人提供協助。
+
+<figure>
+<img src="https://web.archive.org/web/20210920210442im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/非法越境-20200912205133_bd69_large.jpg" alt="">
+<figcaption>12被扣內地港人的家屬上周六(12日)召開記者會，希望當局關注及回應訴求。</figcaption>
+</figure>
+
+政府的第一點回應，其實是今天港人耳熟能詳的政治正確表述。我相信沒有被囚人士的家人會奢望政府要求內地酌情處理，把這批逃犯移交香港審訊。這批港人面對內地司法的審訊和判刑，已是自己及其家人須接受的現實。儘管如此，政府有關的回應未免顯得官僚，甚至有點冷漠。
+
+港人心知肚明，內地依法保障犯人的權利，與香港的情況是兩個世界。被內地公安拘留的犯人，可以多天甚至多月被隔離，不能與家人會面，依然是有法可依。至於在內地安排律師替疑犯辯護，期間涉及的程序和審查，以至最終可能須接受當局指派的律師，也是生活在香港的人難以想像的複雜。更大的分別是，與香港的三權分立(或三權分置)不同，內地是一黨之下，三權合作。而在合作方面，論資排輩和人事關係，倘若運用得宜，可以事半功倍。換句話說，現在政府只是依靠駐粵辦和入境處的中層官員向被扣押的12名港人提供協助，其成效恐怕極為有限。
+
+**假如在其網誌只講原則的保安局長李家超可以參與協助，一些合理要求(例如轉交藥物)便可能快些達致。當然，最能發揮作用的是中央信任的特首林鄭月娥。假如她願意向內地有關部門提出對該12名港人提供符合港情的人道待遇(即使一些要求可能需要內地酌情處理)，我相信他們的情況會有所改善，而他們的家人也可稍為安心。這樣做亦會提升政府的民望和港人對中央的印象。**
+
+有關在台灣被扣留的偷渡港人的情況，下回再談。
+
+本文原載於筆者在 [am730專欄](https://web.archive.org/web/20210920210442/https://www.am730.com.hk/column/%E6%96%B0%E8%81%9E/%e7%89%b9%e9%a6%96%e6%87%89%e4%ba%ba%e9%81%93%e6%8f%b4%e5%8a%a9%e5%85%a7%e5%9c%b0%e8%a2%ab%e6%89%a3%e6%b8%af%e4%ba%ba-235427)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920210442/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20210920210442im_/https://www.hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

@@ -1,0 +1,56 @@
+---
+title: "大學開學日　中大設拍卡機入口朝早排長龍"
+date: "2021-09-06"
+last_updated: "2021-09-06 19:45:23"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中文大學"
+  - "開學"
+  - "拍卡機"
+url: "https://web.archive.org/web/20211128173855/https://www.hkcnews.com/article/45091/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45091/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 大學開學日　中大設拍卡機入口朝早排長龍
+
+中大早前發聲明，指8月30日起於校園入口增設閘機，師生須透過拍卡器驗證其智能卡。中大今（6日）開學，早前仍在施工的大學站A出口往校園入口之前已安裝了2部拍卡器，不少師生必須拍卡通過，惟現場只有2部拍卡機，難以應付大量人潮，導致朝早繁忙時間出現長長的人龍。
+
+<figure>
+<img src="https://web.archive.org/web/20211128173855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/中文大學-拍卡機-開學-20210906175858_2c43_large.jpg" alt="實習記者張樂樂">
+<figcaption>大學站A出口往中校園入口前剛安裝了拍卡機，在今天開學日早上，因有大批師生返校，但現場只有兩部拍卡機，導致出現長長的人龍。張樂樂攝</figcaption>
+</figure>
+
+記者在現場所見，入口處保安亭設有四條通道，分別供4類人士進入中大校園：
+
+‧ 「中大智能卡」：持有有效中大智能卡（中大通、中大圖書證）的師生可拍卡進入校園；
+
+‧ 「其他中大證件 / 訪客二維碼」：持有其他中大證件（如校友信用卡、短期課程學生證等）或訪客二維碼須於檢查處出示相關證明；
+
+‧ 「其他訪客」：須於另一通道登記身份證明文件方可進入校園；
+
+‧ 「新生專道（沒有中大通）」：一年級新生尚未領取學生證，須出示中大網上系統CUSIS的個人資料頁面。
+
+<figure>
+<img src="https://web.archive.org/web/20211128173855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/拍卡機-中文大學-20210906181646_1a5d_large.jpg" alt="">
+<figcaption>中大近大學站入口設置的拍卡機。張樂樂攝</figcaption>
+</figure>
+
+記者曾於上週一（30日）亦有到中大校園視察，當時不少人疑不知新措施，直接揚起智能卡便步入校園，被保安要求須拍卡始能通過。當日早上時分，亦見不少參與中大各書院迎新營的新生，需要經過掃瞄器使用事前於網上登記所得的QR Code方可進入校園。
+
+至於中大校園另外三個出入口，包括崇基學院正門，大學正門（四條柱）、校園東部入口（二橋）則尚未安裝讀卡器，仍由校園保安人手檢查出入人士的相關證件。
+
+<figure>
+<img src="https://web.archive.org/web/20211128173855im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/拍卡機-崇基書院-中文大學-20210906181420_1f54_large.jpg" alt="">
+<figcaption>中大崇基書院正門仍未裝有拍卡機，仍由保安員檢查出入人士的證件。張樂樂攝</figcaption>
+</figure>
+
+反修例運動期間有大學校園發生衝突事件，其後多間大學實施出入管理措施，其中中大前年11月起，學生進入校園時須出示學生證，有學生曾因拒絕出示，與保安人員起衝突。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128173855/https://www.hkcnews.com/aboutus/#subscribe)

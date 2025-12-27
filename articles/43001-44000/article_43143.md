@@ -1,0 +1,70 @@
+---
+title: "【11.12 中大二橋衝突】官將考慮被告角色作量刑因素　讚警當日「指揮好好，好克制」"
+date: "2021-07-07"
+last_updated: "2021-07-07 20:19:14"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "中大暴動案"
+  - "中大二號橋"
+url: "https://web.archive.org/web/20210920163206/https://hkcnews.com/article/43143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43154/%EF%BF%BD%EF%BF%BD%EF%BF%BD1112-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43154/%EF%BF%BD%EF%BF%BD%EF%BF%BD1112-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【11.12 中大二橋衝突】官將考慮被告角色作量刑因素　讚警當日「指揮好好，好克制」
+
+2019年11.12中大二號橋衝突，四名學生被控暴動等罪，區院法官李慶年裁定其中兩名被告暴動罪成，三名被告違反禁蒙面法罪成。案件下午由辯方作初步求情。李官在庭上批評，辯方呈上2018年的暴動案例「outdated（不合時宜）」，又形容辯方主張暴動罪可判處非監禁式刑罰「好有創意」。李官強調，判刑時會考慮被告當時角色，即有否直接攻擊，抑或只是蓄意留在現場鼓勵他人。
+
+法官李慶年在休庭前，特別讚賞當日的警方指揮官、高級督察鍾家平，「30人對咁多人，指揮得好好。佈防得好好。好克制，俾咗好多空間大家退。」李官表示不想在判詞中寫太多，以免被「上綱上線」。李官亦有讚賞控辯雙方勤力，形容本案少有地不用續審。
+
+案件將押後至7月21日下午作進一步減刑陳詞和判刑，三名罪成的被告需還柙等候判刑。
+
+<figure>
+<img src="https://web.archive.org/web/20210920163206im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/中大二號橋-中大暴動案-20210707201637_18b4_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 官：傳統煽情求情無用  要「與時並進」
+
+首被告陳起行被判違反禁蒙面法罪成。代表他的大律師許卓倫求情指，雖然首被告經審訊後定罪，但基本上同意整體控方案情，節省法庭和控方證人很多時間。李官回應指，他曾按犯案時間、犯案次數、爭議點作為量刑因素，惟均被上訴庭指他判刑有錯。他又要求辯方呈上案例，證明爭議點少能構成減刑因素。
+
+許卓倫向法庭申請，為首被告索取社會服務令報告，形容禁蒙面法與暴動相比較不嚴重，希望法庭行使酌情權考慮判處社服令。李官引用上訴庭案例，反駁索取報告或會給予被告「虛假希望」，許卓倫回應指首被告清楚明白法庭索取報告，不一定會判處社服令。
+
+李官亦指出，雖然首被告暴動罪名不成立，但他與當日的非法集結有相當關連性，加上當日的暴動程度高。李官續質疑，當時未有新冠肺炎，「蒙面做咩？」直言進一步推論是首被告想故意隱瞞身分，形容案件程節嚴重。
+
+<figure>
+<img src="https://web.archive.org/web/20210920163206im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/李慶年-20210707175127_25a5_large.jpg" alt="">
+<figcaption>區域法院法官李慶年。資料圖片</figcaption>
+</figure>
+
+許卓倫求情時又指，首被告重犯機會輕微，形容被告現在已畢業，變得成熟，香港社會亦趨向穩定。他又指，被告的父母、哥哥、女友每日均到庭旁聽支持。李官聞言反駁指這類「主流煽情說法對判刑無幫助」，形容近一年這類求情已經無用，斥責辯方要「與時並進」。
+
+許卓倫呈上多封求情信，信中形容首被告品學兼優，熱心公益，對社會有回報。他希望法庭盡量用較低的量刑起點判刑，並提出《罪犯自新條例》只能適用於判監3個月以下的刑期。李官聞言糾正辯方，稱不應被《條例》牽著走，認為《條例》並非判刑考慮因素。「如果你提出嘅主張我照單全收，我會不斷被覆核。」
+
+<figure>
+<img src="https://web.archive.org/web/20210920163206im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/許卓倫-大律師-20210621185824_27b2_large.jpg" alt="">
+<figcaption>代表首被告的大律師許卓倫。資料圖片</figcaption>
+</figure>
+
+### 官：18年案例「outdate」  暴動判非監禁刑罰「有創意」
+
+代表第三被告張俊浩的大律師邱治瑋求情時指，被告是有責任青年，孝順父母。邱治瑋稱同意當日暴動程度高，但希望法庭考慮被告犯案時年僅19歲，屬於21歲以下，可考慮判處非監禁式刑罰，惟李官反駁指嚴重罪行如暴動罪不一定要考慮非監禁式刑罰。邱治瑋又呈上2016年旺角衝突暴動案中，19歲青年楊子軒經審訊後罪成，被判入教導所的案例。惟李官直言2018年的案例已經「outdate」，稱辯方主張判處監禁以外的刑罰，先為被告索取教導所、勞教中心等報告，「好有創意，睇下我接唔接納」。李官重申現時判刑的「主流意見」是處以阻嚇性刑罰，年輕並非減刑因素，他又強調，如辯方要說服法庭判處非監禁式刑罰，則應呈上近期的終審庭案例。
+
+<figure>
+<img src="https://web.archive.org/web/20210920163206im_/https://hkcnews.com/news_新聞/hk-discuss/2019/11/中大-警方拘捕-20191112163504_1d1b_large.jpg" alt="">
+<figcaption>2019年11月12日中大二橋衝突，警方制服其中一名示威者。資料圖片</figcaption>
+</figure>
+
+代表第四被告鄧希雯的大律師鄧子楷呈上多封求情信，形容被告樂於助人，品格良好。李官直言近期案例反映，被告品格對判刑影響不大。李官又引用梁天琦案，指出被告的角色，即直接攻擊或蓄意留守現場直接或間接鼓勵他人，在量刑上會有分別。代表控方的外聘大律師張錦榮亦同意此量刑原則。鄧子楷隨後求情指，希望法庭考慮第四被告當時僅留守現場，李官強調會考慮此原則作為量刑因素之一。
+
+法官李慶年最終決定為第一被告索取背景報告和社會服務令報告，案件將押後至7月21日下午作進一步減刑陳詞和判刑，三名罪成的被告需還柙等候判刑。
+
+【案件編號：DCCC362/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920163206/https://hkcnews.com/aboutus/#subscribe)

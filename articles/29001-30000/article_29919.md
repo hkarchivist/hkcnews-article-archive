@@ -1,0 +1,95 @@
+---
+title: "【監警會評831太子站】警無差別打人、傷者47分鐘後10變7、特別列車送荔枝角　報告沒解釋"
+date: "2020-05-15"
+last_updated: "2020-05-15 23:50:49"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "監警會"
+  - "831警察太子站打人"
+  - "監警會報告"
+url: "https://web.archive.org/web/20210923151722/https://hkcnews.com/article/29919/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29929/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/29919/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29929/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【監警會評831太子站】警無差別打人、傷者47分鐘後10變7、特別列車送荔枝角　報告沒解釋
+
+監警會發布反修例運動 [審視報告](https://web.archive.org/web/20210923151722/https://www.ipcc.gov.hk/tc/public_communications/ipcc_thematic_study_report.html) ，中文版逾千頁，其中「831太子站事件」為其中一個獨立章節長達63頁。社會關注太子站事件當中是否有人被警員打死，當晚多個因素致出現死人傳言，包括：傷者人數在47分鐘之後10變7、警方安排特別列車送被捕者（包括傷者）到荔枝角、傳媒被趕走，但監警會報告未有針對這些重點詳細解釋。
+
+警方被指無差別在站內打人，監警會報告沒有著墨，只引述警方解釋：「警務人員到達太子站月台時，根據觀察及專業判斷， 成功識別裝扮成普通乘客並散佈在港鐵月台各處和車廂內的暴力示威者。」報告提及警方在車廂內採取行動的部分，在註解寫到：「港鐵提供的閉路電視片段沒有清楚拍攝到警方武力使用或在月台上制服示威者的情況，亦未能拍攝到關鍵時刻列車車廂內的情況。有閉路電視在事發時沒有運作，因此有部分閉路電視片段欠奉。」
+
+監警會報告引述消防處紀錄，指當晚一名見習救護主任在站內點算傷者，數字幾經修訂：9月1日0時15分修訂傷者人數為10人；1時02分最終匯報傷者有7人。傷者10變7，惹起社會懷疑：這47分鐘之間發生了甚麼事？為甚麼少了三名傷者？消失的三人是否死亡？但監警會這份沉甸甸的報告，完全沒有提到這47分鐘。
+
+警方當晚又要求港鐵提供特別列車將被捕的54人（包括7名傷者）送往荔枝角，監警會認為：「安排特別列車是審慎和明智的決定，雖然這是加速散播未經證實的死亡傳言的原因之一。」至於警方封站趕走傳媒，警方回應監警會時稱：「警方並無任何紀錄顯示，有記者曾要求進入車站但被在場駐守的警務人員拒絕。」監警會在結論寫到：「警方應合理預測到，當關閉港鐵站後，警務人員以武力制服及拘捕目標人士， 以及不允許記者在現場報道，有機會令車站內的乘客恐慌失措，而公眾也希望知道車站內發生何事。毫無根據的揣測及傳言亦會因此出現。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923151722im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/831警察太子站打人-20190903231754_a988_large.jpg" alt="">
+<figcaption>831太子站事件發生至今近10個月，監警會報告未能解釋多個疑團。米報梁柏堅照片</figcaption>
+</figure>
+
+監警會報告首先概括太子站事件的背景，包括831前大型公眾活動：例如811「一名女子在尖沙咀警署外懷疑被警方射傷眼睛」、813堵塞機場、818民陣遊行、822抗議葵芳站內射催淚彈、824九龍灣遊行抗議安裝智慧燈柱等。然後講述831當日的遊行示威活動，包括灣仔、中環、金鐘、銅鑼灣、尖沙咀、旺角、太子等地點。
+
+報告續聚焦太子站事件，指審視了多項資料，包括警方當日拍攝的3條影片，片長共38分鐘；另有電視台、報章及傳媒機構的報道與影片，共252篇報道、112段影片，總長117小時；港鐵提供的107 段閉路電視影片，片長161小時，以及27 段錄音， 總長20 分鐘；公眾人士應監警會呼籲提供的照片及錄影片段等。
+
+<figure>
+<img src="https://web.archive.org/web/20210923151722im_/https://hkcnews.com/news_新聞/hk-discuss/2020/05/梁定邦-逃犯條例-監警會-20200515183602_171c_large.jpg" alt="">
+<figcaption>監警會主席梁定邦，今日就報告見記者。美聯社照片</figcaption>
+</figure>
+
+831太子站事件引起社會廣泛關注，監警會報告其中一些焦點：
+
+### 警方被指無差別攻擊　監警會引述警稱成功識別乘客與示威者
+
+監警會沒有針對「無差別打人」作出評論，但在「監警會觀察」部分一再引述警方解釋：「警務人員到達太子站月台時，根據觀察及專業判斷， 成功識別裝扮成普通乘客並散佈在港鐵月台各處和車廂內的暴力示威者。」監警會又表示，留意到警方在車廂內的行動引起公眾廣泛討論，並被批評過度使用武力，但監警會續指：「本報告的目的並非針對任何特定事件或個別警務人員採取可能引致投訴的行動作出任何判斷。」
+
+監警會並引述警方解釋，「這些示威者散佈在港鐵月台各處，包括匿藏在4 號月台（ 荃灣綫往中環方向） 的列車車廂內， 亦即3 號月台對面。當警務人員進入4 號月台上的列車車廂時， 隨即被十多名暴力示威者用雨傘及利器襲擊。據警方表示， 警方因此使用所需的最低程度武力去控制及制服示威者，包括使用警棍和胡椒泡劑。」監警會沒有評估所謂的「最低程度武力」是否合理，僅指出「在現行法例下，武力使用的責任由每名警務人員自行承擔， 警務人員有責任遵守法例及警方有關武力使用的守則。」
+
+報告概述警方在車廂內採取行動的部分，在註解寫到：「港鐵提供的閉路電視片段沒有清楚拍攝到警方武力使用或在月台上制服示威者的情況，亦未能拍攝到關鍵時刻列車車廂內的情況。有閉路電視在事發時沒有運作，因此有部分閉路電視片段欠奉。」
+
+### 警方報稱站內無傷者　監警會：無跡象顯示警故意拒絕救護員
+
+警方封站後，被指不讓救護員入內救治傷者。監警會根據消防處紀錄指出，第一批救護員（見習救護主任及其隊員）於晚上11時14分到達B1出口，駐守鐵閘的一名警務人員向見習救護主任表示，車站內無人受傷。雙方溝通後，見習救護主任於晚上11 時30分（ 16 分鐘後） 進入車站，見習救護主任進入太子站之前，車站內已有19名消防員在場，為站內傷者提供急救。
+
+監警會認為：「從太子站內發生的事件時序來看， 沒有任何跡象顯示警方故意拒絕救護員進入車站。......當然，理想的做法是當救護員一到達門口就立刻獲許進入車站。而警務人員最初提供的資訊， 即站內沒有傷者， 是不正確的。」
+
+### 警方封站趕走傳媒　警：無紀錄顯示記者要求入站被拒
+
+監警會鋪陳8.31示威者襲擊列車及太子站月台上的市民，其中形容：「示威者甚至襲擊一名站在月台上用手機拍攝事發經過的女子，並搶奪其手機，示威者窮凶極惡。」警方999報案中心在10時49分至11時15分期間，收到涉太子站的逾50宗報案。監警會認為，警方迅速採取執法行動，對於恢復車站內的秩序和法紀是必須的。
+
+「警方需要查問站內的示威者， 以確定其身份。這些示威者有機會離開車站。當警務人員在車站內採取執法行動或查問可疑人士時，關閉出口可以有效阻止許多裝扮成一般乘客的示威者離開。」、「面對警方的拘捕行動，示威者負隅頑抗。關閉出口可以防止這些示威者逃離車站。」監警會指，831之前發生過數宗示威者企圖搶奪被捕人士的事件，認為關閉太子站可以阻止其他示威者進入站內支援示威者、襲擊警員、破壞站內設施，而且港鐵於當晚10時53分已經宣布疏散太子站，11時10分暫停了列車服務，普通市民不會進入太子站。「在這個情況下，監警會認為關閉出口似乎屬合理的決定。」
+
+太子站封站，其中為人詬病的一點是傳媒被趕走。警方回應監警會提到：「警方並無任何紀錄顯示有記者曾要求進入車站但被在場駐守的警務人員拒絕。」監警會在結論寫到：「警方應合理預測到，當關閉港鐵站後，警務人員以武力制服及拘捕目標人士， 以及不允許記者在現場報道，有機會令車站內的乘客恐慌失措，而公眾也希望知道車站內發生何事。毫無根據的揣測及傳言亦會因此出現。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923151722im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/太子站-831太子恐襲半周年-20200301120943_26c2_large.jpg" alt="">
+<figcaption>今年2月29日，太子站事件半年，市民太子站外獻白花，被警驅散。EYEPRESS照片</figcaption>
+</figure>
+
+### 「831，打死人」？　監警會：流言廣傳歸因警反駁緩慢
+
+至於「831，打死人」的說法，監警會認為：「這種說法在起初只是揣測，其後迅速轉變成傳言，再轉變成所謂的確認，而在此過程中並無提出任何證據支持。」指例如9月2日高登討論區的貼文引述幾名不具名醫護人員的說話，至今未有人出面確認、9月6日連登討論區一篇貼文聲稱事件中有6人斷頸而死， 但並未提供任何證據。
+
+監警會在報告形容：「宇宙學家卡爾·薩根（Carl Sagan） 因宣揚檢驗超乎尋常的主張（ extraordinary claims）的標準而著稱。相關標準是『超乎尋常的主張需要有超乎尋常的證據』（Extraordinary Claims Require Extraordinary Evidence），簡稱ECREE。......無論如何，聲稱警方在太子站殺死人然後掩蓋事件，這都是超乎尋常的主張。」
+
+監警會並指：「香港是世界上人口最稠密的城市之一，人際關係緊密。假若有人在港鐵站內被殺，死者親屬應很快發聲，將事件公諸於眾。即使是沒有親友的人士，亦需要繳納租金或管理費，假若失蹤，理應很快會被發現。另外，僱主亦會留意有僱員失蹤。但是，至今並無涉及8月31日事件的失蹤人口報告。警方確認已認審視失踪人口報告， 並未發現關聯個案。」、「要掩蓋公眾場所有人死亡的事件，需要大量人士、部門及機構相互勾結，幾乎是不可能的事情，更何況有貼文聲稱有多人斷頸身亡。」
+
+「打死人」傳言廣泛流傳，監警會歸因於警方、消防處、醫管局和港鐵在反駁傳言時反應緩慢。「警方在9月1日星期日凌晨3 時及下午6 時的兩次臨時簡布會上並未反駁『打死人』的不實傳言，任憑傳言在網上發酵」、「消防處未有及時解釋怎樣及為何消防處紀錄中的受傷人數由十人修訂為七人， 僅在9月6日發出新聞聲明。」、「直至9月10日，警方、消防處、醫管局及港鐵才舉行聯合記者會，發出聲明表示該傳言不實。」
+
+「如果警方在最初階段迅速採取行動，並率先舉行聯合新聞發布會駁斥虛假的死亡謠言，可能有機會阻止這些謠言在網上湧現， 讓示威者有藉口進行更多示威活動。示威活動以每月紀念活動的形式繼續進行， 暴力示威者並在太子站外堵路和襲擊旺角警署。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923151722im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/梁耀霆-831警察太子站打人-20190904210322_146d_large.jpg" alt="">
+<figcaption>831事件被捕者、教育大學學生會前會長梁耀霆。港台截圖</figcaption>
+</figure>
+
+831事件被捕者、教育大學學生會前會長梁耀霆，閱畢報告關於「831太子站事件」的部分，表示不滿意，指他無期望，所以也不怎麼失望。他批評，監警會多番引述警方說辭，而非說明監警會的判斷，例如報告第55頁引述警方解釋：「警務人員到達太子站月台時，根據觀察及專業判斷， 成功識別裝扮成普通乘客並散佈在港鐵月台各處和車廂內的暴力示威者。」但監警會沒有解釋何謂「專業判斷」。
+
+梁耀霆又認為報告荒謬，形容監警會「兜得難睇」，譬如報告指警方沒有故意阻礙救護員，而是為了確保救護員安全，「呢個講法我會話佢係戾橫折曲，因為大家見到片，佢封住個站係拒絕同救護員溝通、唔俾佢哋進入。」梁耀霆指，監警會報告最後向警方提出無約束力的檢討方向，更顯監警會職權受限，誠如海外專家組退出時所言：監警會的權力及獨立調查能力，存在明顯缺陷。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923151722/https://hkcnews.com/aboutus/#subscribe)

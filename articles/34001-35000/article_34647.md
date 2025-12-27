@@ -1,0 +1,56 @@
+---
+title: "林鄭周二稱大學宣傳教育國安「責無旁貸」　港大校方今日收回管理權清拆連儂牆"
+date: "2020-10-10"
+last_updated: "2020-10-10 16:16:40"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港大學"
+  - "HKU"
+  - "the university of hong kong"
+  - "Hong Kong University"
+  - "港版國安法"
+  - "港大連儂牆"
+url: "https://web.archive.org/web/20210729160154/https://www.hkcnews.com/article/34647/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34651/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34647/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34651/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭周二稱大學宣傳教育國安「責無旁貸」　港大校方今日收回管理權清拆連儂牆
+
+香港大學學生會學苑報導，港大校方今早派人強拆位於大學街上層的連儂牆，並以水馬圍封及派外籍保安駐守附近。港大學生會發聲明指，學生會於該位置的管理權於10月8日屆滿，昨日（9日）收到校舍事務委員會通知，學生會的續期申請被拒，然後今日校方就清拆連儂牆。學生會對此深感遺憾，認為校方拒絕申請有政治考量，表明會繼續捍衛表達自由與學術自由。聲明最後並指：「理念刀槍不入——即使失去這幅港大連儂牆，只要意志不滅，哪裡都可以是連儂牆。」
+
+特首林鄭月娥本周二（6日）回應傳媒提問時，談及港大「連儂牆風波」，指國安法下，大學有責任加強國家安全的宣傳與教育，並稱「如果有需要時、他們自己（校方）已經沒有能力落實這要求時，執法機關當然要去處理。」
+
+<figure>
+<img src="https://web.archive.org/web/20210729160154im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/HKU-連儂牆-20201010143646_191c_large.jpg" alt="">
+<figcaption>木板位置本來有文宣，現已被撕毀，上半部份的木板亦已拆去。上圖取自港大學生會、下圖取自學苑</figcaption>
+</figure>
+
+港大連儂牆於上月26日遭30多位身份不明人士破壞，牆上文宣被撕毀、學生會直幡亦被推倒，學生會號召9月29日重建連儂牆。校方則對事件深表遺憾，事後加強校園出入口保安措施。至於當晚未有及時介入的保安員，港大的外判保安公司向其發出警告信並停職兩星期。
+
+特首林鄭月娥本周二（6日）在行會前見記者，被問及港大「連儂牆風波」，指校園內有許多違反國安法的文宣。林鄭回應指，國安法第9、第10條要求學校、大學、社會團體、傳媒都要增加對國家安全的宣傳、教育，所以大學「責無旁貸」。林鄭續指：「我知道教育局局長亦會與各大校長會面，了解他們打算如何落實國安法的要求，但如果有需要時、他們自己已經沒有能力落實這要求時，執法機關當然要去處理。」
+
+然後，今早就發生校方清拆連儂牆事件。
+
+**港大學生會今日發表的聲明全文：**
+
+<figure>
+<img src="https://web.archive.org/web/20210729160154im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/連儂牆-學生會-HKU-20201010141715_5240_large.jpg" alt="">
+</figure>
+
+香港大學學生會於大學街上層攤位的管理權於十月八日正式期滿。本會日前已向校舍事務委員會遞交延續申請，直至昨日（十月九日）收到回覆，拒絕本會申請。大學街上層攤位從今日起歸由校方管理，校方更於今早（十月十日）清拆連儂牆。就此，本會深感遺憾。港大學生會將繼續奮力捍衛同學於校內的表達自由及學術自由。
+
+去年正值反修例運動，一眾港大同學自發於大學街上層攤位建立港大連儂牆。縱使遭到多次破壞，政治打壓有增無減，同學亦不畏強權，連番重建連儂牆，身體力行捍衛表達自由。自國安法實施以來，港共政權加劇打壓港人言論自由，散播白色恐怖，更把矛頭直指大學。早前，林鄭月娥更就港大連儂牆發表公開言論，指若大學無法於校園確切執行國安法，將交由執法機關處理。此等言論無疑威迫大學為極權背書，削減學生言論自由。
+
+連儂牆展現著港大言論自由，透過文字及圖像承載著對同路人的支持。是次校方拒絕延續本會對大學街上層攤位的管理權，無疑含有政治考量。但連儂牆的存在從來都不取決於學生會一力維繫，而是有賴一眾有良知的港大人默默付出。管理權誰屬，均不會磨滅同學對於民主、自由的渴求。理念刀槍不入——即使失去這幅港大連儂牆，只要意志不滅，哪裡都可以是連儂牆。
+
+香港大學學生會中央幹事會   
+ 二零二零年十月十日
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729160154/https://www.hkcnews.com/aboutus/#subscribe)

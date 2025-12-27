@@ -1,0 +1,73 @@
+---
+title: "【7.14新城市暴動案】17歲中學生及兩男認暴動罪　分別判囚40個月及48個月　官：考慮整場暴動的暴力程度"
+date: "2020-09-24"
+last_updated: "2020-09-24 23:17:32"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "新城市廣場"
+url: "https://web.archive.org/web/20210916223431/https://www.hkcnews.com/article/34206/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34212/%EF%BF%BD%EF%BF%BD%EF%BF%BD714%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD17%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD40%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD48%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34206/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34212/%EF%BF%BD%EF%BF%BD%EF%BF%BD714%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD17%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD40%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD48%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【7.14新城市暴動案】17歲中學生及兩男認暴動罪　分別判囚40個月及48個月　官：考慮整場暴動的暴力程度
+
+反修例運動第二宗認罪暴動案，三名被告今午（24日）在區域法院判刑。他們於去年7月14日在沙田新城市廣場，連同其他示威者用雨遮、硬物等襲擊兩名警員，事後被控暴動罪。24歲青年、51歲保安員的兩項暴動罪同期執行，判囚4年；17歲中學生被控一項暴動罪，即時監禁3年4個月。
+
+區域法院法官胡雅文多次重申，判刑要考慮「整場暴動的整體暴力程度」，而非切割去看被告的個別行為。胡官又指，被告在商場用殘忍手段對待警務人員，甚至達失控狀態，法庭須予以阻嚇性刑罰，不依重被告的個人背景、一時衝動等求情因素，即或第三被告只是17歲的年輕學生。
+
+事件中警員張歷恆眼眶周邊骨折、左眼血腫，接受手術後視力仍受影響。他受傷後因傷休假至今年3月，曾轉為文職工作，其後再獲發病假至今年9月。另一警員郭兆恒事後頭皮有裂傷，面及背部有擦傷，現已回復正常職務。
+
+<figure>
+<img src="https://web.archive.org/web/20210916223431im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/法官-新城市廣場-20200924231104_15c3_large.jpg" alt="">
+</figure>
+
+### 胡官：考慮整場暴動程度 非被告個別行為
+
+三名被告依次為梁柏添（24歲）、保安員龔志遠（50歲）及李文謙（17歲），共同被控一項暴動罪。他們被指去年7月14日在新城市廣場一期三樓398號舖外，連同其他身份不詳的人參與暴動。首兩名被告另被控一項暴動罪，指二人同日於新城市廣場一期三樓383號舖外，連同其他身份不詳的人參與暴動。
+
+胡官在庭上表示，和平集會是受《基本法》和《香港人權法案》保障的權利，與言論自由一樣是文明社會不可或缺的部分，但權利和自由並非絕對，若有人超越界線、擾亂公眾安寧和秩序，就須受制裁，否則導致社會出現無政府狀態。
+
+辯方律師早前求情指，三名被告案發行為與本性不符，當時因人多、情緒高漲才一時衝動犯案，並非有預謀或有意圖損害他人財產。胡官同意警員受襲是突然發生，但認為事發前已出現組織式活動，包括有人鏈傳遞雨傘等物資。胡官又表示，從閉路電視片段可見，首被告曾積極參與人鏈，是有目的留在現場；第三被告曾接過面罩並戴上；次被告則在到達商場前已戴上口罩。
+
+對於兩名警員受襲情況，胡官認為是對執法機構的直接攻擊，形容被告「使用的暴力令人相當之驚」，是用殘忍手段對待警務人員，甚至達失控程度。雖然牽涉人數不如其他同類案件多、時間不算長，但對警員張歷恆的傷害卻是「難以評估」，除了身體嚴重受傷，亦影響他在警隊的前途。另外，暴力行為在商場發生，令公眾受到滋擾，影響居民和警方關係。法庭認為必須作出阻嚇性刑罰。
+
+辯方又曾望法庭分開考慮三名被告的行為，但胡官認為，切割處理被告的暴動情節是錯誤的，應考慮「整場暴動的整體暴力程度」，指「所有人一齊犯案，所有人共同支持緊大家」，應承受相同刑責。法庭雖然接納各被告有悔意、對懲罰沒刑事案底的年輕人感到沉重，但強調判刑目的不只是讓被告改過自新，而是令其他人「唔好有樣學樣」，故不依重被告的個人背景求情、一時衝動、因情緒失控犯案等求情因素判。
+
+### 兩項暴動罪量刑起點分別為5年及6年
+
+法庭最終裁定，首項暴動罪量刑起點為監禁5年，三名被告認罪獲扣減1年8個月刑期；第二項暴動罪承接上一暴動事件，因第一、二被告無離開現場而選擇參與另一暴動，定罪較高，量刑起點為監禁6年，二人認罪獲扣減2年刑期。
+
+第一、二被告的兩項暴動罪同期執行，須即時監禁4年；第三被告只涉及首項暴動罪，判即時監禁3年4個月。
+
+### 旁聽親友不捨道別　龔媽媽：唔好走，我見你唔到！
+
+散庭後，在場旁聽親友向三人揮手打氣，著他們「撐住！」首被告梁柏添哭得雙眼通紅，朝親友揮手道別。
+
+第二被告龔志遠在案中年紀最大。據庭上透露，龔媽媽患早期柏金遜症，早前由加拿大回港，龔志遠曾擔憂入獄後無人照顧母親，幸已獲社工協助安頓。龔媽媽下午拿著拐杖到庭，聆訊期間一直眉頭深鎖。當兒子在散庭後步入懲教通道，她伏在被告欄玻璃上，哭著不斷說：「唔好走呀，哎呀我見你唔到！」其他親友紛紛在旁安慰。
+
+在區域法院車輛出入口，亦有最少二十人等待囚車駛出。三名被告分別由兩輛囚車押送離開，有支持者高舉「五一手勢」，亦有人奔跑追隨囚車至百米之外。
+
+### 控方案情　兩警員被示威者包圍及拳打腳踢
+
+控方案情指，去年7月14日晚上有大批示威者在沙田區聚集，有警員進入新城市廣場後被襲擊。晚上9時55分，便裝警員張歷恆在支援受擊同袍時，被至少20名示威者包圍及拳打腳踢，其中首被告腳踢及用雨傘擊打他；次被告擲雨傘但沒有擊中；第三被告則用雨傘插向警員最少20下。施襲過程歷時一分鐘。這也是三名被告當晚涉及的首項暴動事件。
+
+在約兩分鐘後，同樣穿便裝的警員郭兆恒與同袍失散，他衝上扶手電梯時被示威者包圍，有人從後將他推倒在地，有示威者上前拳打腳踢，第一、二被告以雨傘擊打及腳踢他，直至有記者上前保護及阻止襲擊，示威者才接著散開。事件同樣歷時約一分鐘。這為首、次被告當晚涉及的第二項暴動事件。
+
+事件中警員張歷恆眼眶周邊骨折、左眼血腫，接受手術後視力仍受影響。他受傷後因傷休假至今年3月，曾轉為文職工作，其後再獲發病假至今年9月。而郭兆恒事後頭皮有裂傷，面及背部有擦傷，現已回復正常職務。
+
+三名被告依次為梁柏添（24歲）、保安員龔志遠（51歲）以及李文謙（17歲），他們共同被控一項暴動罪，控罪指三人於去年7月14日在新城市廣場一期三樓398號舖外，連同其他身份不詳的人參與暴動。首兩名被告另被控一項暴動罪，指二人同日於新城市廣場一期三樓383號舖外，連同其他身份不詳的人參與暴動。三人承認全部暴動控罪。
+
+三名被告另被控有意圖而傷人罪。梁及李被指於新城市廣場一期三樓398號舖外，連同他人意圖令警員張歷恆身體受嚴重傷害。梁及龔另被控一項蓄意傷人罪，指他們在新城市廣場一期三樓383號舖外，連同他人意圖使警員郭兆恒身體受嚴重傷害。在法庭同意下，各被告的有意圖而傷人罪交由法庭存檔不予起訴。
+
+  
+ 【案件編號：DCCC813/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916223431/https://www.hkcnews.com/aboutus/#subscribe)

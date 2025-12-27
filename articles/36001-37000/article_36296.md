@@ -1,0 +1,50 @@
+---
+title: "追殺民主派停不了　凍結戶口陸續有來"
+date: "2020-12-08"
+last_updated: "2020-12-09 04:44:06"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "守護孩子"
+  - "凍結戶口"
+url: "https://web.archive.org/web/20211203015937/https://www.hkcnews.com/article/36296/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36296/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 追殺民主派停不了　凍結戶口陸續有來
+
+
+{{< video src="https://web.archive.org/web/20211203015937if_/https://www.youtube.com/embed/M9ZUd_141rY" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211203015937/https://bit.ly/2Cj8v4t)
+
+第四波疫情持續，社區擴散未受控，人心惶惶，警方近日卻大規模拘捕民主派、市民及學生，周二早上（8日）再拘捕8人，指涉及煽惑參與七一遊行等多項罪名，當中包括社民連4名成員梁國雄、曾健成、陳皓桓及鄧世禮。另一方面，警方繼要求銀行凍結流亡海外的前立法會議員許智峯及家人的幾個戶 口，好鄰舍北區教會傳道人陳凱興表示，周一教會在滙豐銀行的戶口、他和太太的個人戶口先後被凍結。
+
+特首林鄭月娥呼籲全民專注抗疫，8日再推出一系列防疫措施，市民感到煩憂，社會紛亂，警方有趁疫情拉人之嫌，加大力度、擴大打擊面，既繼續追殺泛民政黨、區議員、社運份子，亦開始針對反修例期間活躍的非政府組織，包括社工、教會。傳媒機構及組織亦可能面對新一浪的打壓，社會上反對及不同意見聲音面臨被滅聲威脅。
+
+陳凱興形容教會因「守護孩子行動」，被警方視為眼中釘，事件是對社會服務和宗教的打壓。他接受一個電台節目訪問表示，沒有用「守護孩子行動」的名義眾籌，只透過教會戶口，為無家者的住宿需要和為年輕人解決食物需要等計劃眾籌，教會為無家者提供的宿舍服務，已即時受事件影響，擔心因無法交租，無家者會被趕走。他又說，戶口被凍結，本月交租和支薪都有問題。警方8日晚上表示，兩名女子涉嫌欺詐及洗黑錢被捕，分別是團體前董事及現職員工， 另外正通緝已離港的夫婦。又指懷疑有人以宗教及支持年輕人為名義，欺騙市民的善心和捐款。
+
+反修例風暴衍生不少家庭、社會問題，教會、社工等從人道、關愛等角度對受影響年輕人提供協助，卻明顯因為在示威現場，警方視「守護孩子行動」成員為示威者，現在搞秋後算賬，針對教會的銀行戶口作調查，借打擊洗黑錢法例，令教會近乎不能運作。
+
+近日，壹傳媒創辦人黎智英被拘捕，涉及將軍澳工業用地非法用途；許智峯戶口被凍結，警方公開的說法是與眾籌有關，都令人感到是找一些不直接相關事件作政治清算，是林鄭宣稱社會「撥亂反正」工程的一部份。
+
+林鄭推修例引發社會運動，觸發中央全面反制，先訂立《港區國安法》，再由人大常委會定出取消公職人員框架的決定，中央官員宣稱反中亂港者出局，林鄭點名至少3個界別要進行「撥亂反正」。香港進入政治大清算、大報復年代，中央決意狠狠地懲罰挑戰權威的港人和團體，關進監獄，流亡的家人也被株連，留港的一個又一個被冠以各種罪名遭拘捕，整個泛民陣營，無論激進、本土，或中間、溫和等不同派別，幾乎無一倖免，面臨瓦解。
+
+中央和港府利用《港區國安法》超級武器，加上限聚令，禁止市民上街，再作大拘捕、大規模檢控，泛民被打殘，相繼有人逃亡、流亡、退出政治，更令極左及強硬路線「心雄」，主張窮追猛打、置諸死地、擴大打擊面，清滅不同聲音、噪音、雜音。極左政治病毒，比新冠病毒更可怕。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203015937/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211203015937im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

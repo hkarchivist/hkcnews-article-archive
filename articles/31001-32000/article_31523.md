@@ -1,0 +1,62 @@
+---
+title: "【國安法】張曉明疑錯引8.31太子站仇警犯煽動罪　明示用權「把握香港主導權」"
+date: "2020-07-01"
+last_updated: "2020-07-01 17:44:06"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "張曉明"
+  - "zhang xiaoming"
+  - "831警察太子站打人"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210805050746/https://www.hkcnews.com/article/31523/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31533/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31523/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31533/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法】張曉明疑錯引8.31太子站仇警犯煽動罪　明示用權「把握香港主導權」
+
+北京直接在香港實施國安法，當中保留港英時代煽動罪等，將非法方式引起對中央或特區憎恨且造成嚴重後果者視作犯法。港澳辦副主任張曉明在國務院記者會舉例說，去年8月31日太子站警方清場中，有人造謠發生打死人，將社會不滿情緒集中指向警方，或者針對中央政府，造成惡意的嚴重後果，就可能有後果。
+
+不過，張曉明的說法與國安法條文有衝突。根據國安法第29條，仇恨中央及特區政府行為是為了：一、外國或境外勢力刺探國家安全情報或秘密，二、請求外國境外機構、人員，直接或間接接受外國指示或控制、資助而煽動仇恨，才能入罪。換言之，犯罪目的為了外國或境外干預及介入，才能入罪。
+
+<figure>
+<img src="https://web.archive.org/web/20210805050746im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/港版國安法-zhang%20xiaoming-20200701120907_39be_large.png" alt="">
+<figcaption>張曉明說國安法在回歸23年前夕通過「事有必至、理有固然」，是歷史偶然，也是必然。</figcaption>
+</figure>
+
+雖然《基本法》23條訂明香港自行就國家安全立法，但今次由全國人大授權人大常委會直接立法，並頒布實施。當中勾結外國或境外勢力危害國家安全罪中，保留港英時代遺留《刑事罪行條例》中的煽動罪，倘若目的是外國刺探情報、外國指使控制支援，而引發香港居民對中央或特區憎恨，並造成嚴重後果，則會犯法。
+
+張曉明在記者會上表示，國安法立法盡量吸收普通法制度，包括參考《刑事罪行條例》中煽動罪。
+
+話鋒一轉，張曉明舉例說，通過造謠方式來引起全社會對政府某種仇恨及造成嚴重後果，則可能有後果。張曉明說：「類似去年修例風波當中，我印象比較深的，突然造了個謠，太子站發生打死人事件，把社會不滿情緒集中的指向警方，子虛烏有的事情；或者針對中央、惡意的嚴重後果，就可能有後果。」
+
+香港大學法律學院首席講師張達明表示，根據該條控罪，必須證明被告與外國與境外組織或有所謂聯繫及勾結，認為張曉明引用8.31太子站例子，超越普通法律師的一般理解。
+
+他直言，如果張曉明說法真確，會對言論自由影響，但慨嘆在國安法下，大陸與香港有不同邏輯，「這條法例用中國的法制的特色，解釋權在人大常委，所以不能用普通法概念考慮問題。張曉明如果講得出，可能人大常委會會endorse。」
+
+律政司司長鄭若驊下午回應張曉明言論時，承認《國安法》下引起憎恨中央及港府控罪有兩大類前提，一是為外國組織或個人收買國家安全機密，或請求外國及境外、串謀或實施境外人士指示，「所以不要只看後面憎恨的行為，要整個條文看」。
+
+<figure>
+<img src="https://web.archive.org/web/20210805050746im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/831警察太子站打人-20191030162423_1907_large.png" alt="">
+<figcaption>去年8月31日，速龍小隊及防暴警員衝入太子站及拘捕多人，引起強烈爭議。梁柏堅@米報影片截圖</figcaption>
+</figure>
+
+中央表明，希望這次立法是將香港由去年反修例風波後「由亂入治」，同時希望表明日後積極用權。全國人大憲法和法律委員會副主任沈春耀回應記者提問時證實，在人大常委會通過將國安法納入《基本法》附件三後，周二諮詢香港政府及基本法委員會，承認「時間比較短」。
+
+沈春耀表示，今次從國家層面推進國家安全機制本身有多個可能性，包括人大或人大常委決定、制定修改或解釋法律，將全國性法律列入《基本法》附件三、中央政府發出指示等，最終決定是用全國人大決定及立法方式。
+
+張曉明表示，國安法象徵中央更注重用好中國《憲法》及《基本法》賦予中央的權力，並和香港治理體系有機結合，「從而牢牢的把握香港局勢發展的大方向和主導權」。
+
+他沒有具體回應，反對《國安法》參選人會否被撤銷參選資格，只是說問題需要認真研究，相信特區政府會依法界定。
+
+張曉明又說，國安法絕非將整個反對派、泛民主派陣營視為假想敵，只是打擊極少數反對分子，並引述已故領導人鄧小平說可以繼續批評共產黨，但不能轉化為行動，呼籲泛民作「適當的調整」。
+
+至於中央駐港維護國安公署在包括「重大現實威脅」等三種情況下實施管轄權，將來有中央和特區兩支執法及司法隊伍，各自負責拘捕、檢控、審判環節，「完整的一條龍管轄、全流程的管轄，各管各的」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805050746/https://www.hkcnews.com/aboutus/#subscribe)

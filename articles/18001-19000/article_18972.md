@@ -1,0 +1,62 @@
+---
+title: "夜復夜（前衛搖滾回歸）"
+date: "2019-03-10"
+author: "Duncan Lau"
+category: "眾說"
+tags:
+  - "英國"
+  - "UK"
+  - "united kingdom"
+  - "the uk"
+  - "戴卓爾"
+  - "大不列顛及北愛爾蘭聯合王國"
+  - "搖滾樂"
+  - "Night After Night"
+url: "https://web.archive.org/web/20210712024516/https://www.hkcnews.com/article/18972/%E6%90%96%E6%BB%BE%E6%A8%82-%E8%8B%B1%E5%9C%8B-night_after_night-18972/%E5%A4%9C%E5%BE%A9%E5%A4%9C%EF%BC%88%E5%89%8D%E8%A1%9B%E6%90%96%E6%BB%BE%E5%9B%9E%E6%AD%B8%EF%BC%89"
+original_url: "https://www.hkcnews.com/article/18972/%E6%90%96%E6%BB%BE%E6%A8%82-%E8%8B%B1%E5%9C%8B-night_after_night-18972/%E5%A4%9C%E5%BE%A9%E5%A4%9C%EF%BC%88%E5%89%8D%E8%A1%9B%E6%90%96%E6%BB%BE%E5%9B%9E%E6%AD%B8%EF%BC%89"
+---
+
+# 夜復夜（前衛搖滾回歸）
+
+熱切期待一張專輯的推出，似乎是屬於上世紀的事。當一連串廿五、卅週年紀念的Remastered, Legacy, 或是Deluxe Version，就是那些復刻版，接連推出，因為將那時期的所有單曲，特別混音，相關的現場錄音等，一網打盡，甚至有未岀版過的歌曲，十分值得我們這些曾經經歷的那代人，來個回憶小徑的深度遊。不過後來越出越多，新鮮感和興奮度都越來越低，或者是，能經得起時間考驗的，只是少數。
+
+這一張是這種少數，在宣布將會3月8日，以全長足本形式獨立推出後，我是特別上心，真的是熱切期待。專輯是《Night After Night》，樂隊名字只有兩個英文字母UK。其實兩年前，樂隊創隊成員之一Eddie Jobson已將所有樂隊曾經岀版的專輯（只有三張）從母帶數碼化，再加上可找到的演唱會錄音，全數以一個超豪超重量級十六光碟盒裝推岀了。這張《Night After Night》當時已經是全長足本形式，只是沒有獨立包裝岀版。
+
+
+{{< video src="https://web.archive.org/web/20210712024516if_/https://www.youtube.com/embed/x6ChlPFoobQ" >}}
+
+
+這張專輯一直很難找，在79年首次岀版時，在香港首批是原裝美國版，數量不多。之後第二版開始只有星馬版，連封套的藍色也走了樣，重衰過翻版！後來CD當道，這專輯的CD特別少，只有個別地區有少量。以致後來在川流音樂服務中，我從沒有見過這張專輯的蹤影。這張專輯是收錄樂隊在79年首次到日本的演出，樂隊原沒有打算做現場錄音，但日本方面堅持，因為那時日本的樂迷對這種現場錄音非常着迷，日方並指只會在日本出版。但後來歐美的公司都感興趣，最後勉強算成是全球發行。
+
+這一直是自己最喜歡的現場錄音專輯之一，當年他們只有兩張專輯，但也有新作品完成，但在演唱會玩全新作品，完全是一種賭博，沒有多少人敢下這種注碼。他們竟然甚至以一首新歌作開場，就是専輯同名字的《Night After Night》，大收先聲奪人之效，Jobson的鍵琴盡見排山倒海的氣勢，一瀉千里，全場觀眾都馬上被吸引過去，當John Wetton那厚而䁔的歌聲加進來，場內馬上變成熾熱。一首經典便是如此誕生，後來亦以單曲形式推出。這首歌便是如此這般只有一個現場版，沒有一個錄音室版本，這種情況是相當罕見，因為在巡演後不久，他們因意見分歧而解散，沒有再到錄音室造新音樂了。
+
+
+{{< video src="https://web.archive.org/web/20210712024516if_/https://www.youtube.com/embed/NdiFL2GvUXw" >}}
+
+
+UK As Long As You Want Me Here 是專輯內另一首新歌，當年只有黑膠版本，只能容納有限歌曲，不過都是最精彩的幾首，只是越聽越不夠喉。樂隊歷史縱使短暫，但留下三張劃時代的前衞搖滾専輯，承先啟後，在粉絲心中，是極其重要的一支超級樂隊。我岀國時，轉錄在卡式帶，慢慢遺忘以至遺失，有一段長時間沒有聽了。到MP3興起，能夠在全球網絡上搜尋，可惜也只是找到兩三首歌。後來iTunes這類網上音樂店開始運作，號稱有一千幾百萬張專輯，卻偏偏沒有這張。倒是有一張他們在千禧年後重組的巡演錄音《Live in America》，算是望梅止渴，但裏面是沒有《Night After Night》這首歌的。隔絶了多年，終於久別重逢，而且還有足本的整個當晚的演唱會，更是高清格式，我實在難掩興奮。
+
+<figure>
+<img src="https://web.archive.org/web/20210712024516im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/搖滾樂-Eddie%20Jobson-20190310121315_2bb5_large.jpg" alt="">
+<figcaption>Eddie Jobson和他的玻璃纖維小提琴。照片來源：GlobalProgressive Rock Weekly</figcaption>
+</figure>
+
+而今年的搖滾名人堂終於將另一支英國樂隊Roxy Music選入，而Eddie Jobson亦以成員身分出席接受頒獎。他將會是獲選入搖滾名人堂的首位小提琴師。他慣常用的一支玻璃纖維小提琴Plexiglas violin，將會被安排在Cleveland搖滾名人堂展出。也許未能將他變成家傳戶曉的名字，但能夠得到同儕的認同，寫入史册中，也是一項成就了。
+
+連日下雨，但今夜，心裏有點月明星稀，豁然開朗的感覺。能夠重温少年舊夢，重拾曾經澎湃的激情，輕撫一顆仍然跳動雀躍的搖擺心窩。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712024516/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Duncan Lau](https://web.archive.org/web/20210712024516im_/https://www.hkcnews.com/uploads/avatars/582c0fa6-4072-4844-bec2-1b4888aa1e8a.png?1815252199)
+
+**博客 | Duncan Lau**
+
+【Duncan Lau・天涯曲此時】戲如人生，人生如戲，最大的分別就是不少人在生活裏忽略了音樂，如果在生活裏的某些時刻，配上音樂，會不會讓生命更多姿多采？如果生命能如電影般，做後期製作加入配樂，你會如何選擇？在此時此刻，你想起那一首歌？My FaceBook Page fb.me/DuncanLauHongKong

@@ -1,0 +1,65 @@
+---
+title: "撫今追昔，就明白什麼叫高尚情操"
+date: "2020-06-26"
+last_updated: "2020-06-26 20:48:41"
+author: "區家麟"
+category: "眾說"
+tags:
+  - "陳方安生"
+  - "Anson Chan"
+url: "https://web.archive.org/web/20210916112614/https://www.hkcnews.com/article/31374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31375/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31375/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 撫今追昔，就明白什麼叫高尚情操
+
+<figure>
+<img src="https://web.archive.org/web/20210916112614im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/陳方安生-香港人-20200626202019_2c74_large.jpg" alt="">
+</figure>
+
+年屆八旬的陳方安生宣布淡出政治參與，並透露女兒猝然離世，打擊沉痛，希望有更多時間與家人共聚天倫。
+
+簡單的公告，也難免惹來冷言冷語，甚至同路人的嘲諷。似乎，這時代，不少人寄望一個完美的英雄，反抗要堅持到最後一刻，犧牲要無窮無盡。
+
+回想起當年陳方安生辭去政務司司長，後來她曾提過，辭職是因為不滿董建華推行問責制，架空公務員。當年她辭職，平穩過渡的象徵「董陳配」終結，曾經有一陣哄動。
+
+<figure>
+<img src="https://web.archive.org/web/20210916112614im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/董建華-陳方安生-回歸-20170618220703_26dd_large.jpg" alt="">
+<figcaption>「董陳配」一度是平穩過渡的象徵。</figcaption>
+</figure>
+
+如今回想，再看看今天的所謂「問責」高官，當時陳方安生毅然辭職，可謂「情操高尚」。近二十年來實踐，引進「問責制」，明明白白是一次政變奪權，命名「問責」制是神來之筆，語言偽術高超，騙倒不少天真的港豬；看今天「問責高官」，只向老闆獻媚，教育局長反教育、律政司長反法治、民政事務局局長反人民、保安局長只保政權之安，他們向中聯辦負責，把法律裝備成武器、改造守則規程成為鎮壓工具，視香港年輕人如糞土。
+
+回想，陳方安生那個年代的高官和政治人物，不須過分美化，但最少，大部分是decent的。
+
+#### 面對如此體制，今天這群問責高官，沒一人恥與為伍，繼續享受高薪厚祿，肆意動用香港人的錢玩弄香港人，阿爺豎起尾巴，第一時間擦鞋表忠。當然，乃因為往日的公務員早已被邊緣化，又紅又專的未來之星早已透過問責制，掌控關鍵位置。
+
+從體制中高調退下，不收聲，繼續為香港的核心價值發聲，需要勇氣。
+
+陳方安生本來可以老早淡出火線，安享天倫之樂，但她沒有，被黨媒抹黑成「禍港四人幫」之一。也許很多人不知道，愛國賊組織也愛貼身狙擊她，由家門口開始貼身抗議，她也默默承受。
+
+誰可以堅持到八十歲？最少，我不肯定自己可以。
+
+*** *** ***
+
+相關文章：   
+ 【惡法日誌】 [孤陋寡聞柒柒柒](https://web.archive.org/web/20210916112614/https://bit.ly/2BFsKdN)   
+ 【惡法日誌】 [我沒有站出來，只是別人在後退](https://web.archive.org/web/20210916112614/https://bit.ly/3dX6JW9)
+
+本文原載筆者 [網誌【潮池】](https://web.archive.org/web/20210916112614/https://aukalun.blogspot.com/2020/06/blog-post_26.html)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916112614/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 區家麟](https://web.archive.org/web/20210916112614im_/https://www.hkcnews.com/uploads/avatars/f104653b-ae0b-450f-a962-afdcbb666aba.png?1480233347)
+
+**博客 | 區家麟**
+
+【區家麟・區家麟網誌】區家麟，曾經夢想浪遊世界，竟然實現了一大半。行過萬里路，又發覺，不如讀萬卷書；很多話要說，請讓我慢慢說。本欄原載於區家麟的網誌《潮池》。

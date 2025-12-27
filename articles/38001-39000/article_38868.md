@@ -1,0 +1,44 @@
+---
+title: "【兄弟守候】彭家浩：我諗無一個人會習慣監獄生活　盼哥哥堅強定會陪伴走下去"
+date: "2021-03-05"
+last_updated: "2021-03-08 23:31:23"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "初選大起訴"
+  - "彭家浩"
+  - "彭卓棋"
+url: "https://web.archive.org/web/20210729230011/https://www.hkcnews.com/article/38868/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38868/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39015/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【兄弟守候】彭家浩：我諗無一個人會習慣監獄生活　盼哥哥堅強定會陪伴走下去
+
+「其實之前都有心理準備，律政司會上訴，最後控方真的彈起身……都無辦法啦！啊！又見不到他了。」連日來在法院等候哥哥保釋出來的彭家浩失望地說。
+
+
+{{< video src="//web.archive.org/web/20210729230011if_/https://www.youtube.com/embed/aJ6a32Luyn0" >}}
+
+
+本身是中西區區議員的彭家浩，哥哥是南區區議員彭卓棋。總裁判官蘇惠德原本以不得以任何方式作出、發放或轉載危害國家安全罪行的言論和行為、不得參與選舉、不得聯絡外國官員議員、宵禁、交出所有旅遊證件及BNO等相當嚴苛的條件，批出彭卓棋的保釋申請。但律政司即時提出上訴，變相他仍要還柙，無法當庭獲釋。
+
+這夜，彭家浩和家人也在法庭內，從延伸庭的直播電視中，看著哥哥很小的頭。他說，日復日的等待，有種終於知道結果的感覺，但遇上律政司上訴，雖有心理準備，但仍感到很失望、無奈和不開心，「唔係47人獲保釋，其實也一樣說不過去，見到香港個制度係幾咁崩壞。」
+
+「我都唔明法官個準則係點，諗咗好耐我都諗唔到。」他坦言即使一眾被告獲得保釋，條件卻相當苛刻和主觀，似乎任何事都不能做。「嗰4個條件話有機會危害乜乜乜乜，好牽強囉，咩叫有可能？好多嘢都有可能，即係任佢去揣測囉。」
+
+<figure>
+<img src="https://web.archive.org/web/20210729230011im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-初選大搜捕-20210305021848_2f4a_large.jpg" alt="">
+<figcaption>（左一）彭卓棋日前被帶上囚車。Eyepress圖片</figcaption>
+</figure>
+
+連日來無法親身望哥哥一眼，父母和親朋戚友都十分擔心彭卓棋。他說：「我諗無一個人會習慣監獄入面的生活，你的人身自由受到咁大的限制，是一個很大的問題。」但他說一定會繼續陪伴哥哥，面對之後漫長的司法程序。他想告訴哥哥和還柙中的被告：「希望哥哥堅強，老實說47名被告也很堅強，祝他們好運。」
+
+雖然對結果感到無奈，彭家浩對將來仍然有期盼：「有些不在我們掌握之內的事，我們可能無辦法，但掌握之內的就要做好自己。堅持下去，這一定是最重要，在拘留所的意志很難熬，可能會有很大打擊，但希望他繼續堅持下去，相信情況會變好。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729230011/https://www.hkcnews.com/aboutus/#subscribe)

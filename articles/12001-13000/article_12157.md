@@ -1,0 +1,60 @@
+---
+title: "朋友未必探你　探你的又未必是朋友"
+date: "2018-05-15"
+last_updated: "2018-05-22 20:49:46"
+author: "陳聰"
+category: "眾說"
+tags:
+  - "朋友"
+  - "探監服務"
+  - "代客探監"
+url: "https://web.archive.org/web/20220809110502/https://www.hkcnews.com/article/12157/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12311/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/12157/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12311/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 朋友未必探你　探你的又未必是朋友
+
+提供「代客探監」服務的公司人員，報稱是囚犯「朋友」到監獄探監，先被裁定串謀欺詐懲教署罪成，但部分人士上訴，終審法院推翻裁決，認為「朋友」的定義應從囚犯的角度看，故應包括按囚犯及其親戚要求前往探訪的人士。
+
+[想聽陳聰聲音：朋友的定義](https://web.archive.org/web/20220809110502/https://bit.ly/2ICppiA)
+
+<figure>
+<img src="https://web.archive.org/web/20220809110502im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/05/探監服務-終審法院-代客探監-20180515160446_eef1_large.png" alt="">
+<figcaption>自己曾坐過牢的「代客探監」服務公司東主溫皓竣，終審上訴得直，獲判無罪。蘋果日報資料照片</figcaption>
+</figure>
+
+協助涉案員工的張達明在《晴朗》說：「曾在庭上問署方人員，如果有位年老媽媽想探被羈留的兒子，拜託鄰居去辦，署方會填寫甚麼？對方答『朋友囉』！」
+
+「朋友的朋友又是否朋友呢？」   
+ 不同人有不同的定義，大家對朋友的定義是甚麼？
+
+發生於2008年的陳冠希事件，有網民被指發布裸照而被警方拘捕，當時的警務處助理處長黃福全在記者會上曾說：「如果係你個老友記嚟嘅，識咗好耐，大家一齊睇，或者話：『嘩！好正喎，畀個copy我得唔得？』咁係可以，咁係唔犯法嘅。」於是，即時引發中港台討論區，人人以「朋友」相稱！
+
+到近兩三年，網絡上則以「Friend」來形容對象與某某同類或近似，例子如當形容榴槤白咖啡的時候，就會說「嘩，榴槤個Friend，超好味！」
+
+就連《人民日報》也曾談及交友程式當中的「朋友圈」問題！文章指，「朋友圈已經成為我們維繫人際交往的一種方式。『朋友圈裡無朋友』的焦慮蔓延，也恰好說明我們賦予了朋友圈太多的期待和意義。」
+
+說回此案，當2013年在觀塘法院審訊時，當時負責監督探訪室的懲教事務監督指，根據《監獄規則》第48條規定只有朋友及親屬才可探訪，而朋友定義則來自《牛津字典》。   
+ 不過，根據《牛津字典》，「Friend」都只是「A Person You Like」，甚至是「Not Enemy」。
+
+> 說到底，朋友的定義應是甚麼？   
+>  終審法院說得好，「朋友就是透過探訪向囚犯提供精神及物質支援、以及囚犯願意會見的人。」
+
+
+{{< video src="https://web.archive.org/web/20220809110502if_/https://www.youtube.com/embed/TPLDZqDeuSk" >}}
+
+
+「朋友，我當你一秒朋友。」   
+ 問世間，有幾多朋友？田北辰擔任九鐵主席期間，就曾聲稱與行政總裁楊啟彥「不是朋友」；曾蔭權被查，他的朋友去了哪裡？梁振英跟周浩鼎「打龍通」，他們又是否朋友？麥齊光跟林鄭，又是否朋友？
+
+朋友未必探你，探你的又未必是朋友。
+
+在危難時，向你提供精神及物質支援的，請當他一世朋友。
+
+---
+
+![博客 | 陳聰](https://web.archive.org/web/20220809110502im_/https://www.hkcnews.com/uploads/avatars/ce660752-a30c-4b25-89c4-a259d9b2f377.png?652425082)
+
+**博客 | 陳聰**
+
+【陳聰・看得見的晴朗】商台「雷霆881」《在晴朗的一天出發》主持。時事評論，聽得見；化成文字，看得清。縱使時局陰雲密佈，我們總要永續心境晴朗。

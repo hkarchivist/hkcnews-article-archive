@@ -1,0 +1,45 @@
+---
+title: "貨淨出口在獨撐　其餘環節無運行"
+date: "2021-08-23"
+last_updated: "2021-08-23 18:32:27"
+author: "羅家聰"
+category: "眾說"
+tags:
+  - "羅家聰"
+  - "香港GDP"
+  - "PMI"
+url: "https://web.archive.org/web/20211202043053/https://hkcnews.com/article/44671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDgdp-pmi-44680/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDgdp-pmi-44680/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 貨淨出口在獨撐　其餘環節無運行
+
+<figure>
+<img src="https://web.archive.org/web/20211202043053im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/羅家聰-香港GDP-PMI-20210823180206_16b7_large.jpg" alt="">
+</figure>
+
+本港前周五公佈次季GDP數字，按年增7.6%，較首季8.0%稍低；按季亦微縮，若本季也按季縮，則現次輪衰退了。PMI素來被視為「影子GDP」，5月見52.5高位後6、7月持續放緩，儘管幅度不大，但按季向下正預示GDP持續按季微縮；尤其外圍、大陸目前也放緩，故這可能性更高了。若再按開支法拆開細看，會更覺增長不可持續。
+
+頭兩季強勁增長，顯然由貨物出口按年暴升逾三成及其進口按年暴跌逾三成所賜。去年同期的低基數效應固然是主因之一，但這效應頂多解釋一、兩成變幅。換句話說，縱沒基數效應，貨物出口亦或增近三成，其進口亦跌一、兩成。這些幅度本已不常見，何況本港的貨物貿易素來以轉口佔壓倒性比例，「出增進減」這怪現象肯定不能持久。
+
+反而傳統拉動增長的服務貿易，次季出口僅增0.5%，進口則縮1.1%，殊不理想。另一拉動增長的槓桿——投資，即固定資本形成連庫存變動，首季縮，次季亦僅微增。即使佔比最大的私人消費亦僅增4.7%，低於整體GDP增長，若計及去年同期縮一成，兩年合計仍縮半成。消費券已作用不大，加上內鬥市冧股票或輸更多，別想當然了。
+
+最近美國公佈的數據如零售銷售、消費信心也顯著放緩，原因很簡單：通脹急升，需求定律指價貴需求減。至於大陸，如斯內鬥逐行剷平下，裁員處處，經濟哪會不差？香港夾在兩者之間，豈能獨善其身？加上素來與GDP正比關係密切的人口轉升為跌，還有那不自量力的反制裁，前景如何也毋須畫出腸了。
+
+本周美國出PMI、售樓、耐用品、個人收支、消費情緒；本港出貿易數字。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202043053/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 羅家聰](https://web.archive.org/web/20211202043053im_/https://hkcnews.com/uploads/avatars/c3ce8859-7e68-4803-9232-df57a4cd24f4.png?835679720)
+
+**博客 | 羅家聰**
+
+【羅家聰・一名經人】香港經濟學家、財經專欄作家，有「香港末日博士」之稱，愛研究歷史經濟數據尋出經濟大趨勢。此欄將每周回顧前瞻，從中分析你最要知的經濟數據及重點。FB專頁：facebook.com/kachung.law.988｜電郵：[email protected]

@@ -1,0 +1,54 @@
+---
+title: "美在台協會新館落成　助理國務卿參加典禮"
+date: "2018-06-12"
+last_updated: "2018-06-12 20:59:49"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蔡英文"
+  - "tsai ing wen"
+  - "美國在台協會"
+  - "美台關係"
+url: "https://web.archive.org/web/20210628175407/https://www.hkcnews.com/article/12791/%E7%BE%8E%E5%8F%B0%E9%97%9C%E4%BF%82-%E7%BE%8E%E5%9C%8B%E5%9C%A8%E5%8F%B0%E5%8D%94%E6%9C%83-%E8%94%A1%E8%8B%B1%E6%96%87-12802/%E7%BE%8E%E5%9C%A8%E5%8F%B0%E5%8D%94%E6%9C%83%E6%96%B0%E9%A4%A8%E8%90%BD%E6%88%90-%E5%8A%A9%E7%90%86%E5%9C%8B%E5%8B%99%E5%8D%BF%E5%8F%83%E5%8A%A0%E5%85%B8%E7%A6%AE"
+original_url: "https://www.hkcnews.com/article/12791/%E7%BE%8E%E5%8F%B0%E9%97%9C%E4%BF%82-%E7%BE%8E%E5%9C%8B%E5%9C%A8%E5%8F%B0%E5%8D%94%E6%9C%83-%E8%94%A1%E8%8B%B1%E6%96%87-12802/%E7%BE%8E%E5%9C%A8%E5%8F%B0%E5%8D%94%E6%9C%83%E6%96%B0%E9%A4%A8%E8%90%BD%E6%88%90-%E5%8A%A9%E7%90%86%E5%9C%8B%E5%8B%99%E5%8D%BF%E5%8F%83%E5%8A%A0%E5%85%B8%E7%A6%AE"
+---
+
+# 美在台協會新館落成　助理國務卿參加典禮
+
+<figure>
+<img src="https://web.archive.org/web/20210628175407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/蔡英文-美國在台協會-美台關係-20180612172920_20cb_large.jpg" alt="">
+<figcaption>美國在台協會新館落成典禮上，台灣總統蔡英文與美國助理國務卿羅艾斯互動頻密。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210628175407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/美台關係-蔡英文-馬英九-20180612175104_258c_large.jpg" alt="">
+<figcaption>台灣前總統馬英九（左一）與現任總統蔡英文（左四）參加落成典禮，唯二人未見交流。美聯社</figcaption>
+</figure>
+
+耗資2.55億美元（約20億港元）的美國在台協會（AIT）新館，周二舉行落成典禮。美國助理國務卿羅艾斯（ Marie Royce）抵台參加典禮，她是2015年美國國務院負責經濟商業的助理國務卿芮福金訪台之後，到台灣的最高級美國國務院官員。台灣總統蔡英文、前總統馬英九、行政院長賴清德、外交部長吳釗燮等亦出席典禮。
+
+美國在台協會主席莫健（James Moriarty）致詞時表示，美國在台協會新館落成，對美台關係來說是重要里程碑。美國在台協會於1979年根據美國國會的《台灣關係法》成立，如今台灣轉型成為活躍的民主政體，足以成為印太及其他地區的楷模。莫健說，新館顯示美國對台灣堅定承諾、雙方人民之間緊密的合作關係，以及美台長久的友誼。
+
+蔡英文致詞稱，大家慶祝台美關係數十年來的故事中的嶄新篇章，這故事是在場人士一起譜寫而成。她說，這個日子紀念了大家過去達成的各項成果，也象徵未來即將成就的輝煌，並進一步重申台美關鍵伙伴關係所共享的價值、利益及承諾。
+
+<figure>
+<img src="https://web.archive.org/web/20210628175407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/AIT-美國在台協會-台北-20180612205456_2a77_large.jpg" alt="">
+<figcaption>照片來源：美國在台協會Facebook</figcaption>
+</figure>
+
+這次美國在台協會新館落成，美國政府派誰參加落成典禮，引起中國大陸關注。曾有消息指出，美國國家安全事務顧問博爾頓可能到台灣，但最終是博爾頓陪同總統特朗普，到新加坡會晤北韓領袖金正恩，並無前赴台灣。今次來台的是主管教育與文化事務的助理國務卿羅艾斯，對於羅艾斯出席典禮，中國外交部發言人耿爽說，美方以任何藉口派官員赴台活動，都嚴重違反一個中國原則和中美三個聯合公報規定，干涉中國內政，對中美關係造成消極影響。
+
+美國在台協會新館位於台北內湖區，佔地6.5公頃，據了解，新館保安措施嚴密，使用防爆物料，還具備防竊聽與抗干擾功能。
+
+<figure>
+<img src="https://web.archive.org/web/20210628175407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/美國在台協會-台北-AIT-20180612205526_1669_large.jpg" alt="">
+<figcaption>美國在台協會新館佔面積很廣，保安嚴密。照片來源：美國在台協會Facebook</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210628175407/https://www.hkcnews.com/aboutus/#subscribe)

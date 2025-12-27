@@ -1,0 +1,89 @@
+---
+title: "文藝工作者的日常"
+date: "2021-04-01"
+last_updated: "2021-04-07 14:28:25"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "疫症蔓延"
+  - "盧偉力"
+  - "藝術文化界"
+url: "https://web.archive.org/web/20211202033509/https://hkcnews.com/article/39858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40063/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/39858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40063/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 文藝工作者的日常
+
+<figure>
+<img src="https://web.archive.org/web/20211202033509im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/藝術文化界-專業和你傾-20210401012652_246d_large.png" alt="">
+</figure>
+
+【撰文：電影教育工作者盧偉力】
+
+二零二零年，整個世界疫症蔓延，人命安危受到極大衝擊。香港在農曆年之後，亦告失守，傳染病毒肆虐，先後有幾波挑戰。學校停課，至少停止面對面授課，表演場所關閉，加上政府推行「限聚令」，一般人與人的接觸要極度減少。
+
+在這樣的疫症環境，文藝工作者如何找到自己的位置，以自身力量，繼續自己所相信的文化工作？
+
+這是一個嚴肅的生命實踐問題；這亦是一個直接的生活安排問題。
+
+### 先保護自己再談文化工作
+
+我認為，我們首先要保護好自己，然後才能談文化工作。這是非常時期，但在疫症面前，我們必須以日常生活的安全放在第一位。
+
+<figure>
+<img src="https://web.archive.org/web/20211202033509im_/https://hkcnews.com/news_新聞/hk-discuss/2020/02/HK-武漢肺炎-香港人-20200215003127_13d8_large.jpg" alt="">
+<figcaption>疫症面前，我們如何繼續日常？</figcaption>
+</figure>
+
+這正正是我這題目的意思。我們的日常，並非單單關乎我們自己，更關乎我們所處時代、所居香港的走向。
+
+從二零二零年到今天，我仍然教學，仍然參加不少會議，仍然創作與研究，仍然會看戲。只不過，大部分活動都是在網上進行。我不單必須習慣在網上作文化活動，更漸漸掌握這特殊交流方式，使教學與研究有某些新方向。
+
+現在我幾乎每天都在思考：如何在日常中積累文化力量，使其在適當時能釋放出來，成為創造的能量？
+
+<figure>
+<img src="https://web.archive.org/web/20211202033509im_/https://hkcnews.com/news_新聞/hk-discuss/2018/01/Hong%20Kong-藝術-文化及創意產業-20180108034019_a03f_large.jpg" alt="">
+<figcaption>疫症面前，如何在日常中積累文化力量？</figcaption>
+</figure>
+
+過去一年，我在網上看了很多戲，包括一些從前忽略了的流行的影視節目。我在木村拓哉一套又一套電視劇中看到日本大眾傳播人，如何善用媒介敘事，滲出社會改良，甚至社會改革的訊息。我在勝新太郎的《座頭市系列》中反反覆覆體會「邪惡」，並且明白這位六十年代的「盲俠」，為何如此受俗民歡迎。
+
+每一個年代，每一個地方都有邪惡，如影隨形。
+
+<figure>
+<img src="https://web.archive.org/web/20211202033509im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/座頭市-勝新太郎-20210331164341_1d90_large.jpg" alt="">
+<figcaption>勝新太郎的代表作是系列電影《座頭市》。</figcaption>
+</figure>
+
+### 鼠疫之初大家都不以為然
+
+過去幾個月，得到香港電台「有聲好書」節目編導羅曼穎邀請，協助用聲音演繹法國諾貝爾文學奬得主卡繆（Albert Camus, 1913 - 1960) 的長篇小說《鼠疫》。小說以平實筆法，敘述發生在法國殖民地阿爾及利亞港口城市阿赫蘭的一次鼠疫。在不知不覺間，鼠疫在市內蔓延。起初大家都不以為然，仍然在咖啡館夜夜笙歌，但隨着感染人數直線上升、死亡數字成為每天對全市居民的重擊，最後政府不得不封城。市民與外間隔絕，心理產生各方面變化。卡繆捕捉得全面而按步就班。
+
+<figure>
+<img src="https://web.archive.org/web/20211202033509im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/卡繆-Albert%20Camus-鼠疫-20210331164247_1cbc_large.jpg" alt="">
+<figcaption>卡繆的長篇小說《鼠疫》描述疫情人們的各項心理變化。</figcaption>
+</figure>
+
+卡繆借一位醫生，帶出幾個不同人物，有血有肉。有在疫情中以日復一日堅持自己寫作興趣的小公務員；有慷慨激昂演說，強調鼠疫是上帝給人類學習愛與教義的神甫；亦有企圖想方設法偷渡出關，回巴黎與女友團聚的記者。
+
+當我讀着小說，驚覺到在疫症蔓延的環境，不同地方的人，都有共同的、普遍的心路。
+
+**我亦體會到卡繆為何被人稱為是二十世紀存在主義思想的重鎮。他寫透了人在無能為力環境中的意義。那天錄音，讀到那記者幾經艱難可以離開，最後卻決定留下來參加義務醫療工作，我落淚了。**
+
+**作者簡介：** 盧偉力，電影教育工作者、藝評人、戲劇人、詩人，現任藝術發展局委員。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202033509/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20211202033509im_/https://hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

@@ -1,0 +1,51 @@
+---
+title: "【共渡時艱】美孚新邨減兩個月管理費共渡時艱　每戶慳＄2000-2800"
+date: "2020-02-27"
+last_updated: "2020-02-27 19:18:07"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "美孚新邨"
+  - "美孚新村"
+  - "武漢肺炎"
+url: "https://web.archive.org/web/20220125172224/https://www.hkcnews.com/article/27332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20002800"
+original_url: "https://www.hkcnews.com/article/27332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20002800"
+---
+
+# 【共渡時艱】美孚新邨減兩個月管理費共渡時艱　每戶慳＄2000-2800
+
+武漢肺炎疫情未減, 本港經濟大受影響，部分業主及地產商已向商戶減租，有五十多年歷史的老牌屋苑美孚新邨, 該屋苑第六期業主立案法團近日宣布，豁免兩個月即三月及四月的管理費，受惠包括住宅、商舖及停車場業主，希望與美孚居民共渡時艱，每戶共可省回2000元至2800元不等，成為首個豁免管理費的大型屋苑。
+
+美孚新邨共八期有99座，是次率先公布豁免管理費的為第六期，涉及座數共13座，其餘期數的業主立案法團未有相關公布。美孚北區議員李俊晞表示，近日收到不少其他期數的居民，表示希望同樣爭取豁免管理費，他指居民可積極向業主立案法團及管理公司反映，令整個屋苑也可受惠。
+
+<figure>
+<img src="https://web.archive.org/web/20220125172224im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/美孚新村-20200227173737_ac67_large.jpg" alt="">
+</figure>
+
+美孚共八期的管理工作，均由匯秀企業有限公司負責，現時美孚管理費平均約每呎$1.5左右，負責第五及六期的匯秀管業處負責人黎先生回覆眾新聞查詢時表示，是次豁免兩個月管理費乃管理公司與業主立案法團共同商議得出的結果，他們亦希望籍這次豁免管理費，減輕主戶的負擔，共渡時艱。
+
+「每戶每月的管理費由1000元至1400元不等,我們考慮到如只減一個月,對業主幫助不太大,業主立案法團檢視過第六期的財政狀況後,認為可一口氣減兩個月,以減輕居民負擔。這次免管理費令管理公司每月少收百多萬元的收入,兩個月即二百多萬元。」
+
+<figure>
+<img src="https://web.archive.org/web/20220125172224im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/美孚新邨-20200227183609_d0d7_large.jpg" alt="">
+<figcaption>近日第六期業主立案法團張貼通告,公布減管理費兩個月。</figcaption>
+</figure>
+
+至於其他期數會否陸續公布豁免管理費?黎先生指每期的財政狀況不同，要由該期的業主立案法團開會決定。他指並非因第六期的財政狀況特別好而率先豁免。「其實美孚八個期數的財政也有盈餘,相信這次第六期減管理費後,也會對其他期數減管理費做成壓力。」
+
+區議員李俊晞表示,希望管理公司能與居民共同抗疫，除了免管理費外,亦要繼續加強屋苑的清潔及消毒,令居民住得安心。
+
+<figure>
+<img src="https://web.archive.org/web/20220125172224im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/360-HK-美孚新邨-20170121185049_8c56_large.jpg" alt="">
+<figcaption>美孚第六期公布豁免管理費兩個月,成為首個減管理費的大型屋苑。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220125172224im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/美孚新村-20200227173814_20cc_large.png" alt="">
+<figcaption>美孚新邨共八期有99座，是次率先公布豁免管理費的為第六期，涉及座數共13座，其餘期數的業主立案法團未有相關公布。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220125172224im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/美孚新村-20200227174917_2182_large.jpg" alt="">
+<figcaption>美孚北區議員李俊晞表示，希望管理公司能與居民共同抗疫，豁免管理費外，亦要繼續加強屋苑清潔及消毒，令居民住得安心。</figcaption>
+</figure>

@@ -1,0 +1,62 @@
+---
+title: "加控黎智英顯國安強權　凍結好鄰舍牽教會恐慌"
+date: "2020-12-14"
+last_updated: "2020-12-17 23:28:18"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "黎智英"
+  - "好鄰舍北區教會"
+  - "凍結戶口"
+url: "https://web.archive.org/web/20210926194221/https://hkcnews.com/article/36435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/36435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 加控黎智英顯國安強權　凍結好鄰舍牽教會恐慌
+
+過去一周，較矚目的政治新聞有數則，包括：好鄰舍北區教會戶口被凍結，員工無法出糧，服務隨時停頓，引起眾多教會恐慌；二是壹傳媒東主黎智英被加控勾結外國勢力的國安法罪名，若罪成可被重判，且繼續還柙不准保釋，令蘋果日報能否營辦下去成為疑問；一批內地出生、海外留學的財金界人士宣布組成紫荊黨，引起政壇諸多猜測；特區政府宣布獲得兩家藥廠各供應750萬劑疫苗，招來市民熱議。
+
+<figure>
+<img src="https://web.archive.org/web/20210926194221im_/https://hkcnews.com/news_新聞/hk-discuss/2020/12/黎智英-20201214232223_1f3d_large.jpg" alt="">
+</figure>
+
+好鄰舍北區教會的負責人陳凱興一家已遠赴英倫，警方指他們涉嫌挪用眾籌所得款項，可能觸犯洗錢罪行，需要進一步調查，所以凍結了這家教會兼註冊慈善團體的幾個銀行戶口，負責人雖在海外澄清兼抗議，仍無法阻止香港的教會戶口被凍結，教會員工表示無法出糧，他們提供的社會服務可能受影響。這個消息在香港基督教會之間迅速傳開，引起了許多教會領袖和信徒恐慌，尤其一些在反修例運動上較同情抗爭者的教會，擔憂當局會以國安法調查教會領袖，然後找藉口凍結教會戶口，就像內地打壓民間基督教會那樣。一些中產家庭較多的教會，近日出現教友移民潮，教會為了避免財產被凍結，開始研究是否變賣部分不動產，轉移到離岸戶口或海外信託名下，就像當年九七危機觸發大企業紛紛遷冊海外那樣。
+
+黎智英被加控勾結境外勢力危害國家安全罪，提堂時控方羅列的控罪詳情，大部分是國安法訂立前黎智英赴海外游說美國制裁中國，並多次發表呼籲制裁中港官員的文章，控方然後指國安法頒布後，黎智英繼續高調反對中國政府，包括成立Twitter戶口及《蘋果日報》加設英文版，意圖把二者連結起來，證明黎智英持續地尋求外國對中國進行制裁、封鎖或採取其他敵對行動。這是由於國安法並沒有追溯力，而立法後黎智英也轉趨謹慎，不再公開呼籲制裁，只是繼續批評習近平獨裁，誓言留在香港，指香港人會繼續抗爭等，並跟蹤及轉發多名外國政要的Twitter留言，這些竟都成了控方羅列的罪證。控方的指控全部是針對黎的政治言論，而且大部分是立國安法前的言論，打開了國安法可變相具追溯力的潘朵拉盒子，令本已含糊寬闊的國安罪名，變得更無遠弗屆，而一旦被控違反國安法，便要交由特首指派的國安法法官審理，通常不准保釋，等如未審訊已立即失去人身自由，其營運的事業自然亦大受影響。
+
+#### 好鄰舍北區教會被凍結戶口，與黎智英被加控觸犯國安法，兩宗事件在同一周發生，疊加的政治震盪相當大，因為這兩宗刑事案件顯示，即使控方未有確切證據，即使當事人大力申辯陳明理由，但只要控方先發制人，憑單方面的指控就能使被告方失去人身自由與財產自由，而司法機構無法提供及時的制衡或補救，在等待冗長的司法程序完成前，人被關柙錢被凍結。
+
+這個殘酷的現實讓許多人心寒，就算是政治上沒有站得很前的也會想，為了自己和家人安心，必須積極考慮移民，最低限度也要把孩子送去外國讀書，把財產轉移到海外國家，這樣，即使為工作或生意必須留在香港，風險也不致於過度集中。
+
+由此看來，近月連串政治打壓引發的，不單是政治活躍人士的流亡潮，以及對香港政局反感擔憂人士的移民潮，還會引發為了分散風險的資產變賣潮及資金外移潮，這幾股人才與資金外移的潮流累積起來，對香港經濟的影響有多深？是否可由內地移港人才與資金取代？這些不確定性，將令未來數年香港的發展蒙上巨大陰影。
+
+<figure>
+<img src="https://web.archive.org/web/20210926194221im_/https://hkcnews.com/news_新聞/hk-discuss/2020/12/紫荊黨-新港人治港-李山-20201215111648_2142_large.png" alt="">
+<figcaption>中聯辦旗下雜誌《紫荊》的網站，專訪紫荊黨創黨主席李山。</figcaption>
+</figure>
+
+至於紫荊黨，從媒體報道及兩位創黨要員黃秋智與李山的報刊訪問來看，它雖定位為親建制的、熟悉內地的、懂經濟金融的政黨，但核心主張與官方並不完全相同，例如它主張普選，行兩院制，且迄今未見內地媒體為其造勢，未有官方權威人士為其加持，只憑海歸精英身分引人聯想；它的所謂創造性思維、香港發展出路，其實不過是用經濟手段處理一些老大難題，例如以合股方式推動明日大嶼，解決大規模填海對庫房造成的壓力。從目前看到的跡象，這個黨不像是黃袍加身一統建制的中共駐港總代理，比較像是有一定中央人脈的內地來港精英，不滿建制未能代表他們而另起爐灶，謀求在泛民被迫出局後，於建制陣營佔一重要席位。
+
+疫苗一事，反映的是一場政治博弈。林鄭月娥領導的特區政府，透過內地的政商關係，宣布與兩家疫苗製造商達成了協議，當中有中國研製的，由中國科興供應750萬劑，也有中國復星醫藥與外國藥廠（德國BioNTech）合作生產的750萬劑，以每人兩劑計算，足夠讓全港七百多萬居民注射，林鄭月娥明顯希望這個好消息能振奮人心，讓人對香港前景重拾希望，有利她尋求連任。
+
+<figure>
+<img src="https://web.archive.org/web/20210926194221im_/https://hkcnews.com/news_新聞/hk-discuss/2020/12/科興生物-輝瑞Pfizer-疫苗-20201212011957_1d90_large.jpg" alt="">
+</figure>
+
+不過，市民關注的是疫苗是否真的有效？會否有副作用？由於採購所得既有中國研發及製造疫苗，也有中外合作據稱外國生產疫苗，市民很自然就會比較，到底那一種較好？自然大多數人傾向使用外國製疫苗，這就為疫苗分發帶來了政治難題，假如多數市民輪候或搶購外國疫苗，不屑使用政府免費供應的國產疫苗，國家的臉子和尊嚴放那裏去？如果不給市民選擇，改由政府統一發放，又會引發如何分配的爭端，到時愛國政團是否集體注射國產疫苗以示忠心？這些執行上的政治難題，如果找不到妥善解決方法，以疫苗來恢復信心重啟經濟的政治算盤，可能就打不響了。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210926194221/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20210926194221im_/https://hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

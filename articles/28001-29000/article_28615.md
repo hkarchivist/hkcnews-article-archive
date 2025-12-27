@@ -1,0 +1,69 @@
+---
+title: "教牧發起租借民宿予麥難民　盧智榮：可藉想像令教會更豐富"
+date: "2020-04-05"
+last_updated: "2020-04-06 10:11:30"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "麥難民"
+  - "教會"
+  - "短期民宿"
+url: "https://web.archive.org/web/20220119222709/https://www.hkcnews.com/article/28615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28624/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/28615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28624/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教牧發起租借民宿予麥難民　盧智榮：可藉想像令教會更豐富
+
+【撰文：高思憫@時代論壇】   
+ ***本文為基督教《時代論壇》（2020年4月3日）報道，眾新聞獲授權轉載***
+
+<figure>
+<img src="https://web.archive.org/web/20220119222709im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/麥難民-教會-20200405183844_1ba6_large.jpg" alt="">
+<figcaption>照片由被訪者提供。</figcaption>
+</figure>
+
+本港麥當勞自三月廿五日起至四月七日，晚上六時後不設堂食，因此不少教內人士十分關注一些露宿該店的「麥難民」處境，更建議開放教會予他們留宿。傳道人盧智榮有見及此，在網上發起眾籌，租用一些本港的民宿和賓館，助麥難民渡過這兩星期的難關。他在四月一日接受本報訪問當天，表示已有十八位人士受助，而他們主要集中在油尖旺區。盧智榮鼓勵信徒，應用每個人的能力去回應，因為上帝的使命不單託付堂會，而是整個信徒群體。
+
+最初，盧智榮是在面書呼籲籌錢租賓館，有不少同工和弟兄姊妹回應，「有錢出錢，有力出力」。截至訪問當日，已籌到五萬多元，其中流堂和基督教活石堂九龍堂，以教會資金支持這次的行動。盧智榮也談到，並非所有參與的義工為信徒，現時有二十多位義工，並分成不同的小隊，有些是負責找住宿；有些是遇到新接觸的麥難民，便會帶他們到民宿住；有些會定時去關心那些麥難民；有一些農夫朋友會煮飯給他們。最初只是想提供住宿，他們後來慢慢加入不同的元素，如邀請無家者協會的社工去探訪和跟進。
+
+### 困難為協調麥難民生活模式
+
+教會應否開放予麥難民留宿，引起信徒熱議，盧智榮認為，與其花時間討論，不如多做實事。他直言自己也是堂會的傳道人，知道教會的行政機構和條例未能有彈性地回應麥難民的需要，反應也會較慢。「如果你視教會為一個信徒群體，這個信徒群體能否做一些事（去回應）呢？」這令他開始去構思這個行動。
+
+行動中的另一位同工Rita，在活動的角色是協調和聯絡不同的義工小隊。她也提到尋找麥難民並非易事，他們是有固定的聚腳點，譬如麥當勞、教會派東西的地方，「他們已經四散，要猜他們在哪裡出沒」，因此他們不在麥當勞，是難以重尋他們。
+
+另一個困難是協調不同的麥難民，「一班麥難民要群居一同住時，會有一些生活的習慣（不同）和衛生（問題），要與他們協調」，盧智榮提到有些麥難民是不習慣洗澡，亦有的不習慣與對方同睡一房，因此同工要與他們溝通和訂立一些守則，以及重新配對和調整。
+
+Rita也提及麥難民有他們獨有的生活模式，所以要先接觸他們，才會了解他們的習慣。她解釋，麥當勞成為麥難民的聚腳點，是因為其中有些人是有長期病患，住的地方需要有廁所，而麥當勞正可解決這方面的需要。加上，麥當勞有椅子，還可以上網和充電，因此那裡是一個十分方便他們的地方。
+
+住在民宿會理應比麥當勞舒服，Rita卻說並非所有麥難民也習慣，原來他們過往在麥當勞長期是坐著睡，這令他們有水腫和腳痛的情況。他們向Rita透露在民宿要伸直兩腿躺著睡，令他們感到不習慣，更會在半夜多次抽筋。這次的經歷讓Rita十分深刻，「若不與他們傾談，了解他們的需要，是不知道他們的難處。」
+
+談及盧智榮一次很深刻的經歷，有些本港的農夫為麥難民預備飯盒，當中的飯餸皆由本地的食材煮成，他形容那些麥難民吃完覺得很感動，發現香港的食物是如此美味，「這是對他們生活的開拓，一個人的生活不單是基本的住宿，還有生活的尊嚴和情趣」。盧智榮覺得這樣能讓他們體會別人的關心和尊重，不只是為他們安排一個住的地方，而是更豐富了他們的人生。
+
+<figure>
+<img src="https://web.archive.org/web/20220119222709im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/麥難民-教會-20200405183842_5c30_large.jpg" alt="">
+</figure>
+
+### 理解教會限制　批評前先回應
+
+盧智榮鼓勵信徒有更多的想像，因為地方堂會有其行政機制和文化處境，未必可以很機動地作出回應，「上帝的使命不單託付給堂會這個單位組織，而是託付給信徒群體或每一個人」，因此信徒可以有更多變化和行動，見到需要便去回應，用每個人的能力去豐富教會的可能性，「因為我們就是教會的一部份」。
+
+Rita認為長期支援不應落在巿民身上，教會可認識更多社福界機構和社會資源，去幫助他們。「其實麥難民十分簡單，他們不是要好食好住，只是要一個歇腳的地方」，Rita建議信徒不單在今天回應，而是在平日接觸他們，當沒有麥當勞，也可聯絡他們，在有需要的時候回應。
+
+回應有人批評教會不開放給麥難民住，Rita指若沒有相關的經驗，會未能預想一些情況發生，比如有民宿的老闆曾出租房間給麥難民住，結果是要滅虱。這次的經驗讓她了解，開放地方予人留宿也需要很多配套，如有沒有地方讓很多人洗澡。「就算教會願意接觸這班人，（教會）有沒有平台呢？」應考慮更多教會本身也有限制，信徒是可以自發回應，批評教會前，自己先作工。「教會不開放也有其本身的限制⋯⋯大家很多時想教會『扯頭攬』」，Rita認為每個信徒都做一點點，會聚集很多力量。
+
+至於未來的計劃，盧智榮坦言是見步行步，因為不知道疫情的變化。本來他們只是預計了十四天的住宿，他估計十四天後，疫情未必能穩定下來，可能會延長這個行動。他也強調，雖然未有確實的計劃，但是會從麥難民的需要出發，思考如何能更支持到他們的需要。
+
+「我們沒有長遠的（計劃），是因為沒有這個經驗，也要使用社會的資源」，Rita談到，他們有聯絡無家者協會一同探訪，逐一與麥難民聊天，知道他們的需要，讓他們了解社會可提供一些相關資源。她也希望，除了提供住宿的地方，回應他們現在的需要，也希望他們未來能獲得一些協助。
+
+<figure>
+<img src="https://web.archive.org/web/20220119222709im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/麥難民-教會-20200405183849_170f_large.jpg" alt="">
+</figure>
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20220119222709im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

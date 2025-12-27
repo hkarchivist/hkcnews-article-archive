@@ -1,0 +1,52 @@
+---
+title: "運房局：64宗工程受沉降監察　新地證實項目因天榮站月台沉降暫停工"
+date: "2018-07-11"
+last_updated: "2018-07-11 22:36:09"
+author: "記者戴晴曦"
+category: "眾聞"
+tags:
+  - "鄺俊宇"
+  - "KWONG Chun-yu"
+  - "天水圍"
+  - "沉降"
+url: "https://web.archive.org/web/20210925132223/https://www.hkcnews.com/article/13502/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13512/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD64%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13502/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13512/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD64%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 運房局：64宗工程受沉降監察　新地證實項目因天榮站月台沉降暫停工
+
+早前有報道稱，西鐵元朗站架空路軌，其中兩座橋躉發生沉降。署理運輸及房屋局局長蘇偉文，回答民主黨立法會議員鄺俊宇口頭質詢時透露，根據港鐵提供的資料，現時鐵路保護區內，有64宗工程受沉降監察，當中56宗涉及重鐵線附近的工程，8宗涉及輕鐵線附近的工程，其中2宗因類似沉降需停工，涉及西鐵線元朗站的高架橋橋躉及輕鐵天榮站月台。
+
+<figure>
+<img src="https://web.archive.org/web/20210925132223im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/鄺俊宇-立法會-沉降-20180711200346_2ae2_large.jpg" alt="">
+<figcaption>鄺俊宇質疑，政府為何不及時向公眾通報事件。何君健攝</figcaption>
+</figure>
+
+港鐵表示，去年10月11日，留意到輕鐵天榮站7號月台出現輕微沉降現象，隨即要求發展商暫停該月台附近使用震動方法進行的閘板椿工程。發展商曾提出其他方法進行地基工程，港鐵在審視有關方法後，認為可控制對月台的影響，同意恢復工程，並一直繼續監察情況。由去年10月至今，每次發現沉降時，港鐵均要求發展商及港鐵維修部門採取防預措施，在確保路軌、月台及架空電纜三者之間的相互高度及距離均符合安全標準後，方始同意恢復工程。
+
+港鐵指，相關專業人士團隊因應工程進度，建議調整暫停相關工程的指標為80亳米，於今年5月獲港鐵及屋宇署同意。在6月8日，發展商完成另一次灌漿工程控制沉降時，該月台的沉降幅度到達停工指標，而在6月25日，當發展商進行進一步支撐加固工程時，月台沉降輕微超逾該指標，港鐵於是立即要求暫停該加固工程，工程暫停至今。港鐵表示，一直與相關團隊研究應對   
+ 措施，在進行控制沉降工作過程中，鐵路一直維持安全營運。公司亦有就事件通報相關政府部門，屋宇署及機電工程署亦確定月台結構及路軌狀況符合營運安全。
+
+新鴻基地產確認，天榮站發展項目，因應天榮站臨時月台出現輕微沉降，已暫時停工，以配合港鐵的要求，指天榮站項目的前期工程一直進展順利，完全符合有關政府部門的規定，相關輕鐵路線的運作一直安全，服務沒有受影響。新鴻基表示，會繼續監察有關情況，並與港鐵和政府保持緊密聯繫，確保工程不會對鐵路服務安全造成影響。
+
+就元朗站高架橋橋躉的沉降情況，蘇偉文表示，涉事橋躉的沉降幅度，沒有超過20毫米的上限，強調是次沉降沒有影響鐵路安全，發展商是應港鐵公司要求，於2013年9月自願停止打樁工程，有關情況持續至今。港鐵於2014年10月向屋宇署提交加固工程方案，2015年6月獲署方接納，加固工程於去年9月展開，預計今年內完成。
+
+鄺俊宇質疑，政府為何不及時向公眾通報事件。蘇偉文表示，類似工程出現沉降不是罕見現象，故毋須匯報，避免引起不必要公眾恐慌。但政府明白社會對增加透明度的要求，故屋宇署、機電署和港鐵公司，正草擬新的匯報機制，以增透明度。
+
+鄺俊宇下午派員到天榮站附近視察後表示，車站附近正興建住宅，該地盤屬新鴻基地盤，又看到身穿承建商金門建築的職員，在輕鐵月台及路軌上測度及度尺。鄺俊宇的職員向對方查詢工作是否與沉降有關，對方未有正面回答，聲稱正進行恆常工作。
+
+鄺俊宇指，自己身為元朗區議員，事前完全不知情。他批評蘇偉文的口頭回覆，與派發給議員的書面回覆不同，亦沒有就天榮站的情況交代更多詳情，質疑政府欲「蜻蜓點水、唧牙膏式」帶過事件。他已去信運房局和港鐵，了解天榮站的沉降會否對行車構成影響。
+
+身兼元朗區議員的民建聯立法會議員梁志祥指，有居民向他查詢天榮站的安全問題，以及附近的樓價會否受影響，呼籲政府作詳細解釋。他又指，已要求區議會安排議程，於大會討論事件，又要求運房局派員出席。
+
+政府發言人回應：「目前，因類似沉降而停工的個案有兩宗，分別有一宗涉及西鐵線元朗站高架橋橋躉及一宗涉及輕鐵天榮站月台。這兩宗個案，港鐵公司及相關政府部門在知悉監測結果後，已採取相應行動，足證有關監察機制發揮應有效用。」就天榮站的個案，為跟進於6月25日元朗區議會交通及運輸事務委員會中委員的意見，港鐵會於稍後時間去信元朗區議會及發出新聞公告，交代情況。
+
+政府指，港鐵已根據機制將事件通報屋宇署，屋宇署亦已確定月台結構安全沒有受到影響。機電工程署亦已覆核港鐵的路軌監測數據，確定鐵路狀況沒有受相關工程影響，該段路軌符合安全標準並正常運作。屋宇署及機電工程署會繼續密切監察有關情況，確保鐵路設施結構和鐵路運作安全。新聞稿提及：「政府須強調，輕鐵天榮站的鐵路設施結構和鐵路運作安全。因應公眾關注，政府各部門（包括屋宇署及機電工程署）正與港鐵公司檢視同類事件的溝通及資料發放安排，以提高透明度。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925132223/https://www.hkcnews.com/aboutus/#subscribe)

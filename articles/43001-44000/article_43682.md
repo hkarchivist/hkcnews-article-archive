@@ -1,0 +1,63 @@
+---
+title: "問責班子、行會成員原減薪一年　政府出錯多減三個月涉226萬薪金"
+date: "2021-07-26"
+last_updated: "2021-07-27 13:51:36"
+author: "記者林勵、鄭啟智"
+category: "眾聞"
+tags:
+  - "黃國健"
+  - "問責官員"
+  - "葉國謙"
+  - "行政會議成員"
+url: "https://web.archive.org/web/20210928080003/https://www.hkcnews.com/article/43682/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43720/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD226%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43682/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43720/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD226%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 問責班子、行會成員原減薪一年　政府出錯多減三個月涉226萬薪金
+
+特首林鄭月娥去年4月宣佈，為與市民共渡時艱，她和一眾司局長、特首辦主任和全體行政會議成員減薪一成，為期一年。減薪原定至今年3月30日結束，眾新聞獲悉，由於政府內部失誤，減薪期滿一年後，高官仍繼續被減薪三個月，直到上月底才發現出錯，共涉及逾226萬元薪金。行會成員葉國謙和黃國健向眾新聞證實事件，有行會成員稱無法追回有關差額，只被知會：「Sorry，扣多咗。」
+
+特首辦回覆眾新聞查詢時證實事件。特首辦指減薪安排原應於今年3月底結束，但特首辦人員到今年6月發現因溝通有誤，令減薪安排一直有效到今年6月底，即減薪一成維持15個月。特首林鄭月娥獲悉後親自諮詢受影響的官員和行政會議成員，各人一致同意接受減薪15個月的安排。
+
+<figure>
+<img src="https://web.archive.org/web/20210928080003im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/問責官員-林鄭-紓困措施-20200409025016_964c_large.jpg" alt="">
+<figcaption>特首林鄭月娥去年4月宣佈，她和一眾司局長、特首辦主任和全體行政會議成員減薪一成，為期一年。資料圖片</figcaption>
+</figure>
+
+行會成員、全國人大代表葉國謙表示，上月底才獲悉減薪安排出錯，原定3月結束減薪，最終6月才完結。據他了解，當局行政上有失誤導致出錯。他稱一眾行會非官守成員一直未有發現出錯，「我哋都好少睇呢啲嘢」，是政府內部意識出錯，才通知他們。對於意外地被多減薪津三個月，葉國謙說：「減咗就減咗，都冇問題。」他又指政府日後處理同類安排應更謹慎和準確。
+
+另一行會成員、工聯會立法會議員黃國健則指，聽聞政府內部「計數有出入」，導致今次事件。他稱薪津直接存入銀行戶口，他較少查閱數目，一直未有留意，直言：「如果無人提起，可能我哋都唔記得咗。」他表示政府未有向行會非官守成員詳細交代事件，亦未有要求他們聲明不追回減薪差額。他指一眾成員對此事不太在意，沒有人追問詳情，他個人亦覺得「冇咩嘢，冇咩問題」。
+
+<figure>
+<img src="https://web.archive.org/web/20210928080003im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/行政會議成員-葉國謙-黃國健-20210725184848_28b3_large.png" alt="">
+<figcaption>行會成員黃國健（左）和葉國謙（右）證實政府減薪安排出錯。港台資料圖片</figcaption>
+</figure>
+
+身兼行會成員的新民黨立法會議員葉劉淑儀接受記者查詢時，表示已忘記細節，她稱：「細數我唔得閒記。」她又指除了減薪以外，個人亦有額外捐出薪金。
+
+有行政會議成員笑言，今次出錯一眾司局長均涉及在內，「好多人，但從來都無人發現，特首本人都無check」。據該成員了解，不論是行政會議成員或問責官員都無法追回有關差額，他們只被知會：「Sorry，扣多咗。」
+
+翻查一眾官員和行會成員去年減薪前的月薪，特首月薪約為41.6萬元、政務司司長月薪約為37.1萬元、財政司司長月薪約為35.9萬元、律政司司長月薪約為34.6萬元，一眾政策局局長和特首辦主任的月薪約為33.5萬元，至於行會非官守成員每月薪津約為8.5萬元。以此計算，眾人在三個月共被多扣減逾226萬元薪金。
+
+
+| **官員** | **月薪** | **一成月薪** | **被多扣減金額** |
+| --- | --- | --- | --- |
+| 行政長官 | 約41.6萬元 | 約4.16萬元 | ***約12.48萬元*** |
+| 政務司司長 | 約37.1萬元 | 約3.71萬元 | ***約11.13萬元*** |
+| 財政司司長 | 約35.9萬元 | 約3.59萬元 | ***約10.77萬元*** |
+| 律政司司長 | 約34.6萬元 | 約3.46萬元 | ***約10.38萬元*** |
+| 13名政策局局長 | 約33.5萬元 | 約3.35萬元 | *每名局長約10.05萬元   
+ **共130.65萬元*** |
+| 特首辦主任 | 約33.5萬元 | 約3.35萬元 | ***約10.05萬元*** |
+| 16名行會非官守成員 | 約8.5萬元 | 約8,500元 | *每人約2.55萬元*   
+ ***共40.8萬元*** |
+|  |  | **總多扣薪金** | ***約226.26萬元*** |
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928080003/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,64 @@
+---
+title: "「社會地產」作為民間介入的租務市場"
+date: "2017-07-31"
+last_updated: "2017-07-31 09:19:23"
+author: "眾城"
+category: "眾說"
+tags:
+  - "劏房"
+  - "社會地產"
+  - "租金"
+url: "https://web.archive.org/web/20211127234744/https://hkcnews.com/article/5785/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5790/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/5785/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5790/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「社會地產」作為民間介入的租務市場
+
+【撰文：林芷筠】   
+ ***作者為城市規劃師***
+
+運房局局長陳帆上任後第一個周日，就探訪劏房戶，並對外公佈推行「合法劏房」，資助社福機構或社企（下稱「非牟利機構」或「機構」）租用唐樓，再以成本價劏出數間房讓基層入住。但三日後，陳帆立即轉口風，由「廉價劏房」改為「與市價相若的劏房」，由資助機構改稱為「已與可提供比較大的資金的慈善團體接觸」。如今陳帆急轉軚，不禁要問是否受業主界壓力？陳帆說推出每個約100呎的劏房，租金約為4000元，與市價相若，試問又何須政府介入，甚至由政府來定高租金作指標？
+
+<figure>
+<img src="https://web.archive.org/web/20211127234744im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/劏房-租金-社會地產-20170731084945_96e4_large.jpg" alt="">
+<figcaption>不少香港唐樓中的「劏房戶」，其實連一個房間也沒有，只能租住一個碌架床位的空間。美聯社</figcaption>
+</figure>
+
+雖然陳帆的急轉軚值得質疑，但原先提出的一種資助機構做中介的做法（即民間說的「社會地產」或「社企包租公」），並非不可取。
+
+### 香港推行「社會地產」的困局
+
+現時是有少量社福機構及社企正推行「社會地產」計劃，類似台灣八十年代末「無殼蝸牛運動」後民間成立的「崔媽媽基金會」模式。即是有機構擔當中介，業主提供單位，機構再以廉價分租給有需要人士。之於香港，有些機構主要擔當中介提供配對；有些覓得良心業主願意平價租出單位後，機構要再想辦法籌錢改裝修葺才分租；有些會更進取，參與管理及組織，促進租客之間互助共融。
+
+<figure>
+<img src="https://web.archive.org/web/20211127234744im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/社會地產-租金-台北-20170731085012_2c6f_large.jpg" alt="">
+<figcaption>延續八十年代的「無殼蝸牛運動」，逾萬名台灣民眾2014年10月4日晚上，在台北市豪宅帝寶前的仁愛路躺下，抗議樓價高企，民眾無法置業。台灣《蘋果日報》照片</figcaption>
+</figure>
+
+但綜觀來說，有心推行類似計劃的機構都面對以下幾個問題：
+
+一､單位供應量少：誠言，要業主自願低價租出，必然不多，若有數百個單位已該慶幸。大政策框架下，香港沒有空置稅逼使業主釋放閒置單位，又沒有租管保障租客，唯有靠業主行善。如果政府想帶頭做點「人道」政策，應釋放政府閒置物業供改裝作廉租單位，或釋放閒置官地作臨時組件屋或貨櫃屋，並製訂明確清晰的申請程序供志願機構申請；同時嘗試要求市建局履行社會責任，考慮將一些未完全完成收購的舊樓空置單位，供相關社企暫租兩至三年，為基層提供過渡性房屋。
+
+二､修箿資金龐大：目前有的機構遇到好心業主肯租出單位，但要由機構自行將殘舊的唐樓大為修箿，牽涉大筆資金。政府可否考慮設立一筆基金，可供推行類似計劃的團體申請，作為支援改裝單位的費用？更理想的，是設立社區專業人士支援隊，讓專業人士以優惠價錢提供服務，協助改建設計､入圖則､評估安全､計算工料､監督工程，以上都需要人力物力，資助計劃的基金可涵蓋以上開支。
+
+### 「社會地產」杯水車薪？
+
+我們知道房屋問題更深層次因素是經濟結構､人口政策。當說要限制外來投資者，官員總說香港是外向型經濟不能鎖港；當有團體提出「租管」，就會有人認為影響業主利益，或者引致業主封盤，又或引伸其他如「收鞋金」方式壓榨租客；非本地生住宿問題該是八間大學的責任，卻又在未能提供足夠宿位下仍不斷收錄非本地生，將租屋需求推往私人市場。
+
+解決基層住屋問題，最理想還是增建公屋，但還看土地供應進度及房委會資金。我們深知，目前坊間討論的各種「社會地產」模式只能充當過渡角色，規模不會大，只是「好過無」。數量未必多，但還是可以民間力量促進閒置資源釋放､提高基層生活質素及以社福團體組織經驗促進鄰舍關係。民間力量已備，還看政府政策通容。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127234744/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾城](https://web.archive.org/web/20211127234744im_/https://hkcnews.com/uploads/avatars/bdb8244c-6e9a-4e22-b0c4-1ed2e47cb678.png?1223328722)
+
+**博客 | 眾城**
+
+【眾城專欄】城裏城外，眾人之事。我們是來自建築、測量、規劃及園境專業界別的朋友，希望藉此平台分享對我城所思所想，為著香港走向宜居城市尋找路向。

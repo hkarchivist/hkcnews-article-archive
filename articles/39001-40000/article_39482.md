@@ -1,0 +1,49 @@
+---
+title: "紫荊黨質疑建制「是否有腦來反對」　葉國謙：不認為叫紫荊黨就代表中央　挑撥離間　非真正愛國者"
+date: "2021-03-19"
+last_updated: "2021-03-19 19:29:11"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "葉國謙"
+  - "紫荊黨"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211208163938/https://www.hkcnews.com/article/39482/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39483/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39482/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39483/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 紫荊黨質疑建制「是否有腦來反對」　葉國謙：不認為叫紫荊黨就代表中央　挑撥離間　非真正愛國者
+
+中央提出愛國者治港後，針對建制派的言論相繼出現。繼全國港澳研究會理事田飛龍在報章撰文指，中央不要忠誠的廢物。紫荊黨創辦人之一兼發言人黃秋智接受《明報》訪問時亦質疑，有建制派沒有用腦來反對，連番的言論，是否代表中央要對建制派發出警告呢？
+
+<figure>
+<img src="https://web.archive.org/web/20211208163938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/葉國謙-20210319190149_2d97_large.png" alt="">
+<figcaption>葉國謙不認為，近期針對建制派的言論來自中央。</figcaption>
+</figure>
+
+民建聯會務顧問葉國謙接受我們訪問時表示，不認為有關言論是中央的意思：「我不覺得這是中央的意思，不過對一些人的一些闡述，我不想再在這方面去作無聊的回應。有些人現在都經常用這種挑撥離間的說話，這不是真正的愛國者的做法，大家應該要共建，大家都應該要將自己的才華，將自己的看法放在爭取市民的認同，真真正正對香港作出建設性的意見。如果用一些負面的說話，我覺得這些說話是不值得去爭論的。」
+
+突然冒出的紫荊黨，有傳是北京在香港的代理人，威脅建制派的地位。葉國謙表示，對這種說法感到莫名其妙：「我不認為叫『紫荊黨』，即中央代表在香港的刊物，用這個名就叫代表中央，我看不到它代表中央。我完全沒有一種概念，它如何可以變成新的、中央的代表，這樣吹噓我認為不是一個合適的表達。任何願意對香港社會、對國家有貢獻的，我們不是排斥的，應是歡迎的，但又不要變成說它就代表全部，我聽得比較多就是說，它的出現威脅民建聯，莫名其妙，如何威脅民建聯？」
+
+<figure>
+<img src="https://web.archive.org/web/20211208163938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/新港人治港-紫荊黨-20201215111557_1d40_large.png" alt="">
+<figcaption>近期冒起的紫荊黨，被指是北京在香港的代理人，威脅建制派的地位。</figcaption>
+</figure>
+
+即使不威脅，會否擔心造成建制內鬨？「有些人希望是能夠變成這樣，不過在這點上我是沒有興趣，去幫他做這方面的回應。」
+
+葉國謙表示，民建聯作為一個跨階層的政黨，會做出對香港市民有利政策、主張，而他們的成績亦有目共睹，這些成績不是單靠一張口就得：「我又不想覺得認為選委會出，大家就好似爭餅仔，我覺得這思路是不合適的，選委會在中央來講，是要有一批有能力、愛國愛港的人士。你不能因為選舉而做出一些很出位就行，因為別人看來都是有軌跡，每個人參選，別人都有感覺，這感覺不是現時，還有過往，你是否能勝任？你有否亮麗的成績展現出來？我絕對不認為突然石頭爆出來，那人就說，我可以爭取到甚麼議席，因為選委會這些人我覺得是更加理性的。」
+
+至於好多人建制派自己或家人均擁有外國國籍，被質疑是否符合愛國標準？葉國謙表示這是基本法容許的：「香港是由其歷史背景中走出來，過程中確實有些人過往在外國讀書，家裡有很多國際方面的聯繫，所以在《基本法》訂立過程中，已將這方面視為旅遊證件，不是將之作為國籍，擁有外國護照的，我接觸的，很多都是非常愛國的人士，所以不能夠一竹筏打沉一船人。如果說擁有外國護照，不能夠參與建制，我覺得這點需要在基本法先作出修改。」
+
+在新選舉制度下，民主派入閘的機會微乎其微。民建聯有無信心，可以吸納民主派票源？葉國謙認為，現時香港回復平靜，民主派支持者沉澱過後，相信亦希望能發展好香港的經濟，「這點我覺得有這個機會」。
+
+他指民建聯未來會從市民的角度去監察政府，當有些地方政府做不到，或做得離地，會清楚表逹反對，亦會爭取年輕人支持。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211208163938/https://www.hkcnews.com/aboutus/#subscribe)

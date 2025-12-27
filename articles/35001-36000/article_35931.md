@@ -1,0 +1,57 @@
+---
+title: "林鄭認錯論背後的含糊不清"
+date: "2020-11-27"
+author: "社工總工會"
+category: "眾說"
+tags:
+  - "2020施政報告"
+  - "警司警誡"
+  - "簽保守行為"
+url: "https://web.archive.org/web/20211204124842/https://hkcnews.com/article/35931/2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35931/2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭認錯論背後的含糊不清
+
+林鄭在發表施政報告時表示，警方願意視乎情況以警司警誡或簽保守行為等方式，處理 18 歲以下有悔意而非嚴重罪行的被捕人士，不過，她強調該未成年人士需承認他犯錯的行為。
+
+<figure>
+<img src="https://web.archive.org/web/20211204124842im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/警司警誡-社工總工會-簽保守行為-20201126190416_2d6b_large.jpg" alt="">
+<figcaption>照片來源：社工總工會Facebook</figcaption>
+</figure>
+
+### 警司警誡的由來
+
+警司警誡由上世紀60年代起開始實施，是一種警方行使酌情權，以處理青少年問題的方法，避免青少年因一時‪衝動犯事，而留有案底與污點。‬過去一年因反修例事件的青少年個案，以警司警誡方式處理的情況，少之又少。林鄭今天竟然提出這酌情權，是否想提醒警方現在可行駛酌情權，又是否意味著過去一年政府是刻意拒絕為相關青少年使用警司警誡，要用明顯強硬的手法對付年青人？還是只是言語偽術，讓被濫捕的青少年落口供時「認錯」，但最終卻不一定獲得警司警誡。不少反修例個案的青少年，因不獲警司警誡，最終要面對不少審訊壓力，即使最終被判無罪，但已可構成心理創傷。
+
+最近有兩名年齡不足16歲的被告，原判兒童保護令及不留案底的，但律政署上訴改判社會服務令及感化令，亦要留下案底。林鄭今天說以警司警誡方式處理有悔意的少年人，其實這不代表政府愛惜青少年，只是更赤裸地告訴大家，它過去是用了超乎正常和非常強硬手段，去懲戒我們的青少年人。這反映，政府認為政治因素遠比青少年的福利和復康重要。
+
+### 簽保守行為的目的
+
+今時今日，即使證據薄弱，不少香港人照樣被起訴，律政司更每每就法庭判處提出上訴；林鄭現在一句說話，難道是下令律政署停止所有政治舉動？律政署應該檢視不少反修例事件相關的案件，主動為沒有案底且所犯的罪行較為輕微的被檢控人士，應該在被告同意案情及簽保守行為下，願意不提證供起訴，即被告沒有正式被定罪，也不會留案底。
+
+今年五月，一名居於青衣已婚警員宿舍的青年，被控販毒罪，但最後控方撤銷控罪，雖然法庭本來認為陪審團在正確指引下，很大機會判被告有罪。這例子，令人摸不通當中的理據，同時也令人相當憂慮的是，究竟律政署願意讓被告簽保守行為、撤銷控罪和追擊上訴，背後有何準則？
+
+### 良好目的遇上心懷惡意
+
+警司警誡，是警方運用酌情權處理青少年初犯問題；不提證供起訴，是法庭節省資源去處理證據薄弱或性質輕微案件，兩者原本均具良好目的。本會憂慮的是，若然遇上立心不良的政府，會濫用原本用意良好的措施，更甚者是把措施用作誘餌之用。
+
+### 寄語
+
+只有真正愛惜青年人，重視他們未來的政府，方會造福青年！今天林鄭說：「知錯能改，善莫大焉」；我們贈林鄭：「錯而不知，知而不改，謂之無救也！」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204124842/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 社工總工會](https://web.archive.org/web/20211204124842im_/https://hkcnews.com/uploads/avatars/fde165c1-49b3-4de2-97c0-2fdb6748621f.jpg?1010513770)
+
+**博客 | 社工總工會**
+
+【社總觀點】香港社會工作者總工會的目標，總的來說可概括為「團結同工、爭取權益、改善服務、支持正義」四句說話。在過去、現在及未來，都指導著「總工會」的工作

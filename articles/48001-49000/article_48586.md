@@ -1,0 +1,33 @@
+---
+title: "陳茂波料今年經濟錄6.4%增長　指需警惕美國對中國持續打壓"
+date: "2021-12-06"
+last_updated: "2021-12-06 11:37:36"
+author: "記者伍銘熙"
+category: "眾聞"
+tags:
+  - "陳茂波"
+  - "發展局局長"
+  - "Secretary for Development"
+  - "中美關係"
+url: "https://web.archive.org/web/20220518033952/https://hkcnews.com/article/48586/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD64%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48586/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD64%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳茂波料今年經濟錄6.4%增長　指需警惕美國對中國持續打壓
+
+香港經濟峰會2022今天（6日）舉行，財政司司長陳茂波任主禮嘉賓，他原先答應親自出席，但主持稱他臨時有會議未能到場，只能透過錄像致辭。他預計今年經濟將錄得6.4%增長，將力爭盡快和內地通關。他又指對外需警惕美國持續對中國的打壓，對內則要培育新產業。
+
+<figure>
+<img src="https://web.archive.org/web/20220518033952im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/陳茂波-20211206104440_1b3f_large.jpg" alt="">
+<figcaption>財政司司長陳茂波任香港經濟峰會2022主禮嘉賓，但臨時未能出席，只能透過錄像致辭。伍銘熙攝</figcaption>
+</figure>
+
+政府在8月中預測2021年全年經濟增長為5.5%至6.5%。陳茂波今日指，本港疫情漸趨穩定下，今年經濟明顯好轉，首三季錄得7%經濟增長，失業率亦下跌至4.3%。在營商環境，以及內部需求持續改善下，他指：「只要疫情繼續受控，經濟在第四季應可按年穩健增長。我預計香港今年全年的經濟增長可達6.4%。」陳茂波又提到，早日與內地恢復人員往來，將會為本港經濟帶來重大動力，因此政府會繼續創造有利條件，力爭盡快逐步有序恢復和內地通關，強調對明年經濟非常重要。不過這個預測數字較早前略略調低，陳茂波在10月31日的網誌，曾指「按照目前的趨勢，我預計今年全年的實際增長數字應會接近這預測區間的上限。」若以政府數字，預測上限即6.5%
+
+陳茂波又提到外圍環境挑戰不少，將左右明年環球經濟表現。當中，疫情在全球的發展仍然是經濟前景不確定性的主要來源。他指出：「為應對最近出現的Omicron變異病毒株，不少政府相繼收緊入境限制及其他防疫措施，或會令各地的供應瓶頸持續更長時間。這個發展加上能源和大宗商品價格高企，可能會進一步拖慢環球經濟增長及推高環球通脹，令主要經濟體的財政和貨幣政策存在更大的不確定性。」
+
+他又指，本港要為中長期內外機遇作好準備。對外，除了要應對保護主義抬頭，亦需警惕美國持續對中國政治、貿易和投資方面的打壓。對內，各傳統行業要轉型升級，提升競爭力，亦要培育新產業。他又多指提及十四五規劃，強調只要本港與內地優勢互補，必會帶來無限商機。
+
+陳茂波指，只要團結一致，積極融入國家發展大局，以自身之所長，服務好國家之所需，把握好雙循環發展策略帶來的機遇，香港的發展前景定必亮麗非常。
+
+香港經濟峰會2022是由新城財經台和《信報財經新聞》合辦， 同日經濟峰會，會由行政長官林鄭月娥作壓軸演講，她會親自出席。

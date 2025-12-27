@@ -1,0 +1,54 @@
+---
+title: "【六四集結案】身為支聯會副主席有責任向法庭詳述晚會歷史　何俊仁明言不求輕判"
+date: "2021-09-09"
+last_updated: "2021-09-09 20:12:11"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "何俊仁"
+  - "非法集結"
+  - "六四集會案"
+url: "https://web.archive.org/web/20220703165748/https://www.hkcnews.com/article/45226/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45249/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45226/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45249/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【六四集結案】身為支聯會副主席有責任向法庭詳述晚會歷史　何俊仁明言不求輕判
+
+何俊仁今日在庭上親自陳情，表示身為支聯會副主席，有責任詳細陳述六四燭光晚會的歷史，供法庭考慮。正當他在庭上講述六四事件的歷史背景時，警方正到六四紀念館搜查，取去大批物品，包括展品，歷年六四晚會相片，司徒華、趙紫陽及民主女神的紙板等。
+
+### [【六四集結案】何俊仁陳詞全文（英文）](https://web.archive.org/web/20220703165748/https://bit.ly/3l6OzWL)
+
+何俊仁指八九民運在北京發生，和平理性爭取民主和反對貪腐，最終北京政府派兵入城血腥鎮壓。何說，香港這個千里之外的邊陲英國殖民地，為何積極參與民運，答案非常簡單，因為即將重歸祖國的香港人，冀盼國家進步成為自由民主的國度，並且受民運學生的真誠無私所感動。
+
+<figure>
+<img src="https://web.archive.org/web/20220703165748im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/六四事件-支聯會-20210825134424_156c_large.jpg" alt="">
+</figure>
+
+### 港人自覺有義務傳承歷史　以集體記憶防歷史失憶症
+
+支聯會在民運期間成立，在香港舉行和平集會遊行。何俊仁說，支聯會之所以在民運終結後持續紀念，要求平反，是因為有道義上的責任。當年上街聲援北京學生的香港人，是受到同胞簡單真摯的愛國情懷所驅動，精神上連結在一起，因此當港人從傳媒目擊血腥鎮壓時，無不感到悲憤，自覺有義務向下一代傳承歷史，以集體記憶防止歷史失憶症。
+
+何俊仁又提到，六四時許多港人在北京街頭與示威民眾一起，他們看見軍隊射擊和平群眾，十分震驚。當時北京群眾以肉身築牆為盾，保護香港人，哭求港人回港將真相廣傳天下。
+
+### 守護六四真相令歷史不被扭曲
+
+何俊仁續說，過去30年中國大陸禁止公開討論六四，民運中對與錯的歷史問題埋沒在沉默之中，整個國家彷佛對六四喪失記憶。反觀香港人履行了我們的道德承諾，守護六四真相和人民的尊嚴，使歷史不被扭曲、洗白或遺忘。何指人類歷史上，從未有這麼多人堅持長達30年，每年同一個晚上在同一個地點，向當權者說出真相。
+
+<figure>
+<img src="https://web.archive.org/web/20220703165748im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/六四30年-支聯會-何俊仁-20190522170351_1cb1_large.jpg" alt="">
+<figcaption>何俊仁認為身為支聯會副主席有責任向法庭講解六四晚會歷史</figcaption>
+</figure>
+
+去年六四晚會被禁，何俊仁說由於不能安裝音響，難以管理參與群眾，故支聯會常委決定自行在維園簡單悼念，以象徵式行動連結港人。支聯會當時也預計，仍會有市民到維園自行悼念，事實確實如此。支聯會當晚與維園民眾的互動，全是現場即興，沒有事先策劃，而集會是和平有秩序。   
+   
+
+
+> 「即使支聯會解散，維園六四燭光晚會被禁，悼念的精神仍會在每年六四香港人心中燃起的燭光共存。   
+ 我們會保持希望，等待時代轉變，因為我們相信，我們站在歷史正確的一方，而人類歷史發展不會止步。」
+
+
+### 信念和道德承諾驅使違法
+
+何俊仁自言矢志推動民主、人權和法治，不僅在香港，亦在祖國推動。他說在六四事件後，他和其他民主鬥士決定不移民，甚至拒絕循殖民當局提供的渠道申請英國國籍。何承認違法，但只是由信念和道德承諾驅使，以公民抗命方式維持紀念六四的傳統，銘記歷史教訓，向當權者訴說真相。何明言不求輕判，只望刑罰公正適度。
+
+目前支聯會面臨解散，何說即使支聯會解散，維園六四燭光晚會被禁，悼念的精神仍會在每年六四香港人心中燃起的燭光共存，「我們會保持希望，等待時代轉變，因為我們相信，我們站在歷史正確的一方，而人類歷史發展不會止步。」

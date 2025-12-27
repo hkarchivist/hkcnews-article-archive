@@ -1,0 +1,99 @@
+---
+title: "【告別蘋果後‧2】保留香港歷史　網民創資料庫備份昔日《蘋果》"
+date: "2021-08-10"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "國安法"
+  - "備份香港"
+url: "https://web.archive.org/web/20211027002017/https://hkcnews.com/article/44095/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44095/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44095/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44095/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【告別蘋果後‧2】保留香港歷史　網民創資料庫備份昔日《蘋果》
+
+**《蘋果日報》高層被捕後的一星期，6月23日出版最後一份報紙當晚，壹傳媒大樓外，喊聲掌聲響徹雲霄，Tom（化名）在家裏卻只有鍵盤按鍵聲。**
+
+**他沒有踏足將軍澳在燈海中送別《蘋果》，而是選擇對著電腦與時間競賽。時間一分一秒過去，他望著電腦，心臟跳個不停，一再默念快點快點，因為只有再快一點才能將《蘋果》網上的文章盡可能備份多一點。** **當時針和分針重逢，踏入凌晨12時，《蘋果》網頁瞬間變成一片空白，Tom心裏也頓時一沉，隨即尋找其他途徑備份。**
+
+**約一個月後，Tom和他的團隊於7月21日在「連登討論區」發文公佈新聞資料庫《果靈·聞庫》，** **逾223萬篇《蘋果》報道重見天日，供市民閱讀。創辦該資料庫的** **團隊希望，在面臨新聞自由、言論自由逐步收窄的今天，「避免香港的一部分重要歷史，隨著《蘋果日報》的消失而被抹去。」**
+
+<figure>
+<img src="https://web.archive.org/web/20211027002017im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/取締蘋果-20210809201453_19ac_large.png" alt="">
+</figure>
+
+《果靈·聞庫》中的「果靈」二字是取自唐君毅先生的「花果飄零，靈根自植」。團隊認為「果」字有多重意義，除了是傳統中華文化，也可以是《蘋果日報》，更是香港人引以為傲的價值。他們解釋取「靈」字是藉此提醒香港人，「我們並非失根的花果，我們的靈可以在每一個地方紮根。」
+
+該網上新聞資料庫現時收錄了逾223萬篇《蘋果》的報道，圖文並茂，除了即時新聞、國際版、專欄及副刊「果籽」的文章等之外，同集團的另一刊物《飲食男女》部分內容亦有收錄其中。
+
+團隊成員之一Tom表示，整個網頁看似簡單，他們卻用了整整一個月時間，從收集到備份資料、整理數據，轉換數據格式令電腦程式可以讀取，再到設計跟製作網頁，以建立成為一個可供大眾容易搜索閱讀的網站。Tom解釋，「其實好多人都做咗backup（備份），不過我哋想行多一步，因為就這樣保留備份，大眾其實睇唔到，所以我哋想有個地方可以讀到《蘋果》以前嘅文，甚至搜尋到。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027002017im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/蘋果-蘋果公司-20210804100824_2c6d_large.jpg" alt="">
+<figcaption>《果靈·聞庫》網上新聞資料庫收錄了逾223萬篇圖文並茂的報道。網站截圖</figcaption>
+</figure>
+
+### 一群希望保留香港歷史的香港人
+
+對於《蘋果》突然停刊，Tom坦言實在難以接受，他與團隊希望能夠「保留香港的新聞和《蘋果》記錄落嚟嘅歷史」，團隊成員因此在網頁上以「一群希望保留香港歷史的香港人」自稱。
+
+Tom透露，團隊的成立純屬偶然，他們只是在「連登討論區」呼籲備份的帖文中相遇。當《蘋果》高層被捕，坊間流傳7月1日前《蘋果》將被取締，不少網友紛紛在「連登」呼籲要備份報道。一班網民當時互不相識，只是各人自發地備份，因在討論區的帖文相遇才組成團隊。他們的網頁現時集合了至少6個不同備份源，除了來自團隊，亦有坊間的熱心人士。
+
+有關備份數量，Tom表示，團隊成員大多在《蘋果》正式停運前一兩日才開始備份，故暫時只儲存了過去在《蘋果》網頁內由2002年1月1日至《蘋果》最後一夜、即2021年6月23日期間，合共約八成的文章，現時已上傳了部分到資料庫，超過220萬篇報道及逾300萬張圖片。至於尚餘兩成未趕得及備份的文章，Tom嘆息道：「我哋要同時間鬥快，有啲後悔點解唔早幾日開始。以我估算，如果可以多六個鐘會爭好遠。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027002017im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/appledaily-蘋果記者-20210624150641_15b1_large.jpg" alt="">
+<figcaption>6月23日晚將軍澳蘋果日報大樓外，瞬間化為一片燈海，擠滿不離不棄的讀者來送別。資料圖片</figcaption>
+</figure>
+
+### 祈求唔好咁快死　俾多少少時間
+
+6月23日至24日凌晨，《蘋果》出版的最後一夜，不少市民到將軍澳蘋果日報大樓外，以燈光及打氣聲送別，《蘋果》的員工與市民溫暖彼此。然而，那段時間對Tom來說卻是既緊張又憂慮，他當晚幾乎沒睡，因為一直與時間競賽，爭分奪秒備份報道。他憶述整個過程充滿困難，由自己寫程式碼去《蘋果》網頁拿取數據（Web Scraping），到途中不斷完善程式等，皆消耗了他許多精神，「開始backup之後要寫程式scrape啲文，一路寫一路debug（除錯），行行下又因為蘋果takedown server要轉個方法再scrape，所以都算不眠不休咁做。」
+
+時間越接近24日凌晨，他就越緊張，「心入面祈求佢唔好咁快死，俾多少少時間我」。當踏入凌晨零時，《蘋果》網頁顯示「停止運作」，他感覺無比痛心，只能立刻尋找另外的方法「搶救」，幸好因網站的交換介面（API Server）仍然運作，令部分資料得以挽救。
+
+Tom透露團隊成員的正職是從事IT行業，大家為了這個計畫，都不惜用盡公餘時間，「許多時候要工作到凌晨，或者假日都要做」，因為整理數據和設計網頁皆需要時間，但是這在他們眼中一切都值得，因為「蘋果對每個香港人嘅意義都幾特別」。
+
+當網頁公布後，網友的留言成為他們的動力，Tom說：「見到大家嘅支持同鼓勵，都覺得自己做嘅嘢係有價值，好感動。」不過，也有網友提出質疑，甚至斥責他們公開文章會對有關報道的記者帶來麻煩，Tom本來認為「（國安法）無遠弗屆，《蘋果》早已被『抄家』，咩料都拎咗啦」，但後來有網友留言，建議他們可移除記者的名字，Tom與團隊亦願意聆聽，正盡力處理，惟仍需時間。
+
+### 紅線模糊　為保護團隊拒收捐款
+
+> 有啲嘢，覺得啱就總要做。如果個個都驚、樣樣都驚，就冇可能做到嘢。
+
+國安法界線模糊，紅線處處，近日團隊被親建制媒體形容為「蘋果勢力繼續在社會發揮影響力」，並指他們有機會違反《刑事罪行條例》及《國安法》，對此Tom重申，團隊與壹傳媒集團沒有任何關係，並笑言「得到建制人士嘅追擊，證明我哋都做到一啲微小嘅工作，係我哋團隊嘅榮幸」。
+
+不過，這份「榮幸」背後卻是潛在的危險，Tom與團隊不是沒有擔憂的，但他們不想自設紅線，不能被別人打一步就退一步。Tom說：「有啲嘢，覺得啱就總要做。如果個個都驚、樣樣都驚，就冇可能做到嘢。都係咁講啦，啱嘅嘢總要做。」因此他們採取一切安全措施，包括以匿名身分行事，亦決不接受任何捐款，連伺服器的維護費都自行承擔，以保護團隊。
+
+在心態上做好準備，技術上他們亦提前做好應對方案。Tom透露，他們的原計畫是確保全部完成後才公布消息，當網站完成近九成時，有成員希望能夠提早趕在7.21元朗襲擊事件兩周年推出，「我諗呢個都係香港人共同嘅悲痛日子，過去《蘋果日報》都有好好記錄事件，所以我哋就即刻加緊腳步做埋佢」。
+
+他們已預料推出後會有大流量或大規模攻擊伺服器，因此要趕在網頁推出前做好防護，以確保網站正常運作。直至網頁推出後三日（7月24日），伺服器被大規模惡意攻擊（DDoS攻擊），根據記錄追查，黑客來自印度、越南、巴西、印尼、泰國、俄羅斯等國家，Tom說：「你可以諗下，launch（推出）嗰晚理論上最多人入嚟睇，一個鐘都只不過係3.1萬人，但網頁被DDoS的時候，大約係平日峰值的10至20倍流量。」結果，他們的設計有能力抵擋攻擊，資料庫運作沒受影響。
+
+<figure>
+<img src="https://web.archive.org/web/20211027002017im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/網絡安全-20210804100103_fa8e_large.jpg" alt="">
+<figcaption>《果靈‧聞庫》曾被大規模惡意攻擊，黑客大多來自海外，包括：印度、越南、巴西、印尼、泰國、俄羅斯等國家。受訪者提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211027002017im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/網絡安全-20210804100048_9231_large.jpg" alt="">
+<figcaption>網頁於7月21日推出當日本為最多人瀏覽的，但推出後三日的上午8時，一個小時內突然有逾1600萬個request，相信是惡意攻擊。受訪者提供</figcaption>
+</figure>
+
+### 新聞機構再現打壓　將續推備份計畫
+
+根據《果靈‧聞庫》網頁內容，這是團隊的第一個備份計劃，隨後或會陸續有來，為其他新聞媒體備份。問及原因，Tom表示自《蘋果》停刊後，聽聞一些新聞機構亦可能會被關閉，遂令團隊有此想法。不過，Tom指出，他們不會在媒體仍能正常運作時備份，只有當新聞工作者面臨被滅聲的危機時，他們才會出手。Tom解釋，「我哋唔希望喺媒體仲正常運作緊嘅時候就貿然備份甚至上傳，咁樣做就唔太尊重新聞工作者」。現時，他們希望專注做好《果靈‧聞庫》這項計劃。
+
+團隊將會公開網頁所有源代碼（source code）的數據，讓有興趣幫忙的朋友出一分力，以保障網站將來受不可控因素導致關閉後，尚有一絲復活的希望。正如他們在網站解釋為這項計劃命名為《果靈》的原因，「《蘋果》雖死，但我們每個人都可以有一株小小的蘋果苗。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027002017/https://hkcnews.com/aboutus/#subscribe)

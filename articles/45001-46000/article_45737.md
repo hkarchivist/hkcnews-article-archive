@@ -1,0 +1,65 @@
+---
+title: "賢學思政發言人黃沅琳保釋被拒　送車師大雨下送別自言付出卑微"
+date: "2021-09-23"
+last_updated: "2021-09-23 21:39:44"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "賢學思政"
+  - "黃沅琳"
+url: "https://web.archive.org/web/20211027061524/https://www.hkcnews.com/article/45737/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45751/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45737/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45751/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 賢學思政發言人黃沅琳保釋被拒　送車師大雨下送別自言付出卑微
+
+傍晚時份開始落大雨，但送車師依然默默靜候囚車由西九龍法院駛出，沒人知道，囚車內是否載著他們的「手足」，每有一輛囚車駛出，不管雨有多大，追著車拼命的跑。其中一名淋得全身濕透的送車師說，送車只是卑微的付出，對手足作出僅餘的支持：「起碼有理念支持住，我覺得呢個疲累都係值得。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027061524im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/黃沅琳-賢學思政-20210923155702_5751_large.jpg" alt="">
+<figcaption>在囚車上的黃沅琳。黎家威攝</figcaption>
+</figure>
+
+西九龍法院下午審理兩宗國安案件，首先是處理47人初選案的交付高院程序，隨後處理賢學施政黃沅琳被控串謀煽動顛覆國家政權一案。
+
+賢學思政王逸戰等人因涉違反《港區國安法》被還押後，發言人黃沅琳中秋節當晚自首後被捕，被起訴一項「串謀煽動他人實施顛覆國家政權罪」，今午（23日）於西九龍裁判法院提堂。主任裁判官羅德泉聽畢控辯雙方陳詞後，拒絕被告保釋。案件將轉介區域法院審理，押後至11月3日以準備轉介文件。旁聽人士散庭時聲嘶力竭高呼：「撐住呀！」
+
+### 「連個天都喊」
+
+犯人欄內的黃沅琳束起頭髮，身穿白色襯衫，神態憔悴，沒有特別望向公眾席，也沒有回應公眾席傳來的叫喊聲。控方由高級檢控官李庭偉代表，辯方則由律師陳奕勤代表。旁聽人士散庭後欲離開法院時，發現外面刮起狂風暴雨，有人不禁嘆道：「連個天都喊呀！」
+
+<figure>
+<img src="https://web.archive.org/web/20211027061524im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/送車師-20210923183937_30cb_large.jpg" alt="">
+<figcaption>傍晚突然下大雨，西九龍法院外的警員紛紛走到天橋底避雨，仍繼續用揚聲器發警告。黎家威攝</figcaption>
+</figure>
+
+控罪指，被告黃沅琳（19歲）於2020年10月25日至2021年6月16日期間（包括首尾兩日），在香港一同串謀和與王逸戰、陳枳森、朱慧盈及其他人串謀，煽動他人組織、策劃、實施或參與以下以武力、威脅使用武力或其他非法手段，旨在顛覆國家政權行為，即推翻、破壞中華人民共和國憲法所確立的中華人民共和國根本制度；推翻中華人民共和國中央政權關或香港特別行政區政權機關。
+
+### 警員走到天橋底續用揚聲器警告或違限聚令
+
+散庭後警方照舊派出大批警員在法院附近進駐及巡邏，未幾突然下滂沱大雨，警員紛紛走到天橋底，仍繼續工作，用揚聲器警告市民可能違反限聚令。
+
+<figure>
+<img src="https://web.archive.org/web/20211027061524im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/送車師-20210923184006_1dc8_large.jpg" alt="">
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211027061524im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/送車師-20210923183952_2950_large.jpg" alt="">
+</figure>
+
+大雨有時會停一會，但未幾又再下大雨。送車的市民撐起傘耐心等候，當囚車離開的時候，有送車師緊捉著囚車的窗柵大叫：「手足！你唔係得自己一個㗎！」期間一名少女不慎跣倒。
+
+其中一位送車師Paul，在滂沱大雨下穿梭街頭巷尾，追着囚車一雙通紅的車尾燈不斷狂奔。幾乎全身濕透的他說：
+
+> **送車師只係一個好卑微、僅餘支持手足嘅崗位⋯少少攰，但（送車）係我哋小小一個心意。起碼有理念支持住，我覺得呢個疲累都係值得。**
+
+
+【案件編號：WKCC3838/20】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027061524/https://www.hkcnews.com/aboutus/#subscribe)

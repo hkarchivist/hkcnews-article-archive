@@ -1,0 +1,53 @@
+---
+title: "名校退學潮「平常」看待   「無所謂」政府不知所謂"
+date: "2020-11-05"
+last_updated: "2020-11-06 00:59:16"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "楊潤雄"
+url: "https://web.archive.org/web/20210928112105/https://hkcnews.com/article/35365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35368/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35368/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 名校退學潮「平常」看待   「無所謂」政府不知所謂
+
+
+{{< video src="https://web.archive.org/web/20210928112105if_/https://www.youtube.com/embed/9ruUGNN_WSs" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210928112105/https://bit.ly/2Cj8v4t)
+
+《明報》日前報道，本港部分傳統名校出現「退學潮」，其中拔萃女書院因應該校的退學情况，近日罕有公開招收本學年（ 2020/21）下學期的中一至中四級別插班生。有教育界人士形容情况少見，相信與學生流失頗多有關，才會公開招收下學期學生，不排除《港區國安法》 實施及多國公布的港人移民計劃成了退學潮「催化劑」。香港國際學校過去學校求過於供，輪候時間長，據聞近來亦現「退學潮」，有不少空缺，可以即時申請入學。本地家長以腳對香港教育投下不信任票，教育局長楊潤雄昨日（4日）回應時說，要用「平常心」看待。
+
+他說，市民有權選擇移居、就讀的學校等，而過往某些時候較多學生轉校，有時則較少，「今日來說我完全不覺得是一個需要擔心的問題」，但又說， 倘情况明顯，長時間較多學生離校， 局方就要評估其對學界穩定性的影響。
+
+香港學生到海外升學當然並非新鮮事，但楊潤雄只要花少少時間了解名校中學生退學情況，接觸有子女仍在接受教育的中產家長，又或者留意自己同事、朋友， 應不難發現，近月出現的退學潮並不平常，與政府高調宣稱要對教育「撥亂反正」、加強國家安全教育等明顯有關。
+
+作為教育局局長，應該視退學潮為警號，立即查找原因，研究方法重建香港家長對教育制度、本地學校的信心，一句「 平常心看待」，不但「離地」，亦並非負責任做法，難道楊潤雄亦在等待中央出手，幫本地學校填補空缺？
+
+楊潤雄的一句「平常心」，令人想到特首林鄭月娥早前接受內地媒體訪問時的另一句，「 不介意深圳GDP超越香港」。兩人分別對本地尖子流失、深圳「扒香港頭」的說法，有「無所謂」意思，很多港人認為「有所謂」，林鄭說法不知所謂。林鄭說要迎難而上，作為特首，她有責任維持及發展香港作為國家領先城市地位，香港與深圳既有合作，亦有競爭關係，林鄭的一句「不介意」，有長深圳志氣、滅自己威風之嫌。
+
+名校退學潮與深圳GDP超越香港，一個是新出現的現象，一個是近年趨勢，兩者有一個共通點，是香港失去優勢及競爭力和吸引力，亦是香港清楚走下滑的訊號。林鄭和楊潤雄連一句「關注」、「重視」也欠奉，更遑論會主動全面查找原因，研究提高本地教育質素及令學習環境更吸引、增強經濟競爭力及投資環境等措施。香港由輝煌走向平庸變成「 平常」。
+
+分別作為特首、教育掌舵人，林鄭和楊潤雄沒有將落後變動力、反思不足之處，反而接受、「無所謂」，正如前特首梁振英所說，有人將國家主席習近平早年在香港說，「為官避事平生恥」的說話「 當耳邊風」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928112105/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210928112105im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

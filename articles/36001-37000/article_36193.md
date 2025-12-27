@@ -1,0 +1,57 @@
+---
+title: "人間佛教　亂世中的明鏡"
+date: "2020-12-06"
+last_updated: "2020-12-06 07:26:20"
+author: "讀材者"
+category: "眾說"
+tags:
+  - "閱讀"
+  - "看書"
+  - "閱書"
+  - "人間佛教與當代倫理"
+  - "人間佛教"
+url: "https://web.archive.org/web/20211026021012/https://www.hkcnews.com/article/36193/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36193/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 人間佛教　亂世中的明鏡
+
+**書名︰人間佛教與當代倫理**   
+ **編者︰學愚、賴品超、譚偉倫**   
+ **出版︰Chung Hwa Book (Hong Kong)**   
+ **版次︰2012年3月**   
+ **ISBN︰9789888148547**
+
+<figure>
+<img src="https://web.archive.org/web/20211026021012im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/人間佛教與當代倫理-閱讀-人間佛教-20201206071715_2000_large.jpg" alt="">
+</figure>
+
+或許因為香港的佛教徒或住持沒學上人家銅紫荊星章教省秘書長般「博愛」，為搞出人命引致軒然大波的蝴蝶代出頭，佛教之於一般人的印象總有暮氣沉沉、不問世事的感覺。偏偏人間佛教就是這股「主流」的異數，也因此一直引起自己的興趣。若果社會世俗化是導致心靈擱淺的遠因，人間佛教就是大乘佛教給予的回應。
+
+佛教本質上有別一般宗教以信仰為基礎，以解脫或救贖為終極目標，或側重信徒心靈層面的內在體驗，亦強調一定程度的理性思考，引導人們思考人世。然而先把話說清一點，人間佛教並非僅僅「佛教世俗化」打破世俗與神聖的邊界。事實上佛教從沒有這種邊界概念（分別心），佛教依然保留某種超越性（出世）與神聖性，更準確說這是「佛教通俗化」的體現。
+
+這本收集了2010年佛教青年學者會議由多位學者分享的論文集，也同時深入探討了不少重要的佛學概念。譬如「諸法無我」所指的「法」泛指一切的事物，「無我」也稱為「非我」，沒有實體也沒有主宰者。世上一切事物不但「無常」而且「無我」。至於我們常說的「不二法門」，就是不以二分法和分別心區別世間法，體現佛教應機度化的善巧方便，以慧眼觀機和百千法門適應眾生的隨緣性。
+
+人間佛教的出現正值佛教在王權下衰頹之時，並批判當時保守的部派佛教與僧團，強調包容與開放性希望與當時社會主流分庭抗禮光復佛教。人間佛教主張眾生皆有佛性（亦皆可成佛），未有過份強調無常、無我、苦與空的認知，一改以往偏於玄談，與現實脫節的流弊，主動關注眾生面對的現實問題，以入世態度取代出世消沉的形象。
+
+大乘佛教傳入中國後經歷以上在地化（Localization）過程，有學者稱為禪宗儒學化。禪宗強調「佛法在世間，不離世間覺」，進一步將佛法的出世性與入世性統一起來，以「不求自己求安樂，但願眾生得離苦」的精神，建設人間淨土。既然佛教都是世間法，都是為了成就眾生，佛教的人間化與超越性便在這個過程中達致圓融。人間佛教理解世間的社會問題皆源於我們攀緣外在價值標準，使我們「心隨境轉，心由相生」，有價值時面對力不從心的痛苦，無價值可則陷入迷失之苦。要做到「離苦」就得反求諸己，內觀覺照以淨化生命。
+
+禪觀作為禪修的真正基礎，禪宗主張正信的禪觀才能對治現實社會上我執、法執的雜念，達致安定身心和解除心靈困惑。佛法中「去除執着」其實就是「斷除自我」的修習過程，從我執與自私轉為無我與博愛。從此引伸由「善」的道德規範出發，人間佛教鼓勵教徒走進社會和大眾，接觸政治捍衛自身權利，主動對人生與社會問題提出濟助。如此出家不出家已經不是重點，世間就是實踐自由、平等、少欲和知足的道場。故此有些台灣佛教徒會主動參與土地正義與環保等議題，而過去在東南亞國家民主化的過程裡也常見佛教徒的身影。
+
+佛陀教導要走入群眾推動人間淨土，首先要具備福德和智慧，也要懂得以智慧除煩惱（利己），以慈悲度眾生（利他）。做到慈悲智慧並足，就是所謂「福慧雙修，悲智雙運」，凡此以外並沒有投機捷徑。今日法令橫空出世，思想和呼吸驟然變得有害，眼見人間佛教在昔日紛亂莫測的時代仍能保存自身、不忘初衷，無不是亂世中的明鏡。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026021012/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀材者](https://web.archive.org/web/20211026021012im_/https://www.hkcnews.com/uploads/avatars/794f4a1f-2624-4d04-ac71-22148295e421.png?551028815)
+
+**博客 | 讀材者**
+
+【讀材者・9樓C室】蝸居斗室，隨讀隨想。

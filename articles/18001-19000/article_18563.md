@@ -1,0 +1,68 @@
+---
+title: "【沙中線紅磡站】行會批准擴大調查委員會職權範圍　下周二前交中期報告"
+date: "2019-02-19"
+last_updated: "2019-02-19 20:11:23"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "紅磡站"
+  - "調查"
+  - "沙中線"
+url: "https://web.archive.org/web/20210729034921/https://www.hkcnews.com/article/18563/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18566/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/18563/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18566/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【沙中線紅磡站】行會批准擴大調查委員會職權範圍　下周二前交中期報告
+
+沙中線紅磡站早前再有三處工程被發現有施工紀錄缺失，以及工程設計與圖則有偏差。行政長官會同行政會議今日批准擴大沙中線紅磡站調查委員會的職權範圍，由原本調查沙中線項目合約編號1112紅磡站擴建部分的連續牆及月台層板，擴大至同一合約下的「北面連接隧道、南面連接隧道及紅磡列車停放處工程」。另外，行會批准將調查委員會向行政長官提交報告的期限，延至2019年8月30日或之前。調查委員會表示，會致力在行政長官會同行政會議准予的期限內完成其工作。
+
+調查委員會回覆眾新聞表示，調查委員會計劃在本月26日（下周二）或之前，就原來的職權範圍所涵蓋的事宜向行政長官提交中期報告。
+
+<figure>
+<img src="https://web.archive.org/web/20210729034921im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/紅磡站-沙中線-20190131002411_9172_large.png" alt="">
+<figcaption>行政會議批准擴大沙中線紅磡站調查委員會的職權範圍，包括北面連接隧道、南面連接隧道及紅磡列車停放處工程。資料圖片</figcaption>
+</figure>
+
+行政長官林鄭月娥表示：「沙中線項目紅磡站擴建部分鄰近範圍，近期發現的違規情況引起公眾廣泛的關注。政府對此非常重視。交由去年7月委任、由夏正民擔任主席的調查委員會查明相關事實，以及建議適當的改善措施，至為恰當。」她指，期望調查委員會進行徹底的調查，以釋除公眾的疑慮，「政府重視查明真相和作出實質改善。公眾安全是我們的首要考慮。」
+
+**經擴大的調查委員會職權範圍如下：**
+
+(a) (1) 就紅磡站擴建部分的連續牆及月台層板建造工程：
+
+(i) 就紥鐵工程（包括但不限於在若干地點進行並自2018年5月以來就其是否安全引起廣泛公眾關注的紥鐵工程）的事實和情況進行調查；
+
+(ii) 就引起公眾安全方面關注的任何其他工程的事實和情況進行調查；以及
+
+(iii)查明上文(1)(i)及(ii)項下的工程是否按合約進行。若否， 箇中原因及是否已採取糾正措施。
+
+**(2) 就北面連接隧道、南面連接隧道及紅磡列車停放處的建造工程：**
+
+**(i) 就與紥鐵工程或混凝土工程相關的任何問題的事實和情況進行調查，包括但不限於任何未有為該等工程妥當地進行巡查、監督或備存文件紀錄的情況；任何未有為該等工程所採用的物料妥當地進行測試及為該等測試妥當地備存文件紀錄的情況，以及該等工程中任何與路政署或建築事務監督所接納的設計、圖則或繪圖有偏差的情況；**
+
+**(ii) 就引起公眾安全或重大工程質量問題方面的關注的任何工程或事宜的事實和情況進行調查；以及**
+
+**(iii)查明上文(2)(i)及(ii)項下的工程和事宜是否按合約進行。若否，箇中原因及是否已採取糾正措施。**
+
+(b) 因應(a)項，檢討：
+
+(i) 港鐵公司的項目管理和監督制度、品質保證和品質控制制度、風險管理制度、工地施工監督和控制制度及程序、通報政府的制度、內部溝通及與各持份者溝通的制度和程序，以及其他相關制度、程序和做法在各有關方面是否完備，以及其執行情況；以及
+
+(ii) 政府的監察和規管機制的涵蓋範圍及該等機制是否完備，以及其執行情況；以及
+
+(c) 因應上文(b)項，建議適當措施，以促進公眾安全和保證工程的質量。
+
+政府新聞稿指出，按目前所知的違規情況來看，調查將會同樣需要探究已在委員會原來的職權範圍的（b）項所羅列的各項制度性事宜，表示委員會主席夏正民及委員Peter Hansford教授熟悉事涉工程合約的實施事宜，以及推行沙中線項目所採用的「服務經營權」模式，故兩人非常勝任這項額外職務。
+
+調查委員會已由「沙田至中環線項目紅磡站擴建部分的連續牆及月台層板建造工程調查委員會」改稱為「沙田至中環線項目紅磡站擴建部分及其鄰近的建造工程調查委員會」，委員會表示，會致力在期限內完成工作。
+
+公民黨立法會議員陳淑莊將於明天的立法會會議上，動議引用《立法會（權力及特權）條例》，成立專責委員會調查沙中線問題。陳淑莊表示，擴大調查委員會的職權範圍並不會阻礙立法會調查，呼籲議員支持其議案。
+
+陳淑莊指出，調查委員會的工作主要圍繞確立事實及建議改善措施，較少著墨於個別人士的責任。立法會專責委員會則可利用其權力，調查權責問題，因此並不存在重疊問題。陳淑莊又指，調查委員會的職權範圍局限於合約編號1112，相反專責委員會則較有彈性去調查其他合約的類似情況。她認為，沙中線事件發酵多月，已經引發社會極大關注，立法會議員理應通過用特權法調查事件，向公眾交代。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729034921/https://www.hkcnews.com/aboutus/#subscribe)

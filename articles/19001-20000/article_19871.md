@@ -1,0 +1,101 @@
+---
+title: "【南韓直擊】光州抗爭大學生被虐打險死　創傷逾廿年　分享經歷釋懷"
+date: "2019-04-20"
+last_updated: "2019-04-28 14:08:42"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "韓國"
+  - "大韓民國"
+  - "南韓"
+  - "光州事件"
+  - "民主運動"
+url: "https://web.archive.org/web/20210923184335/https://www.hkcnews.com/article/19871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20159/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20159/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【南韓直擊】光州抗爭大學生被虐打險死　創傷逾廿年　分享經歷釋懷
+
+古今中外的民主抗爭中，學生、知識分子均扮演舉足輕重的角色，1980年5月的韓國光州民主運動亦不例外。那年5月18日、全斗煥獨裁政府宣布全國戒嚴的第二日，軍隊率先進擊光州的學運基地：全南大學及朝鮮大學。當日，兩校逾1,500名學生示威，與軍隊爆發大規模衝突，導致多人流血受傷，數以百計學生被捕。
+
+當時示威被捕的朝鮮大學學生林性旭，被軍方扣押審查期間屢受虐打，身心飽受創傷。他獲釋後的廿多年間，每當聽到電話響會感到害怕、渾身打顫，又曾被誤會為共產黨員，陰影多年不散。後來，他開始與別人分享光州抗爭的經歷，才漸漸從歷史的沉重中釋懷。他選擇在學術界發展，冀以另一種方式推動社會進步。
+
+相關文章：
+
+[【南韓直擊】「逆權攝記」39年前冒死記錄光州抗爭　 相片納入聯合國《世界記憶名錄》](https://web.archive.org/web/20210923184335/https://www.hkcnews.com/article/19852/%E5%85%89%E5%B7%9E%E4%BA%8B%E4%BB%B6-%E6%B0%91%E4%B8%BB%E9%81%8B%E5%8B%95-%E9%9F%93%E5%9C%8B-19852/%E3%80%90%E5%8D%97%E9%9F%93%E7%9B%B4%E6%93%8A%E3%80%91%E3%80%8C%E9%80%86%E6%AC%8A%E6%94%9D%E8%A8%98%E3%80%8D39%E5%B9%B4%E5%89%8D%E5%86%92%E6%AD%BB%E8%A8%98%E9%8C%84%E5%85%89%E5%B7%9E%E6%8A%97%E7%88%AD-%E7%9B%B8%E7%89%87%E7%B4%8D%E5%85%A5%E8%81%AF%E5%90%88%E5%9C%8B%E3%80%8A%E4%B8%96%E7%95%8C%E8%A8%98%E6%86%B6%E5%90%8D%E9%8C%84%E3%80%8B)
+
+[【南韓直擊】光州今昔對比　紀念館展民眾笑臉　鐘塔每天響抗爭之歌](https://web.archive.org/web/20210923184335/https://bit.ly/2DnfRTW)
+
+[【南韓直擊】南韓90後大學生：光州人民教我抗爭精神](https://web.archive.org/web/20210923184335/https://bit.ly/2UsZ2wl)
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-林性旭-20190415153143_21a1_large.jpg" alt="">
+<figcaption>林性旭在光州抗爭中被打傷，頭部兩處有疤痕，他向記者展示其中一道在額頭的疤痕。吳婉英攝</figcaption>
+</figure>
+
+### 被軍隊毆打　頭破命危
+
+1980年5月17日，全斗煥獨裁政府公布全國實施「非常戒嚴令」，禁止一切政府活動、示威、罷工，並關閉大學、對新聞報道作審查。與此同時，軍方在首爾（時稱漢城）、釜山、光州等主要城市部署最精銳的部隊，預備隨時調動，向反抗政府的民眾發動攻擊、鎮壓。
+
+翌日5月18日，光州逾兩百名大學生聚集於全南大學，抗議全國戒嚴令，並與戒嚴軍在校門對峙，圖阻止部隊攻入校園。不過，手無寸鐵的學生根本無法抗衡配備刀棍的戒嚴軍，部隊施以暴力鎮壓，用棍毆打大學生，導致數十名學生受傷，校園地上染滿血迹。部分學生轉至市內其他地方抗爭，同樣被戒嚴軍襲擊。全南大學連同朝鮮大學共有約1,500名學生參與，武裝部隊的鎮壓造成80多人受傷，400多名學生被拘捕。
+
+當年就讀朝鮮大學的林性旭，亦有到全南大學，與武裝部隊對峙。他憶述，在全南大學被武裝部隊用木棍毆打後，他受傷躺在地上，及後連同其他學生被押上軍用卡車。傷者不斷發出痛苦的呻吟聲，士兵不勝其煩，用刀刺他們，令學生傷勢更嚴重。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-光州屠城-20190415144646_14b0_large.jpg" alt="">
+<figcaption>5.18清晨，約200名大學生在全南大學校門前，阻擋軍隊入校園。羅庚沢攝／5.18紀錄基金會提供</figcaption>
+</figure>
+
+林性旭記得，被捕後他不知道會被帶到哪裡，後來才發現置身監獄。「每人獲分發兩塊草蓆，一塊用來蓋著身體，另一塊用來鋪地下。但沒有人睡得著，那時太冷了。」翌日早晨，林性旭發現額頭被打破，朦朧中有醫療兵來為他縫針，「其他地方痛得太厲害，所以縫針的痛，我感受不到。」
+
+> 那時每個人都以為我死了，因為我的衣服染滿血。由於一身的痛楚，我一直沒有睜開眼。旁邊有士兵對我說：『睜開眼，否則你會很糟糕。』我聽罷，便使勁地睜開眼。當我眼球轉動，他們知道我仍然在生。
+
+林性旭隨後被送上直升機，送至軍事基地進行審問。反覆的審問期間，林性旭與其他被捕者不斷被暴打，他目睹身邊有人被打至頭破。
+
+> 我聽到士兵爭拗是否要送我去軍方醫院。有些說不，指『他無論如何都是會死，不用帶他去。』又有些說要送我過去。我嘗試再睜開眼，讓他們知道我仍生存。他們最終帶我去軍方醫院。但即使在醫院，也有檢察官來，持續審問我。
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州-光州事件-20190415190726_1ff3_large.png" alt="">
+<figcaption>戒嚴部隊揮棍毆打赤手空拳的示威者。攝影師羅庚沢提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州屠城-光州事件-20190415190734_188b_large.png" alt="">
+<figcaption>軍隊押解光州的示威民眾。攝影師羅庚沢提供</figcaption>
+</figure>
+
+林性旭憶述，他身陷囹圇之際，有一位《朝鮮日報》記者曾出言相助。他坦言，今日《朝鮮日報》是偏右的報章，被很多人厭棄，但因為那記者為他說項，他被拘查時受到「較好的待遇」，得以死裡逃生。林性旭連對方名字都記不起，惟一直心存感激。
+
+### 聞電話響發抖　創傷逾廿年
+
+林性旭離開牢獄後，被虐打的陰霾仍揮之不去。光州事件後，南韓逐步發展成民主國家，如今人民言論集會自由受保障，然而，林性旭多年來都活於恐懼之中，事發後的廿幾年，他每次聽到電話響，都會覺得很害怕，身體直打顫。
+
+以前林性旭絕口不提其經歷，只會將痛苦埋藏心深處。他說，沒有直接參與當年抗爭的光州市民，以至國內其他地區的民眾，好些都不知道事件實相，對牽涉其中的人有懷疑。他致力在社福界工作，卻一度被懷疑是「共產主義者」、「紅色份子」，「沒有人喜歡我，那段時間很艱難。」後來，他意識到不能再封閉自己，於是開始向別人講述個人經歷，又參與外面的活動，才逐漸將自己釋放。
+
+林性旭坦言，過往從未接受採訪，得悉有香港記者到光州，他才首次主動向5.18紀錄基金會表示願意接受訪問。39年後回望，他可有後悔當年參與抗爭？林性旭回應說，他相信自己做了正確的事，當年投入運動，是希望進動民主發展，使南韓成為一個更好的國家，「我不會後悔。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州屠城-光州事件-20190415210540_26df_large.png" alt="">
+<figcaption>1980年的光州民主化運動中，示威者遭軍隊血腥鎮壓，死傷者不計其數。攝影師羅庚沢提供</figcaption>
+</figure>
+
+### 冀走另一條抗爭路
+
+光州抗爭時，林性旭是大學本科生，修讀經濟學。及後他讀碩士、博士，轉攻社會福利學。博士畢業至今，他一直在高等院校任教社會福利法制，「我不再好像以前一樣抗爭，但我以另一種方式，為被邊緣化的人及弱勢社群努力。」
+
+香港的雨傘運動後，社運氣氛處於低潮。作為過來人，年近60歲的林性旭認為，年輕人可以如何應對大型抗爭後的虛耗及無力感？林性旭說，現代人重視生存、更看重基本權利；老一輩的光州人無畏犧牲，發起一波又一波的抗爭。他有感時下年輕人與上一代人的側重點有所不同，他並不期望年輕一代如他當年那樣抗爭。
+
+被問到如何教育孩子光州5.18抗爭，林性旭簡單回答，他的兩個兒子已長大成人，「昔日的抗爭太艱難，我不想下一代走上同一條路。」
+
+<figure>
+<img src="https://web.archive.org/web/20210923184335im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/林性旭-光州事件-20190415153131_b61c_large.jpg" alt="">
+<figcaption>林性旭說：「昔日的抗爭太艱難，我不想下一代走上同一條路。」吳婉英攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923184335/https://www.hkcnews.com/aboutus/#subscribe)

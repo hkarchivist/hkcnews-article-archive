@@ -1,0 +1,45 @@
+---
+title: "彭定康：國安法下令人質疑為何派英國法官來港"
+date: "2021-10-26"
+last_updated: "2021-10-26 21:51:29"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "彭定康"
+  - "Chris Patten"
+  - "港版國安法"
+  - "國際律師協會"
+url: "https://web.archive.org/web/20211204034218/https://www.hkcnews.com/article/46927/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46930/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46927/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46930/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 彭定康：國安法下令人質疑為何派英國法官來港
+
+前港督彭定康表示，在國安法下越來越令人質疑（increasingly questionable）為何要派英國法官來港擔任終審法院非常任法官，他強調無意指教法官怎樣行事，自己也希望他們可留下，並寄語他們根據良心做事。彭定康又認同，香港亞洲金融中心地位受侵蝕，並舉例香港嚴格的防疫政策，是犧牲香港利益而保障中國利益。
+
+英國最高法院在今年8月、即國安法實施超過一年後 [決定維持現狀](https://web.archive.org/web/20211204034218/https://www.hkcnews.com/article/44814/%E6%9C%80%E9%AB%98%E6%B3%95%E9%99%A2-%E9%9F%8B%E5%BD%A5%E5%BE%B7%E5%8B%B3%E7%88%B5lord_robert_reed-%E8%B3%80%E7%9F%A5%E7%BE%A9%E5%8B%B3%E7%88%B5lord_patrick_hodge-44818/%E8%B3%80%E7%9F%A5%E7%BE%A9%E5%8B%B3%E7%88%B5lord-patrick-hodge) ，繼續委派現任法官來港擔任終審法院海外非常任法官，並形容香港法庭行事大體上獨立於政府、裁決繼續符合法治。
+
+<figure>
+<img src="https://web.archive.org/web/20211204034218im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/彭定康-國際律師協會-20211026194535_14a2_large.png" alt="">
+<figcaption>彭定康在講座中提及，多年前曾在英國牛津大學會見中共領導人王岐山，形容王非常沉迷（obsessed）《舊制度與大革命》一書。彭定康說，作者Alexis de Tocqueville在書中談及，獨裁政體在改革時，往往就是最脆弱的時候，對中共領導人是警告。彭定康又說，前領導人胡錦濤及溫家寶等被視為太溫和，所以才有近年的調整防止分裂。</figcaption>
+</figure>
+
+彭定康在國際律師協會（International Bar Association）網上講座上被問及，面對中國打壓香港民主下，英國是否有理由繼續派法官來港？彭定康表示，自己作為政治人物一直抗拒教法官怎樣行事，但認為越來越令人質疑有關安排。
+
+彭定康解釋，國安法滲透（leech into）香港普通法應用，不論是法律、保釋或判刑，「非常難解釋」為何英國法官及律師要繼續在香港法庭工作。他同時說香港仍有好的律師希望繼續扭轉事態，「我希望他們是對的，但我對此有懷疑。」
+
+特首林鄭月娥今早（26日）回應國際特赦組織撤離香港時聲稱，國安法條文保障人權、防止及鎮壓（suppress）危害國家安全行為，形容只有破壞香港國家安全的人要擔心。
+
+彭定康在網上講座上又批評，中共領導人面對全球化及網絡時代為了鞏固自己權力，而收緊對香港及內地的管治。他表示，香港對中國國家主席習近平而言是威脅，香港代表的法治及民主等西方價值也是中共鷹派所憎恨，他認為香港在亞洲金融中心地位難言樂觀。
+
+他舉例說，香港採取嚴格的三星期檢疫政策，目的不是為了香港，而是保障中國不會在明年中共黨大會前再出現疫情，形容是犧牲香港利益來保護中國。
+
+彭定康近年多次說，英國在推動香港民主化的進程做得不夠。他表示，英國早應在八十年代及90年代初加快在香港推動民主進程，自己來港擔任港督後大局已定。他形容，英國出「半力」推動香港民主，但一再面對中方指控香港推動民主等於推動獨立，同時也沒有在《中英聯合聲明》引入仲裁機制處理任何一方違約。「英國人似乎更關心香港，多於香港人。我們的確應在（民主和）法治、人權法，及問責制等做更多。」彭定康如是說。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204034218/https://www.hkcnews.com/aboutus/#subscribe)

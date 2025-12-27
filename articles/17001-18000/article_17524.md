@@ -1,0 +1,37 @@
+---
+title: "七三比關鍵在數量"
+date: "2019-01-04"
+last_updated: "2019-01-04 11:21:23"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "公營房屋"
+  - "長遠房屋策略"
+  - "私樓"
+url: "https://web.archive.org/web/20220124190945/https://hkcnews.com/article/17524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17595/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/17524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17595/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 七三比關鍵在數量
+
+<figure>
+<img src="https://web.archive.org/web/20220124190945im_/https://hkcnews.com/news_新聞/hk-discuss/2018/06/公屋-房屋需求-20180628200843_bbf2_large.jpg" alt="">
+</figure>
+
+【撰文：林俊文】
+
+運輸及房屋局公布《長遠房屋策略2018》的周年進度報告，正式落實《施政報告》的建議，將公私營房屋比例由6:4改為7:3，而公私營比例調整過後，私營房屋的十年供應目標只得13.5萬伙，當中首五年就已經合共供應10萬伙，而後五年只有3.5萬伙，由年均供應2萬伙逐步遞減至每年約7千伙，為近年私營房屋供應的新低水平。不過，數字最吊詭之處，就是將同樣屬於政府資助房屋的首置上車盤計劃都列入私營房屋供應當中，由此可見真正的私營房屋公營應跌到更低水平。
+
+當然，這一切其實都可以早預料到，尤其是林鄭政府上場之後，就大舉推動各式各樣的公營房屋發展計劃，透過資助框架協助市民置業「上車」。在這個政策大環境之下，私營房屋的供應變得次要，未來興建量和供應量同樣減少，也是可預測到的事。而目前香港的可供使用的建屋土地不足，因此發展商和政府都不能大舉開發土地興建房屋，《長遠房屋策略2018》訂下十年房屋供應量45萬伙，其實可能只是解決到部分房屋需求，最少這數目也未能回應公屋輪候的需求。
+
+在去年9月底，一般公屋申請約有15萬宗，另外再有11.74萬宗非長者的一人公屋申請，平均輪候時間已經高達5.5年。而未來十年，公營房屋的落成量為31.5萬伙，略高於目前的公屋申請數目總數，不過大家看這個數字時，不要忘記這個數字其實是一邊有人可以「上樓」，同時一邊又有新增申請者加入輪候隊伍，令數字一直居高不下。由此來看，31.5萬伙可能只是僅僅滿足公屋住戶需求（假如全部用作公屋興建之用），更未計及那些居屋、「綠置居」等公營房屋種類。
+
+在林鄭公佈改變公私營房屋比例由六四比改為七三比之時，大家可以估計到，假如未來估計的房屋落成量不變，就會變成公營房屋與私營房屋興建的零和遊戲，假如比例改變，而總數量又同時改變，就會增加到整體房屋供應，亦可以使公營房屋和私營房屋的落成量同樣增加。今天大家將房策焦點放於增加公營房屋供應量，其實是放錯焦點了，真正大家要關心的，是香港應如何加快開發土地，增加土地以供建屋之用，這樣才可以真正解決市民居住和私營房屋供應問題，解決公營及私營房屋之間的零和遊戲關係。
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220124190945im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

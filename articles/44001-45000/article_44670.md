@@ -1,0 +1,64 @@
+---
+title: "河南村支書威脅村民打針：「寧殺一千，不可錯過一人」"
+date: "2021-08-23"
+last_updated: "2021-08-23 18:57:05"
+author: "中國組記者廖樂欣"
+category: "眾聞"
+tags:
+  - "疫苗"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211026023109/https://www.hkcnews.com/article/44670/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44682/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/44670/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44682/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 河南村支書威脅村民打針：「寧殺一千，不可錯過一人」
+
+<figure>
+<img src="https://web.archive.org/web/20211026023109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/河南省-疫苗-20210823152955_4012_large.jpg" alt="">
+</figure>
+
+國家衛健委上月曾表示，對新冠疫苗接種遵循「知情、同意、自願」的基本原則，不過地方則不時傳出強制接種新冠疫苗的消息，拒絕接種者，不但有機會影響出行或被列入失信人員名單，更甚者，會令飯碗不保。
+
+來自河南駐馬店市確山縣的張先生稱，他與妻子被蔡莊村支書劉安強迫接種疫苗，對方更明言即使向市長求救亦不會獲支持：「昨天叫你來，你還不來，你還打個市長熱線，市長會支持你嗎？絕對不會支持你，現在是寧殺一千，不可錯過一人，我給你說實話。」
+
+村支書又致電給張太太的公司，威脅她若不打疫苗就將她辭退，但二人沒有就範。張先生批評對方為了完成任務，完全瘋了：「地方政府現在第一是套取醫保資金，第二是為了完成下發的政治任務，像瘋狗一樣，要求你每個人都要去。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026023109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-河南省-20210823153054_e380_large.jpg" alt="">
+</figure>
+
+張先生表示全村一千多名村民，包括80、90歲的老人家和長期病患者都被要求接種：「像我是有腦血管痙攣，妻子是之前有腦梗，他還要求你去打，之前對我做過診斷的醫院，醫生明確告訴我，說現在這個(禁忌)證明開不了，因為上面有這個壓力。我妻子今天早上也找過她之前去的醫院諮詢這個事，也是開不了(禁忌證明)，他們都怕擔這個風險。」
+
+### 死者家屬發文：工作人員預先填寫同意書
+
+今個月累計新增30宗本土確診個案的河南，還傳出有市民被強制打疫苗後去世的消息。鄲城縣一個65歲、患有腦梗心血管疾病的男子，本月5日接種新冠滅活疫苗後，第四日去世。
+
+他的兒子發文講述事件，指醫院當時無為他父親做身體檢查或詢問病歷。工作人員還提早在「疫苗接種同意書」上，將「長期病患」的兩項選項揀選「否」，文章又稱他兄長的岳父同樣在接種疫苗後翌日去世。
+
+<figure>
+<img src="https://web.archive.org/web/20211026023109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/河南省-疫苗-20210823152941_1817_large.jpg" alt="">
+<figcaption>死者兒子投訴工作人員，預先為其父親填寫同意書。</figcaption>
+</figure>
+
+### 人端接種疫苗成佳話：不疼，不害怕
+
+這些悲劇沒被內地媒體報道，但山東108歲婆婆接種疫苗後，身體健康的消息就成為內媒佳話。報道提到婆婆讚揚國家政策讓她可以免費打疫苗，又得到疫苗保護提高免疫力：「不疼，不害怕，打針不害怕，預防傳染病。」
+
+報道又稱讚婆婆為他人樹立良好榜樣：「百歲老人郭蘭香接種疫苗的消息很快在鄉里民間傳開，對全縣的疫苗接種進展起到了很好的推動作用，特別是在老年人中間形成了良好的反響。許多之前對打疫苗有顧慮的老年人在郭蘭香老人事跡的帶動下，也紛紛主動到接種點接種了新冠疫苗。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026023109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗-20210823153102_278b_large.jpg" alt="">
+<figcaption>山東聊城一名108歲婆婆上周二接種第二劑疫苗。</figcaption>
+</figure>
+
+官方提倡「應接盡接」，要做到「不漏一人」。湖南祁陽市政府就派人晚上到每家每戶，檢查有沒有人尚沒接種疫苗。堅拒不肯接種的出入都會被限制。網上流傳片段，一名距離家鄉數百公里的男子，因為沒有打疫苗而不讓通行：「(通融一下)，不是說通融不通融，上面給我們定的政策是這樣，個人不可能說違背這個政策、放你過去，(你這不是強制打疫苗嗎？)這哪有強制？我現在是給你講一下。」
+
+各地全力「谷針」，安徽、江西、山西和內蒙古至少四個地區發通告，指「未接種疫苗而引發新冠病毒感染事件」的，將嚴肅追責。不過山東省則採取懷柔措施鼓勵居民接種疫苗，並由送禮物「進化」到直接派錢，打完第二針可即場領取50元誤工補貼。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026023109/https://www.hkcnews.com/aboutus/#subscribe)

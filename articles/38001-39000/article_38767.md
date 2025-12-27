@@ -1,0 +1,36 @@
+---
+title: "疫苗貴夾低效用　幾億美元直送中"
+date: "2021-03-03"
+last_updated: "2021-03-03 16:45:53"
+author: "羅家聰"
+category: "眾說"
+tags:
+  - "羅家聰"
+  - "國產疫苗"
+url: "https://web.archive.org/web/20220703181459/https://hkcnews.com/article/38767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38771/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/38767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38771/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 疫苗貴夾低效用　幾億美元直送中
+
+<figure>
+<img src="https://web.archive.org/web/20220703181459im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/科興生物-疫苗-20210303161804_1863_large.jpg" alt="">
+</figure>
+
+上週焦點之一固然在預算案，但前週已贅。反而那「香港第一針」卻值得談談。
+
+科興這疫苗，乃幾大現成選擇中有效率最低，據報僅半。一件成敗概率參半的事，縱有副作用的機會極微，但效果預期值（expected value）為零，更是花掉車錢輸時間。爆疫以來的一年許，本港少於萬一人確診或疑似，佔七百幾萬人的0.15%，即99.85%人口無恙。由此可見，莫講疫苗效用95%，即使達99%，接種與否在統計上亦無分別。 **今這科興疫苗僅50%有效，而95%可信區間闊達35-62%，標準誤差大得離譜。勸打，除因是國貨要擦共黨鞋附和什麼內循環外，根本沒多科學根據。其實還有更大原因。**
+
+科興這疫苗，除效果「最曳」外，更是最貴。阿斯利康及牛津大學的每劑售價30港元，復必泰150元，科興的據報竟要二百幾至四百幾元不等。港府不敢公開入貨價，但若將最貴的科興高出最便宜的阿斯利康及牛津大學之每劑差價約300元計，入口750萬劑對大陸的淨利益輸送便近23億港元。疫苗這些類近戰略資源，你猜中共有無份？大陸照理不會收港幣，換言之，近3億美元外匯儲備便就此送中！哈，先有隱瞞疫情、策動全球病毒戰，再鬥快出些又貴又曳（效果）的疫苗四處掠水，真不愧大國崛起！
+
+這從相反理論亦早能窺見事有輘輷（意即蹺蹊／景轟）。既然打疫苗是為自身保命，對經歷過沙士、意識甚高的港人來說，何須疫苗一到即由全體高官列隊跪迎搶打硬銷？奇哉怪也。這跟此輩人等歌頌惡法的嘴臉如出一轍。還記得「眼前鬼卒皆為妖」嗎？
+
+英接種率高但美國低，但兩國疫情同較年初大減八成。
+
+---
+
+![博客 | 羅家聰](https://web.archive.org/web/20220703181459im_/https://hkcnews.com/uploads/avatars/c3ce8859-7e68-4803-9232-df57a4cd24f4.png?835679720)
+
+**博客 | 羅家聰**
+
+【羅家聰・一名經人】香港經濟學家、財經專欄作家，有「香港末日博士」之稱，愛研究歷史經濟數據尋出經濟大趨勢。此欄將每周回顧前瞻，從中分析你最要知的經濟數據及重點。FB專頁：facebook.com/kachung.law.988｜電郵：[email protected]

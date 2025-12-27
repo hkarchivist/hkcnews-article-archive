@@ -1,0 +1,77 @@
+---
+title: "【8.31灣仔暴動】不在場警憑衣著認被告　辯方質疑影像差無見樣不可呈堂　控方引林子健案促採納"
+date: "2020-09-23"
+last_updated: "2021-02-02 18:35:37"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "林子健案"
+  - "831衝突灣仔"
+url: "https://web.archive.org/web/20210916220725/https://www.hkcnews.com/article/34159/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37763/%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34159/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37763/%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【8.31灣仔暴動】不在場警憑衣著認被告　辯方質疑影像差無見樣不可呈堂　控方引林子健案促採納
+
+去年8.31灣仔暴動案第11日審訊，偵緝警員陳超勁案發當日不在場，事後透過直播片段，憑衣著認出本案第三被告。辯方大律師王國豪反對警員的證供呈堂，質疑影像清晰度低、不能呈現五官、衣著及裝備均不清楚。片中大部分人上半身被遮蓋，甚至完全蒙面。王質疑證供有偏見，懇請法庭以不公為由，剔除證供。
+
+主控官張錦榮引用「林子健案」，即使被告戴帽、戴口罩，上訴庭亦有接納警員的辨認證供。區域法院法官沈小民指出，本案警員作供的基礎只有衣著，「林子健案」還有步姿分析，與本案不同。沈官質疑，警員提及的衫褲鞋物，大家都能看見，「要不要百多小時先看到？」、「如果沒有特別知識，為何要聽佢講？」沈稱需時考慮是否採納警員證供，明日再作決定。
+
+<figure>
+<img src="https://web.archive.org/web/20210916220725im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200923194328_2f05_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 辯方：影像清晰度低、不能呈現五官　完全沒有比對價值
+
+控方傳召港島總區重案組3A隊偵緝警員陳超勁上庭，就辨認片中人物作供。他在今年7月29日獲指派負責觀看本案的閉路電視及公開媒體或公眾平台下載的片段，花了14日，共130小時。他供稱看了很多次，包括定格重覆看50次以上，從而認出不同被告。其中他從案發當日灣仔不同路段的新聞直播片段，看見一人身穿黑長褲連白間條、黑恤衫、白波鞋、藍背包，曾手持盾牌搬膠板、向著前方開傘等行為，其衣著與本案第三被告鍾嘉能一樣。
+
+代表第三被告的辯方大律師王國豪，反對證人的辨認證供呈堂，指控方試圖傳召證人，憑數個片段和第三被告在警署拍攝的相片，在庭上作出身分辨識，指出片中就是第三被告。他引用英國上訴庭案例Attorney General's Reference （No 2 of 2002），下稱「AG案」，列明四種情況下，法庭才容許錄影片段的辨認證據呈堂，用作證明罪案現場所見的就是被告。
+
+**一、現場影像足夠清晰，陪審員可與犯人欄內的被告比對**
+
+**二、證人足夠熟悉被告，認出影像的就是被告，即使影像不見，仍可辨認作證**
+
+**三、證人不認識被告，但用了相當時間檢視及分析現場的影像和照片，從而獲得特別的認識 （special knowledge）是陪審團沒有的**
+
+**四、證人擁有面部辨識的合適資格**
+
+王國豪指出，就本案而言只有情況一及情況三相關。但控方所依賴的片段，不符合「足夠清晰」的要求，「清晰」是需要足夠用作辨認和比對，若不能符合首要要求，便不能給予陪審團、法官閣下考慮。他指出，證人引用的片段，影像清晰度低、影像縮小、將影像放大後清晰度更差、影像皆不能呈現五官、衣著及裝備均不清楚可見、也沒有特徵或突出的物件和材料可提供協助。
+
+而且證人從來沒有在罪案現場出現，亦未曾見過第三被告。加上片中人完全蒙面，在警署內被拍攝的相片則是露出全臉，裝備上亦有所分別。他形容證人獲得的材料，完全沒有任何比對的價值，因此，證人不能從片中獲得法官沒有的「特別的認識」 （special knowledge）。
+
+他認為，法庭需要考慮的是「有甚麼證人看到的，是法庭看不到的？有甚麼證人會比法庭，看得比較多和看得比較好？」因為片中，絕大部分人上半身都被雨傘或其他人遮蓋，只能依稀看到褲和鞋，證人指稱的人物亦是完全蒙面。他指出，證供的偏見力量遠比證案力量大，因此懇請法庭考慮行使酌情權，以不公為由，將證供剔除。
+
+### 控方稱證人和法庭非互相抗衡　採納證供在乎比重
+
+主控官張錦榮反駁，甚麼叫「足夠清晰」根本沒有客觀性，認為片段不存在不夠清晰。而「特別的認識」 可以從片中人物的行為、動作和特徵得出。他指出AG案中，證人亦並非一定要看到被告「塊面」，也可根據花紋、手飾、步行姿勢等因素作出辨認，而不是指定的特徵。
+
+他再引用民主黨成員「林子健案」中，被告同樣都有戴口罩、眼鏡、鴨嘴帽等，但警員參考閉路電視和相簿，用了逾千小時、多個鏡頭比較，辨認出被告的衣著、鞋和步姿等，這是其他人未必擁有的知識和能力，最終當時裁判官接納警員的分析。張錦榮承認雖然除了影片，「林子健案」中證人曾接觸過林子健，觀察過對方的步姿，發現對方行路八字腳，但強調步姿只是其中一個「特別知識」 的因素。
+
+他重申，本案證人是客觀的證供讓法庭參考。他又指，證人可辨認、法庭也可辨認，兩者並不是排斥，也不是互相抗衡，法庭可兩者採納，只是採納多少的比重問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210916220725im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200923192718_2a5f_large.jpg" alt="">
+<figcaption>區域法院法官沈小民表示需時考慮，是否採納證人的意見證供，明日再作決定。</figcaption>
+</figure>
+
+### 沈官：衫褲鞋物大家都看見　為何要聽佢講？
+
+區域法院法官沈小民質疑，證人的分析有甚麼「特別知識」？證人提及片中人物的衣著，要幾多時間看到？要不要百多小時先看到？有甚麼是大家沒有的能力？他指出，如果是認樣的話，同意需要時間翻看片段，但如果只是指出衫褲鞋物，大家都能看見，「不用花百多小時印記在腦海中，（再上庭）告訴我們。沒有特別知識，為何要聽佢講？」沈官質疑，案中證人的基礎就只有衣著，「林子健案」還有步姿分析，與本案不同。
+
+控方再指出「相似」和「一樣」是有分別，如果沒有百多小時翻看片段，證人不能說出片中人物就是被告。辯方補充指，AG案講求實色相應、要求證人「who know the defendant well」（熟悉被告），與本案不符。加上證人稱認出片中人物的背包，但被告的背包也不是呈堂證物。
+
+至於在「林子健案」中，證人使用四個月時間、逾千小時翻看片段、再花上八小時直接觀察被告，最終依賴髮型、身型、臉型、眼鏡、1.6米、八字腳、白衫、背包等特徵辨認被告。而本案卻只用了百多小時，辨認八個被告，亦沒有直接觀察被告。沈官表示需時考慮，是否採納證人的意見證供，明日再作決定。
+
+控罪指，8人被控去年8月31日在灣仔涉嫌參與暴動，被告依次為余德穎、賴姵岐、鍾嘉能、龔梓舜、陳虹秀、簡家康、莫嘉晴、梁雁彬。龔梓舜另被控涉嫌管有攻擊性武器。各被告分別由大律師黃瑞紅、大律師藍凱欣、大律師王國豪、大律師石書銘、資深大律師潘熙、大律師曾藹琪代表，大律師李國威則代表第七和第八被告。
+
+【案件編號：DCCC12/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916220725/https://www.hkcnews.com/aboutus/#subscribe)

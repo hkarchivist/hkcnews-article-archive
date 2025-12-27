@@ -1,0 +1,59 @@
+---
+title: "要學食蕉的菲傭姐姐老豆企出來"
+date: "2018-06-30"
+last_updated: "2018-06-30 21:19:11"
+author: "一悠"
+category: "眾說"
+tags:
+  - "人民 力量"
+  - "People Power"
+  - "人力"
+  - "菲律賓"
+  - "菲律賓共和國"
+  - "七一遊行"
+url: "https://web.archive.org/web/20210928172111/https://www.hkcnews.com/article/13216/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13217/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13216/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13217/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 要學食蕉的菲傭姐姐老豆企出來
+
+「人多，就唔驚。」
+
+和幾個朋友的菲傭姐姐傾偈，他們的老豆阿哥，在1986年， 推翻了貪污王馬可斯總統。
+
+他們當時也是手臂綁上——黃色絲帶， 他們很多冇鞋著，冇車坐，冇嘢食，當然冇錢，還有可能會冇命！——五「冇」，也照樣行路上馬尼拉——沿途不斷有人派蕉給他們吃，但就是憑這食蕉的一百萬人，行到去馬尼拉，1986年2月，百萬人連續四天示威，最後馬可斯下台，要走佬去夏威夷， 這塲轟動世界的革命——叫做people power 。
+
+<figure>
+<img src="https://web.archive.org/web/20210928172111im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/06/菲律賓-20180630205845_1ffc_large.jpg" alt="">
+<figcaption>1986年2月25日，數以萬計菲律賓人民湧到首都馬尼拉街頭，慶祝馬可斯總統因為「人民力量革命」下台。美聯社</figcaption>
+</figure>
+
+「你們不怕馬可斯會開槍嗎？」
+
+「嘩！坦克都開到我老豆面前幾米！但老豆知道，馬可斯不敢開槍⋯⋯
+
+「因為人多」，還是那一句，姐姐說得很平靜。
+
+當時——他們冇人諗到馬可斯政權會因為集會遊行而倒下，但他們也照樣站出來。
+
+「阿sir，老實講你們香港人Lucky啦！所以冇耐性。其實我們大多數菲傭姐姐，都不知道你們爭取什麽，只約莫知道你們是爭取民主。咁就要行出嚟啦！我們菲律賓是我老豆食蕉行出來的，唔通我們姐姐星期日在旺角天橋上坐定定食Lunch，就可以推翻馬可斯？」
+
+1789年7月14日法國大革命，當時冇人認為革命會成功；1919年5月4日，當時那三千學生也只是出來發洩一下，冇人想到以後咁深遠的影響 ——同樣在香港2003年7月1日，五十萬人遊行，也冇人以為能踢走董建華，但成功了。
+
+你在家中——「沉澱」——「深思民主路向」——就會成功？「人多，就唔驚！」明天，就學姐姐老豆，食隻蕉，出來行。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928172111/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 一悠](https://web.archive.org/web/20210928172111im_/https://www.hkcnews.com/uploads/avatars/2c58e158-9035-4161-92ef-b4b56f5e3747.png?873536568)
+
+**博客 | 一悠**
+
+【一悠・到此一遊】喜歡談古論今，也常談股論金。心理、鋼琴、股票、教育，交义感染，交流一下。學歷：香港中文大學文學士，研究院教育文憑，澳洲新南威爾斯大學碩士（堅有證書㗎，卻無野雞大學博士，也不必請律師去找證書）

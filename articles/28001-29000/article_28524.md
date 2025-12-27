@@ -1,0 +1,107 @@
+---
+title: "商經局批港台《 脈搏》違「一個中國」原則　點名廣播處長「必須負責」　港台：冇嘢需要跟進"
+date: "2020-04-02"
+last_updated: "2020-04-03 03:44:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蘇錦樑"
+  - "Gregory SO"
+  - "商務及經濟發展局"
+  - "Secretary for Commerce and Economic Development"
+  - "世界衛生組織"
+  - "港台新聞"
+url: "https://web.archive.org/web/20210731030519/https://www.hkcnews.com/article/28524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/28524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 商經局批港台《 脈搏》違「一個中國」原則　點名廣播處長「必須負責」　港台：冇嘢需要跟進
+
+
+{{< video src="https://web.archive.org/web/20210731030519if_/https://www.youtube.com/embed/700vRKbSnjA" >}}
+
+
+香港電台節目《The Pulse》（脈搏）日前訪問世界衛生組織官員，問及台灣的會員資格，被商經局批評有違「一個中國」的原則及《香港電台約章》，更點名廣播處長梁家榮「作為香港電台的總編輯，必須對此負責。」港台發言人回應指，港台已審視過該集節目，認為沒有違反一國兩制原則及《香港電台約章》，港台「一定冇嘢需要跟進」。
+
+港台周六（3月28日）播出的英文節目《The Pulse》（脈搏），視像訪問世衛助理總幹事艾沃德（Bruce Aylward），問到世衛如何評價台灣抗疫的表現、會否重新考慮台灣的會員資格。艾爾沃德最初表稱聽不到問題，記者於是重複提問，艾爾沃德突然退出通話，記者隨後重新連接，並繼續追提問，艾爾沃德仍未有對台灣作正面回應，僅稱中國所有地區的抗疫工作都做得好。
+
+<figure>
+<img src="https://web.archive.org/web/20210731030519im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/香港电台-邱騰華-梁家榮-20200403033914_e897_large.jpg" alt="">
+</figure>
+
+商經局周四（4月2日） [發稿](https://web.archive.org/web/20210731030519/https://www.info.gov.hk/gia/general/202004/02/P2020040200437.htm) ，批評節目有違「一個中國」的原則及《香港電台約章》，指《約章》訂明港台的公共目的及使命，包括增加市民對「一國兩制」的認識。商經局指，港台須對世衛成員國均以主權國家為單位「有正確的認識，不能偏差」，更點名廣播處長梁家榮「作為香港電台的總編輯，必須對此負責。」
+
+商經局發稿後，眾新聞透過電郵向廣播處長梁家榮查詢：
+
+1. 廣播處長對於商經局的批評有何回應，並採取什麼跟進措施？
+
+2. 廣播處長是否認為《The Pulse》的做法有違《約章》？有關節目人員會否受處分？
+
+3. 廣播處長將會怎樣為事件負責？
+
+4. 廣播處長會否保證香港電台會將繼續恪守《約章》，包括《約章》訂明的港台享有編採自主，編採方針不受商業、政治及／或其他方面的影響？
+
+<figure>
+<img src="https://web.archive.org/web/20210731030519im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/梁家榮-港台新聞-20200403001539_1776_large.jpg" alt="">
+<figcaption>梁家榮去年4月出席立法會特別財委會會議。香港電台照片</figcaption>
+</figure>
+
+現年67歲的 [梁家榮](https://web.archive.org/web/20210731030519/https://www.news.gov.hk/tc/categories/admin/html/2015/08/20150806_160555.lin.shtml ) ，記者出身，曾任職無綫電視記者及編輯主任、經濟日報出版社主管、亞洲電視有限公司副總裁／高級副總裁（新聞及公共事務）。2011年亞視誤報前國家領導人江澤民死訊後，梁家榮辭任亞視職務，及後從事顧問工作，並在大學任教。他2015年8月獲委任為廣播處長，並於2018年獲續約3年，任期至明年8月。
+
+當日訪問艾爾沃德的記者 [唐若韞](https://web.archive.org/web/20210731030519/https://yvonne-tong.net/about-me/ ) ，為港台英文節目《The Pulse》及中文節目《早辰。早晨》主持。此前，她曾經負責教育電視eTV《上網問功課》節目。唐有份參與製作、有關新疆再教育營的紀錄片《In the Prisons that Don't Exist》，去年獲提名威尼斯電視獎最佳新聞節目獎。唐若韞畢業於香港大學新聞系，她加入港台前，曾任職美聯社及《明報》。
+
+### 港台：無違「 一國兩制」或《約章》　冇嘢需要跟進
+
+港台發言人伍曼儀隨後透過電話回覆眾新聞，指港台已審視該集節目，認為沒有違反一國兩制原則及《香港電台約章》，港台「冇嘢需要跟進」。
+
+伍曼儀指，當日《The Pulse》是探討世界各地新冠肺炎疫情，由歐洲、美洲疫情最嚴重的地方為切入點，如紐約、倫敦、以至意大利北部最受影響的倫巴第大區，分析各地疫情、應對方法及受影響民眾的感受，節目訪問了一些地方政府的說法，亦有世衞的回應。
+
+伍曼儀提到，節目播出後，外界對於「台灣」的字眼有迴響。她強調，節目很清楚以「place」（地方）來形容台灣，「place」這字眼本身沒有任何取態。伍續指，記者是根據新聞的發展提問，國際新聞間由1月至3月一直有很多提問關乎世衛對於台灣處理疫情的意見，到3月下旬亦有提起台灣會員資格的問題，而台灣的發病數字比較低，港台記者是根據這新聞發展去提問。
+
+伍曼儀重申，港台由始至終都非常小心處理有關台灣問題。「我哋再次審視全集內容後，我哋認為呢一集節目並無違反『一國兩制』原則，亦都冇（商經局）局長所講嗰樣嘢，冇違反《香港電台約章》。既然係咁，我諗其他（問題）唔需要再答㗎喇，一定冇嘢需要跟進。」
+
+<figure>
+<img src="https://web.archive.org/web/20210731030519im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/世衛-RTHK-艾沃德Bruce%20Aylward-20200330172029_62bc_large.jpg" alt="">
+<figcaption>伍曼儀指出，記者是根據新聞的發展及台灣的疫情數字去提問。港台圖片</figcaption>
+</figure>
+
+### 港台工會：我們已失去發問的自由
+
+香港電台節目製作人員工會在 [fb回應](https://web.archive.org/web/20210731030519/https://www.facebook.com/rthkunion/posts/3014116568610140) ，以「我們已失去發問的自由」開首，批評商經局局長邱騰華對節目作「無理指控」，「 以《約章》為名破壞《約章》，更嚴重損害香港的新聞自由。」
+
+工會指，《The Pulse》主持詢問措辭簡單直接，不帶個人或預設立場，更沒有用「國家」來形容台灣，質問提問本身如何違反「一個中國」原則。工會續指，台灣的抗疫經驗，如何與世界互通，是各大傳媒關心的問題。「倘若真是眾所周知，世界衛生組織成員國均以主權國家為單位，世衛代表大可乾脆答台灣不是一個主權國，豈不省事？假如該段訪問引起輿論關注，就觸動當權者神經，當局未免太『神經質』，反應過大，大得要以公眾知情權為賭注。」工會引用西諺「不殺信使」，指局長不應遷怒於提問的記者。
+
+工會重申，《約章》列明港台擁有編輯自主，「不受商業、政治及／或其他方面的影響」。工會批評邱騰華高調要求廣播處長負責是「政治施壓」，「此舉不但相當罕見，更令人心寒。」工會表示，若港台「跪低」，形同破壞《約章》精神。
+
+### 港台顧問團：政治解讀「不必要」、「過份」
+
+港台顧問團成員、資訊科技界立法會議員莫乃光回應指，世衛作為一個公共衛生組織，記者的提問關乎公共衛生，屬於中性，記者在訪問中並沒有既定立場，「冇理由問一個問題都唔俾。」他批評政府作出一個政治解讀，是「不必要」及「過份」，政府以此干擾港台，必然增加港台及廣播處長的壓力。
+
+另一港台顧問團成員楊雪盈亦認為，記者只提出一個開放式的問題，質疑商經局指控「勉強」。她提到，港台節目如《頭條新聞》等，過往一般被指「品味低俗」，但這次政府是針對新聞作批評，做法嚴重打擊新聞自由。楊雪盈重申，言論自由需要空間，惟港台的輿論空間愈來愈窄，她呼籲大眾為言論自由發聲。
+
+<figure>
+<img src="https://web.archive.org/web/20210731030519im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/楊雪盈-莫乃光-港台新聞-20200402223525_bdeb_large.jpg" alt="">
+<figcaption>在商經局回應《The Pulse》的前一日、4月1日，港台顧問團成員與廣播處長梁家榮會面，促請香港電台繼續維護言論自由和編採自主。莫乃光提供圖片</figcaption>
+</figure>
+
+記協認為，邱騰華的言論等同向傳媒施壓，直接干預新聞機構的編輯自主，記協深表遺憾。記協聲明指，如果只是問及台灣的世衛成員資格亦屬禁忌，則記者的功能將被閹割，反問邱「香港的新聞自由又從何談起？」   
+   
+ 記協指出，觀乎該集《The Pulse》的內容及記者提問，並沒有明確指出或暗示台灣為一個主權國，並未如邱騰華所指違反了一個中國的原則。商經局在新聞稿中提及，《約章》訂明港台的公共目的及使命，包括提供讓市民了解社會和國家的節目。不過，記協反駁指，讓市民了解國家只是港台其中一個使命，絕非全部，而《約章》亦列明港台擁有編輯自主，「不受商業、政治及/或其他方面的影響」。記協續指，如果每個節目都只為推動國民教育，港台將失去自主、創新的空間。   
+   
+ 記協表示，邱騰華批評港台的新聞節目內容，並指廣播處長須對事件負責，會產生寒蟬效應，令傳媒自我審查問題惡化。記協重申，言論、新聞自由是香港的基石，促請政府停止向傳媒施壓，並收回不當的言論，否則外界將難以相信香港仍為自由經濟體。
+
+曾任記者的立法會議員毛孟靜指，台灣世衛會籍問題是多年來的國際新聞，她質疑政府「以商經局名義箝制新聞自由」。她批評，政府不斷以上綱上線的指控政治審查港台，變相威嚇港台從此須自我審查，才是令港台履行公共廣播機構使命時舉步維艱的元兇。
+
+**《The Pulse》這一集的足本影片：**
+
+
+{{< video src="https://web.archive.org/web/20210731030519if_/https://www.youtube.com/embed/RLvg0KnTKhU" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210731030519/https://www.hkcnews.com/aboutus/#subscribe)

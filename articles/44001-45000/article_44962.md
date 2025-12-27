@@ -1,0 +1,48 @@
+---
+title: "港大9月6日起禁評議會成員入校　18名學生暫解禁"
+date: "2021-09-02"
+last_updated: "2021-09-02 17:51:55"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "港大校委會"
+  - "梁健輝"
+  - "香港大學學生會評議會"
+url: "https://web.archive.org/web/20211027003444/https://hkcnews.com/article/44962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44976/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44976/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港大9月6日起禁評議會成員入校　18名學生暫解禁
+
+港大校委會8月高調發聲明，禁止所有參與7月7日港大評議會會議的學生進入校園及使用大學設施。據悉，港大教務長曾詠詩今日（2日）正式通知部分學生，將在9月6日起實施上述風險管理措施禁止涉事學生進入校園，直至另行通知，及基於校方進一步收到的資料再作評估。
+
+與此同時，校方在開學前夕發電郵給十多名評議會成員，表示校委會的風險管理措施「暫時」不再適用他們身上，直至及除非有進一步資料顯示，涉事學生的參與情況與校方的理解有別。據悉，有部分「解禁」學生有參與7月7日的評議會會議，目前未知校方處理的尺度為何。
+
+<figure>
+<img src="https://web.archive.org/web/20211027003444im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/港大學生會-20210721150328_2842_large.jpg" alt="">
+<figcaption>港大校方早前在評議會爭議後，宣布不承認港大學生會，並接管學生會物業。資料圖片</figcaption>
+</figure>
+
+港大 [《學苑》](https://web.archive.org/web/20211027003444/https://www.instagram.com/p/CTTk-MHh1TR/?utm_medium=copy_link) 引述曾詠詩向部分被禁入校的評議員電郵中說，目前未有足夠資訊處理或排除因學生與會對大學的風險，所以會在9月6日起實施校委會早前宣布的措施。同時，大學不排除日後採取進一步措施。她又重申，先前詢問學生會議中角色等問題，並非紀律程序或刑事程序的一部分，只是希望評估如何實施校委會早前的決定。
+
+港大 [證實](https://web.archive.org/web/20211027003444/https://www.hku.hk/press/press-releases/detail/c_23191.html) ，在44名港大學生會評議員中，決定不向其中18名學生執行風險管理措施。港大發言人稱，大學本著教育為本宗旨，希望同學深刻反思言行，恪守個人及對社會的道德責任，守法知理。
+
+港大學生會評議會在7月7日通過議案「感激」刺警自殺的梁健輝，事件引發爭議後， [評議會旋即撤回動議](https://web.archive.org/web/20211027003444/https://www.hkcnews.com/article/43202/%E6%B8%AF%E5%A4%A7%E5%AD%B8%E7%94%9F%E6%9C%83-%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8%E5%AD%B8%E7%94%9F%E6%9C%83%E8%A9%95%E8%AD%B0%E6%9C%83-%E6%A2%81%E5%81%A5%E8%BC%9D-43236/%E6%B8%AF%E5%A4%A7%E5%AD%B8%E7%94%9F%E6%9C%83%E8%A9%95%E8%AD%B0%E6%9C%83%E6%92%A4%E5%9B%9E%E6%82%BC%E5%88%BA%E8%AD%A6%E8%87%AA%E6%AE%BA%E8%80%85%E8%AD%B0%E6%A1%88-%E5%B9%B9%E4%BA%8B%E6%9C%83%E9%9E%A0%E8%BA%AC%E9%81%93%E6%AD%89%E5%8D%B3%E6%97%A5%E8%AB%8B%E8%BE%AD) 並就事件致歉。校委會在 [未充分掌握學生具體參與程度下](7月7日通過議案「感激」刺警自殺的梁健輝) ，宣布禁止所有參與當日會議的學生進入校園及使用大學設施及服務，但無列明何時開始實施。
+
+港大教務長曾詠詩 [在8月下旬再發電郵](https://web.archive.org/web/20211027003444/https://www.hkcnews.com/article/44727/%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8%E5%AD%B8%E7%94%9F%E6%9C%83%E8%A9%95%E8%AD%B0%E6%9C%83-%E6%B8%AF%E5%A4%A7%E6%A0%A1%E5%A7%94%E6%9C%83-%E6%A2%81%E5%81%A5%E8%BC%9D-44738/%E6%B8%AF%E5%A4%A7%E8%A9%95%E8%AD%B0%E6%9C%83%E6%82%BC%E6%A2%81%E5%81%A5%E8%BC%9D%E8%AD%B0%E6%A1%88-%E6%A0%A1%E6%96%B9%E9%9B%BB%E9%83%B5%E5%95%8F%E6%9C%89%E5%90%A6%E6%8A%95%E7%A5%A8-%E5%89%8D%E8%A9%95%E8%AD%B0%E5%93%A1%EF%BC%9A%E5%8F%8D%E6%98%A0%E6%A0%A1%E6%96%B9%E4%B8%8D%E6%8E%8C%E6%8F%A1%E5%9F%BA%E7%A4%8E%E4%BA%8B%E5%AF%A6%E4%BE%BF%E6%8F%90%E5%87%BA%E8%99%95%E5%88%86) ，要求學生回應有否出席會議及有否投票等，以決定如何執行校委會提出處分。
+
+綜合多方消息，港大校方在大學開學前夕通知部分港大學生會評議員，表示經評估後暫時（for the time being）不向他們執行校委會的措施，並可返回大學校園及適用學校設施。港大教務長曾詠詩亦在今日（2日）再發電郵給其他評議員，宣布向部分評議員自9月6日實施「禁足令」。
+
+值得留意的是，港大首度向傳媒證實校委會措施本來影響44人，但如眾新聞早前報導，7月7日實際參與評議會投票的只有32人（當中2名校園傳媒代表按慣例在有關議案投棄權票）。
+
+有評議員預計，除了部分無出席會議的學生解禁，部分曾經出席當日評議會會議的學生同樣可進入校園，或是曾回應教務長曾詠詩提問有關。
+
+在整個評議會成員中，港大評議會主席張敬生（19歲）、學生會前會長郭永皓（20歲）、李國賢堂學生會前代表杜林丞亨（18歲），及文學院學生會代表容頌禧（19歲）分別被控宣揚恐怖主義。當中，只有容頌禧 [獲准保釋外出](https://web.archive.org/web/20211027003444/https://www.hkcnews.com/article/44578/%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8%E5%AD%B8%E7%94%9F%E6%9C%83%E8%A9%95%E8%AD%B0%E6%9C%83-%E5%AE%A3%E6%8F%9A%E6%81%90%E6%80%96%E4%B8%BB%E7%BE%A9-%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8-44582/%E6%B8%AF%E5%A4%A7%E5%9B%9B%E5%AD%B8%E7%94%9F%E8%A2%AB%E6%8E%A7%E5%AE%A3%E6%8F%9A%E6%81%90%E6%80%96%E4%B8%BB%E7%BE%A9-%E5%9B%9B%E4%BA%BA%E5%85%A8%E9%82%84%E6%9F%99) ，並需遵守多個 [保釋條款](https://web.archive.org/web/20211027003444/https://www.hkcnews.com/article/44796/%E5%AE%B9%E9%A0%8C%E7%A6%A7-%E5%AE%A3%E6%8F%9A%E6%81%90%E6%80%96%E4%B8%BB%E7%BE%A9-%E5%9C%8B%E5%AE%89%E6%B3%95-44810/%E3%80%90%E8%A9%95%E8%AD%B0%E6%9C%83%E9%A2%A8%E6%B3%A2%E3%80%91%E6%B8%AF%E5%A4%A7%E7%94%9F%E5%AE%B9%E9%A0%8C%E7%A6%A7%E7%8D%B2%E5%87%86%E4%BF%9D%E9%87%8B-%E5%AE%98%E5%A2%9E%E6%A2%9D%E4%BB%B6%EF%BC%9A%E4%B8%8D%E5%BE%97%E5%8F%83%E8%88%87%E5%8F%8D%E5%B0%8D%E6%94%BF%E5%BA%9C%E6%B4%BB%E5%8B%95) ，包括不得從事任何反政府或反中央活動。有傳容頌禧亦未准入校上課。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027003444/https://hkcnews.com/aboutus/#subscribe)

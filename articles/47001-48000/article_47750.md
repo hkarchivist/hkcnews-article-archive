@@ -1,0 +1,75 @@
+---
+title: "漁護署網站刪除野豬屬「受保護野生動物」 林鄭月娥：野豬橫行將牠毀滅是保障市民"
+date: "2021-11-16"
+last_updated: "2021-11-17 15:01:37"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "漁護署"
+  - "野豬出沒"
+url: "https://web.archive.org/web/20220117032115/https://www.hkcnews.com/article/47750/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47795/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47750/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47795/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 漁護署網站刪除野豬屬「受保護野生動物」 林鄭月娥：野豬橫行將牠毀滅是保障市民
+
+漁護署近日突然推出「人道毀滅」野豬政策，受到社會廣泛關注。漁護署昨日起更將「野豬」二字，從網站中的「本港受保護的野生動物」一欄中刪除。香港野豬關注組幹事黃豪賢表示，將野豬從「受保護的野生動物」剔除，讓人感到漁護署自打嘴巴、搬龍門。又指漁護署這次修改，可能是為了符合人道毀滅的政策。漁護署解釋，野豬不屬於《野生動物保護條例》（第170章）指明的受保護野生動物。該署早前發現網站「受保護野生動物」頁面錯誤列出野豬資料，已即時修正有關內容。
+
+行政長官林鄭月娥首次回應野豬議題，她稱：「社會對野豬出沒、傷人高度關注，作為負責任政府需要採取行動，漁護署用番以前執行過策略，如果野豬橫行將佢毀滅，每次唔係貿然採取行動，睇到情況惡化，為市民帶來風險，採取負責任反應。」她指市民餵飼行為令野豬更願意在市區出沒：「市民特登餵佢，呢啲行為令佢更願意出沒市區，增加繁殖能力，唔會唔考慮提高刑罰。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117032115im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/野豬-林鄭-20211116121752_c918_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+由昨日起「野豬」二字，在漁護署網站中的「本港受保護的野生動物」一欄中消失不見。該欄目中，除了列出了一些受《野生動物保護條例》的動物，例如箭豬及獼猴等，原本亦有一個段落介紹不受條例保護的野豬，內容是：
+
+「野豬是本港常見的野生動物，廣泛分布在香港的山林。在一般情況下，野豬習慣避開人類，但在覓食時偶爾會在鄰近郊野的公共地方附近出沒。然而，如果野豬能經常地從處理不當的戶外垃圾或餵飼者取得食物，牠們有機會習慣接近民居或公共地方覓食，對附近居民造成滋擾。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117032115im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/野豬-漁護署-20211116170313_2d5f_large.jpg" alt="">
+<figcaption>漁護署昨日的網站，在下午2點45分前，原本仍有一個段落介紹不受條例保護的野豬。</figcaption>
+</figure>
+
+不過，這一段內容，昨日開始在網站上消失不見，「野豬」亦不存在於這一頁。
+
+<figure>
+<img src="https://web.archive.org/web/20220117032115im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/野豬-漁護署-20211116170252_1cde_large.jpg" alt="">
+<figcaption>然而，現時的網站上，該段落消失不見，「野豬」亦不存在於這一頁。</figcaption>
+</figure>
+
+香港野豬關注組幹事黃豪賢接受眾新聞電話訪問表示，漁護署將「野豬」從「本港受保護的野生動物」一欄中剔除，讓人有自打嘴巴、搬龍門的感覺，「你一邊教育公眾要愛護動物、認識動物，但另一方面就話佢『唔受保護』，有啲自打嘴巴嘅感覺。既然係『受保護』，點解而家又要提倡出狩獵隊，又要人道毀滅野豬？」黃豪賢認為，漁護署這次修改，可能是為了符合即日起每月捕捉在市區出現的野豬並人道毀滅的政策推行。
+
+漁護署其後回覆查詢指，野豬不屬於《野生動物保護條例》（第170章）指明的受保護野生動物。該署早前發現網站「受保護野生動物」頁面錯誤列出野豬資料，已即時修正有關內容。
+
+行政長官林鄭月娥出席行會前，亦被問到野豬議題，她回應指：「近日社會對野豬出沒、傷人高度關注，特別是市區。她指如果這些野豬在馬路上橫衝直撞，走入屋苑，傷害居民，特別是小朋友，大家也不想見到這些現象，作為負責任政府需要採取行動，漁護署用番以前執行過策略，如果野豬橫行將佢毀滅，是顧全市民安全，明白香港很多人好愛野生動物、濕地、魚塘、大自然，最終也要令社會環境保障市民安全。每次唔係貿然採取行動，睇到情況惡化，為市民帶來風險，採取負責任反應。」
+
+她又指過去幾年有三十宗野豬傷人報告，沒有理由看到情況惡化不做事，又見到有市民餵飼，她指這些行為令野豬更願意在市區出沒：「市民特登餵佢，呢啲行為令佢更願意出沒市區，增加繁殖能力，唔會唔考慮提高刑罰。」林鄭提到野豬傷人情況，眾新聞昨日向漁護署查詢，署方只提供近3年數字，今年首10個月有11宗，連同前年及去年，三年合共23宗。
+
+<figure>
+<img src="https://web.archive.org/web/20220117032115im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/漁護署-20211116075528_1537_large.jpg" alt="">
+<figcaption>近三年野豬傷人數字有23宗。眾新聞製圖</figcaption>
+</figure>
+
+至於林鄭月娥聲稱或會考慮提高刑罰則，根據漁護署「非法餵飼野生動物」檢控數字，即是包括野豬、猴子等等的檢控數字，過去三年，每年檢控都少於40宗，今年頭8個月稍為回升有81宗。
+
+<figure>
+<img src="https://web.archive.org/web/20220117032115im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/漁護署-20211116075542_1a5c_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+野豬問題不是今時今日才討論，過往漁護署也曾多次改變策略，審計署亦就市民餵飼問題提供過建議，但漁護署一直沒有落實建議。
+
+漁護署在2017年暫停安排狩獵隊行動，隨即推行「捕捉及避孕/搬遷先導計劃」解決野豬滋擾問題，捉到的野豬要打避孕針或做絕育手術後，再搬回效野，翻查審計署2019年的《第七十三號報告書》，審計署當時已經認為，野豬捕捉及避孕／搬遷計劃，需涵蓋更多滋擾黑點，同時要加快評估所用避孕疫苗的成效，及加快進行野豬數量調查。
+
+到今年6月漁護署提交立法會文件，提到「捕捉／搬遷先導計劃」至今年3月為止，漁護署一共捕獲803頭野豬，當中為191頭及158頭野豬注射避孕疫苗及進行絕育手術，613頭野豬被搬遷到遠離民居的郊野。漁護署當時指，利用避孕疫苗為野豬避孕的野外研究及為野豬進行絕育手術，是全球首創的試驗計劃。為評估避孕疫苗的成效，漁護署已將接受避孕疫苗的野豬血清樣本進行化驗。而化驗結果亦顯示在接受避孕疫苗注射後，91％的野豬未有再次懷孕的跡象。惟避孕工作對控制野豬滋擾的效用為中長線，尚需繼續收集樣本以監察疫苗成效，漁護署同時表示，在合適的情況下，會繼續為捕捉的野豬進行絕育手術。
+
+根據署方估算，全港郊野地區有1,800至3,300隻野豬，三年來，避孕或絕育的野豬不足一成。香港野豬關注組認為是漁護署人手不足。但漁護署認為是「絕育追不上繁殖數目」，原本是中長線的控制野豬數目避孕搬遷計劃，漁護署即時已叫停，將策略改為野豬市區出沒，即捕即人道毁滅。
+
+漁護署多次強調野豬數目與人為餵飼有關，現時根據《野生動物保護條例》有指明禁餵區，2019年審計報告亦有指出問題，當時報告寫明，截至2019年5月31日，56個野豬滋擾的黑點全部不在禁餵區內，審計署建議漁護署把野豬滋擾黑點納入禁餵範圍。惟當時漁護署回覆指，政府一直採取多管齊下的措施，包括管理野豬滋擾和監察野豬數量、減少吸引野豬的食物誘因，以及加強進行公眾教育以提醒市民切勿餵飼野生動物，減少野豬對市民的滋擾，倘若全部現有措施在中期都未能奏效，政府才會考慮通過禁止餵飼以長遠控制野豬滋擾的可行性。
+
+但兩年過去，政府沒有改變禁餵區範圍，到近日漁護署才表示正研究修訂《野生動物保護條例》(170章)，包括擴大野生動物禁餵區範圍，加強控制餵飼活動，減少吸引野豬於市區出沒的誘因。

@@ -1,0 +1,62 @@
+---
+title: "浸大學生記者持刀被捕　O記李桂華：好尖嗰隻　家人出示相片指是餐刀"
+date: "2019-09-17"
+last_updated: "2019-09-17 02:58:05"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "打記者"
+  - "915北角衝突"
+  - "學生記者"
+url: "https://web.archive.org/web/20210724203815/https://www.hkcnews.com/article/23556/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-915%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23565/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-o%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23556/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-915%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23565/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-o%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 浸大學生記者持刀被捕　O記李桂華：好尖嗰隻　家人出示相片指是餐刀
+
+北角周日晚發生多宗不同政見人士打鬥事件，多名記者採訪時遇襲。香港記者協會發聲明指，多名男子當晚手持攻擊性武器攻擊市民，甚至襲擊正在採訪的記者。現場多名記者被拍打鏡頭、被武器指嚇、被人用口向鏡頭噴燒酒，甚至被施以拳腳攻擊。現場的警員未有制服或拘捕向記者施襲的人士，甚至協助施暴者阻擋記者的鏡頭。
+
+記協表示，周日晚8時後，示威者已退至北角及炮台山一帶，多名中年男子手持武器襲擊現場採訪的記者。警方曾一度截查其中兩名施襲者，惟沒有即時將其帶署調查。該兩名暴力人士獲警方放行後再次向在場記者施襲，警員再度拉走兩人，最終只有一人被捕，相反被襲記者卻被現場警員要求搜查隨身物品及身份證。
+
+
+{{< video src="https://web.archive.org/web/20210724203815if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FHKPUSUCampusRadio%2Fvideos%2F522018395299135%2F&show_text=0&width=560" >}}
+
+
+香港攝影記者協會亦發聲明指，周日晚在北角及炮台山一帶，多名中年男子向現場記者無差別攻擊，多名前線記者被拍打鏡頭、用利器或棍棒指嚇，甚至以拳腳攻擊。現場的警員不單未有制服或拘捕有關暴力份子，更協助為他們遮擋鏡頭，甚至無理拘捕前線記者。攝記協表示，兩名光頭男子在現場多次以拳腳揮打在場記者，多名前線記者被打，警察曾一度截查兩人後來放行，但放行後兩人又再次向記者施襲，警員再度拉走兩人，最終其中一人被捕。相反一名被該兩人打傷的《大公報》記者，被現場警員要求搜查隨身物件，另外亦有攝影記者被警員要求查看身份證。
+
+攝記協亦指出，一名無綫電視新聞部攝影師採訪期間，被中年男子踢中盤骨，一名無綫電視新聞部記者亦被該批人士噴灑燒酒。攝記協表示，警方曾向公眾表示對任何暴力都會果斷執法、一視同仁，但現場大批防暴警察多次目擊該批男子的暴力行為，卻未有加以制止以及拘捕，反而安插不同的理由截查在場的記者，又用警盾遮擋鏡頭，惡意阻礙採訪，嚴重侵害新聞自由。
+
+記協強烈譴責惡意針對及恐嚇新聞工作者的暴力行為，指近日暴力份子及個別幫派惡意針對及恐嚇新聞工作者的行為，嚴重損害新聞自由。警方沒有公平執法亦令到記者採訪的工作環境日趨惡劣，指警方在搜查期間現場警員亦用警盾阻擋其他記者的鏡頭，刻意阻礙採訪。記協促請警方必須正視濫權行為，確保公平執法。攝記協對執法者未能持平執法表示憤怒，促請政府成立獨立調查委員會，正視警員濫權和失當行為。
+
+
+{{< video src="https://web.archive.org/web/20210724203815if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Fhkbubnn%2Fvideos%2F997877833883405%2F&show_text=0&width=560" >}}
+
+
+另外，浸會大學新聞系廣播新聞網的三年級學生記者蘇敬華，周日晚在英皇道與炮台山道交界採訪期間被警方拘捕。浸大廣播新聞網周日晚表示，事主被警方截停檢查記者證和身份證、搜查背包，被搜出一把餐刀，事主表示日前為慶祝中秋，用作切月餅，之後被捕。
+
+記協表示，被捕學生蘇敬華，由4月10日起開始執行記者職務，蘇敬華被捕時亦以廣播新聞網記者身份，採訪港島區示威活動。根據浸會大學新聞系發表的聲明內容，蘇敬華昨天從下午4時起與多名同學在港島區採訪示威活動，截至昨晚被捕前先後在廣播新聞網發佈13則報道。蘇敬華被捕時身穿印有記者字樣的頭盔及背心，和攜帶由新聞系發出的記者證。根據浸大廣播新聞網的資料，蘇敬華被警方搜背包期間，警員曾以私隱理由阻止其他記者拍攝搜袋過程，又以盾牌阻擋鏡頭。
+
+記協指，十分關注近日警方對一些已明確識別身份、正在採訪的記者進行搜身及搜袋的調查，促請警方交代搜查的原因，以及明確交代阻止記者拍攝搜袋過程的原因，切勿以搜查的藉口妨礙傳媒工作。
+
+攝記協表示，周日晚有6名記者被警員截停，要求出示記者證和身份證，以及搜查隨身物品。蘇敬華在搜查期間，現場警員亦用警盾阻擋其他記者的鏡頭，刻意阻礙採訪。
+
+記者在周一下午4時的警方例行記者會上詢問，蘇敬華被捕時身穿的反光背心及所戴的頭盔有記者字樣，他手持大型攝錄機，警方是基於什麼理由截查他。港島總區高級警司吳樂俊首先回應稱，無法掌握每一宗案件詳情，當時作出拘捕的警員要視乎現場的環境。   
+   
+ 記者其後多次追問，有組織罪案及三合會調查科高級警司李桂華指，案發時，一名軍裝警員發現該名學生在示威人士之間徘徊，與一般採訪工作有異，「大家採訪唔會喺度徘徊，唔會喺度做其他嘢，發覺佢可能同呢啲人士係一伙，所以上前截查同埋盤問。」李桂華稱，警員發現他口袋有一把9吋長的金屬刀，「好尖嗰隻來，當時佢有講過話係賞月、切月餅用，咁當然我哋同事唔接受啦，故以藏有攻擊性武器將佢拘捕。」蘇敬華周一晚獲准以500元保釋，下月中旬向警方報到，案件已交由港島總區重案組跟進。
+
+<figure>
+<img src="https://web.archive.org/web/20210724203815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/餐刀-學生記者-蘇敬華-20190916234753_3153_large.jpg" alt="">
+<figcaption>蘇敬華家人向浸大廣播新聞網提供相片，指是蘇敬華被捕時所攜餐刀同款，一套原先有四把。餐刀九吋長，手柄五吋長，刀鋒位置長四吋。浸大廣播新聞網相片</figcaption>
+</figure>
+
+浸大新聞系廣播新聞網在Facebook反駁李桂華說法，指周日有四名記者外出採訪。貼文指：「至晚上九時起，四名記者一直在一起，沒有落單。昨晚十時五十六分，在北角防暴警員施放催淚彈的位置離開，途中沒有遇到任何身穿黑衣、戴口罩的示威者，只遇過穿著普通便服的街坊。行至英皇道與炮台山道交界，被警方截停檢查記者證和身份證，故不存在被捕記者和示威者在附近徘徊之說。」、「警方於記者蘇敬華的背包中搜出一把餐刀，指出是一把『很尖的利刀』。本台記者拍得片段，顯示警方的搜袋過程。從片段所見，搜獲的是一把用紙巾包著的金屬鈍頭餐刀，和警方所指的『利刀』有很大出入。」
+
+廣播新聞網上載一張由蘇敬華家人提供的相片，指是蘇敬華被捕時所攜餐刀同款，一套原先有四把。餐刀9吋長，手柄5吋長，刀鋒位置長4吋。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724203815/https://www.hkcnews.com/aboutus/#subscribe)

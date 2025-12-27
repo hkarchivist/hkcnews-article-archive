@@ -1,0 +1,46 @@
+---
+title: "他們不明白"
+date: "2019-11-18"
+last_updated: "2019-11-18 20:59:28"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "理工大學"
+  - "1112中大衝突"
+  - "圍困理工"
+url: "https://web.archive.org/web/20221205045740/https://www.hkcnews.com/article/24899/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1112%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24902/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24899/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1112%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24902/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 他們不明白
+
+<figure>
+<img src="https://web.archive.org/web/20221205045740im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/示威者-1117理工衝突-圍困理工-20191118150249_1d8f_large.jpg" alt="">
+<figcaption>被圍困在理大的示威者，累極了打瞌睡仍高度警覺手執著錘仔。</figcaption>
+</figure>
+
+【撰文：痛心疾首的香港人】
+
+他們不明白，一網打盡理工大學內的三五百人並不會令事情平息，反而可能激起更大的民怨，更多人採取激烈手段。這個社會將會愈來愈亂。
+
+他們不明白，勇武派不是那三五百人，而是每一個人。政府橫蠻無理，警察濫用武力，便會愈來愈多人成為勇武派，用他們的方法對抗。
+
+他們不明白，警隊最大的武器不是水炮車和子彈，而是社會的支持。若然沒有民意的支持，他們的槍炮再厲害，也無法締造和平。
+
+他們不明白，能夠令香港人與勇武派割席的，不是放大他們的暴力行為，而是政府回應社會訴求，警察接受監察及調查。
+
+他們不明白，當示威者與政府各不相讓，必有一戰，社會希望讓步的是政府，而非看着年輕人被權力和現實壓得粉身碎骨。
+
+他們不明白，以暴力強迫年輕人屈服的做法，就是另一場六四。即使它披上了一件外衣，以「法」之名而行，它仍然是一場六四。
+
+他們不明白，不解決問題，只解決提出問題的人，就是另一場六四。這樣的政權，香港人不可能接受，即使再過三十年也不會接受。
+
+所以香港完了，這個故事再寫不下去了。而他們，仍然不明白。
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20221205045740im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

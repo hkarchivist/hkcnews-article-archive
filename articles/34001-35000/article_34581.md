@@ -1,0 +1,70 @@
+---
+title: "讓老師停牌，如何令學校更安全？"
+date: "2020-10-07"
+last_updated: "2020-10-07 20:31:57"
+author: "教育心理學家聯盟"
+category: "眾說"
+tags:
+  - "教師釘牌"
+  - "學校安全"
+url: "https://web.archive.org/web/20221007134556/https://hkcnews.com/article/34581/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/34581/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 讓老師停牌，如何令學校更安全？
+
+【撰文：丹丹@EPU】
+
+安全對學童而言，有兩個層面。一是有否實際上對學童造成身心靈的傷害，二是學童是否感到安全。
+
+前者的討論更要劃分成身體上（Physically）或是精神上（Mentally）的傷害，亦要考慮到底是即時性或是慢性傷害。
+
+對於後者，要令學童感到安全十分簡單，學校只需要有關愛的文化，老師關心學生，學生之間少衝突，學校生活環境少變化及安穩，學童便會感到安心。
+
+那麼，教育局以「學校安全」為由，對涉嫌宣揚港獨的小學教師處以停牌處罰並禁止其進入校園，到底會令學校如何更安全？
+
+<figure>
+<img src="https://web.archive.org/web/20221007134556im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/教師釘牌-港獨-學校安全-20201007202524_17d7_large.jpg" alt="">
+<figcaption>宣道小學一位資深老師因為製作有關言論自由的教材，包括給學生在課堂上填答的工作紙，被教育局指控散播港獨訊息，裁定「嚴重專業失德」，撤銷其教師註冊，被釘牌的老師受同學愛戴，現在即時從校園消失，學生覺得安全嗎？</figcaption>
+</figure>
+
+據報導所指，涉事教師只是設計了一課教育局堅稱宣揚港獨的教材。若港獨是不正確，以一個約80分鐘連堂向學生提及不正確訊息的話，到底會造成怎樣的傷害？
+
+其一，有沒有人會認為學生經歷課堂後會即時同意港獨甚至付諸實行？若否，其傷害最多只是慢性的心靈傷害。
+
+其二，所謂受傷害的學生有多少？ 據報稱，不見得有多少學生在課堂後有同意港獨，亦即受影響學生人數有限。
+
+反過來，教育局在是次行動中對學生做了什麼？
+
+一，教育局人員突擊巡查學校，盤問受教學生，干擾了學生的日常學校生活流程，亦讓受查問學生受壓。
+
+二，據了解涉事老師深受學生愛戴，而停牌決定突然，更即時因停牌而不能進入校園，其離職極度突然，剎那間消失於學生生活當中，更受傳媒廣泛報導。
+
+這個情景似什麼？不就好像有學校人員身亡的情景，即在教育局眼中要學校即時啟動危機處理程序，要教育心理學家到學校支援的狀況？
+
+試想象一位每日到見面而受愛戴的老師，突然消失於學生生活之中，對學童而言是如何不安的打擊。
+
+又試代入之前受教育局盤問的學生，若知道自己之前對官員所說之話可能是令老師被辭退的原因，會如何自責？
+
+以上種種教育局所作之事，不就是即時性的精神傷害？不就是令該校學童置身於不安定環境之中？
+
+我還未計學校教職員因事件處於低士氣狀況對學生的長遠影響。
+
+到底，讓這位教師即時消失於學校，會令學校更安全還是更不安全？
+
+教育局要處理她眼中的不安全事宜，有否其他更合適方法？
+
+說到底，一名教師被指對學生做成慢性傷害，與傷人、性侵等即時傷害所造成的危險，是絕不可比較等同。
+
+說到底，這本來只是一件政治事件，卻被以安全之名令學校變得更不安全...
+
+#政治真的不應進入校園   
+ #唔知教育局有冇派EP去學校輔導受影響學童
+
+---
+
+![博客 | 教育心理學家聯盟](https://web.archive.org/web/20221007134556im_/https://hkcnews.com/uploads/avatars/2b5a000f-15be-4ea5-a4ab-fddba219094c.png?2057194894)
+
+**博客 | 教育心理學家聯盟**
+
+【教育心理學家聯盟專欄】我們是一批志同道合的教育心理學家，希望在這裡談教育、心理、社會公義、業界發展；為教育心理學家的專業發聲，也為我們的服務對象發聲。Educational Psychologists Union FB Page：https://bit.ly/2FwDOvW

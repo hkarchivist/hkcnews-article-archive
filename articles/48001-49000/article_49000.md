@@ -1,0 +1,43 @@
+---
+title: "郭卓堅指邊境投票站違憲提覆核　高院今駁回　官：僅豁免檢疫，不影響「通常居港」定義"
+date: "2021-12-13"
+last_updated: "2021-12-13 20:00:15"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "司法覆核"
+  - "郭卓堅"
+  - "2021立法會選舉"
+  - "邊境票站"
+url: "https://web.archive.org/web/20220925215503/https://hkcnews.com/article/49000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49011/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49011/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 郭卓堅指邊境投票站違憲提覆核　高院今駁回　官：僅豁免檢疫，不影響「通常居港」定義
+
+立法會選舉將至，政制及內地事務局在本屆選舉特設三個邊境投票站，讓身在內地的合資格選民經網上登記後投票，不設傳媒觀察點票。「長洲覆核王」郭卓堅早前入稟高院申請司法覆核，要求推翻決定，法官高浩文今（13日）頒下判詞，駁回申請。法官直指郭誤解了邊境投票登記安排，而且當局以疫情為由限制公眾觀察點票，不算不合理。
+
+郭卓堅共提出四項理由，指設置邊境投票站的決定違法違憲，包括：
+
+⚫️本屆選民登記已於7月5日結束，惟政制及內地事務局將居內地港人的登記限期延長至12月19日。郭認為所有在7月5日後的登記應視為無效。
+
+⚫️安排容許並非通常居住在香港的人登記為選民及投票，違反《基本法》。
+
+⚫️傳媒不能在邊境投票站監察點票過程，違反《基本法》第25條。
+
+⚫️身處台灣的港人未有受惠於類似安排，反映此安排沒有承認台灣是中國的一部分，違反了《國安法》。
+
+<figure>
+<img src="https://web.archive.org/web/20220925215503im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/丁屋-郭卓堅-20211105171609_2dcb_large.jpg" alt="">
+<figcaption>郭卓堅</figcaption>
+</figure>
+
+法官高浩文今頒下判詞，直指郭誤解了邊境投票安排。他指出，政制及內地事務局設下12月8日（並非12月19日）的登記限期，只是登記使用邊境投票站的限期，不是選民登記限期。正式選民登記冊已於10月29日發表，如果某人不是合資格選民，便無法享用邊境投票安排，邊境投票安排只是豁免檢疫，不影響「通常居港」定義。再者，即使沒有邊境投票站，海外人士仍可於投票日回港投票。
+
+### 官：因疫情限制公眾監票　非不合法或不合理
+
+就著缺乏傳媒監察點票一事，法官認為，政制及內地事務局基於疫情，在邊境投票站實行封閉管理，限制公眾在邊境投票站觀看點票，在公法意義上不算不合法或不合理。公眾觀看點票非法定權利，而是票站主任根據《選舉管理委員會(選舉程序)(立法會)規例》酌情批准。
+
+至於在台港人未有受惠，法官則指出，本港法例規定投票必須在香港境內進行，因此不可能在台灣設立投票站。是次政府根據實際需要選擇邊境投票站的位置，郭沒有提出任何事實或法律依據，說明法庭應該干涉政府的決定。
+
+案件編號：HCAL 1635/2021

@@ -1,0 +1,60 @@
+---
+title: "港台手語傳譯時事節目《早辰。早晨》停播　將重播中共奮鬥史　聾人組織憂接收資訊渠道減少"
+date: "2021-10-21"
+last_updated: "2021-10-22 17:59:58"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "聾人"
+  - "《早辰。早晨》"
+url: "https://web.archive.org/web/20211128183433/https://www.hkcnews.com/article/46759/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46786/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46759/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46786/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港台手語傳譯時事節目《早辰。早晨》停播　將重播中共奮鬥史　聾人組織憂接收資訊渠道減少
+
+港台電視時事節目《早辰。早晨》今日是最後一集，下周一起將改為播放由中央廣播電視總台出品、講述中共奮鬥史的紀錄片《敢教日月換新天》。節目為少數設有手語傳譯的時事資訊節目，有聾人關注組織表示，現今提供手語傳譯的節目本身已不多，不少聾人都會收看《早辰。早晨》以得知社會資訊，節目停播對聾人接收資訊的影響很大，「我哋（聽力正常人士）接收資訊，可以揀好多報紙、收音機、電視，咁聾人有咩選擇呀？如果佢可以接收好多資訊嘅，少一個冇所謂，但佢係好少呀嘛。佢都係公民，有乜理由接收社會資訊係咁少？」
+
+港台回覆指，一直關注不同人士的需要，例如港台電視31每晚11時的《新聞天地》、星期三晚上8時的《盤點政策》、《2021 立法會換屆選舉 - 資訊短片》等等，均配以手語傳譯。
+
+<figure>
+<img src="https://web.archive.org/web/20211128183433im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/港台電視-20211021231446_2081_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+《早辰。早晨》為時事資訊直播節目，逢星期一至五早上7時半至8時於港台電視31播放，今日在節目尾聲，主持跟觀眾道別：「由2016年4月起，逢星期一至五，陪大家走過晴天、陰天、打風、落雨嘅日子，走到今日，節目嚟到最後一集，都要提提大家，今日天氣轉涼，出門口記得帶定件外套，後會有期。」
+
+節目內容除了報道當日的天氣與交通消息外，亦包括報章摘要、社評、重點新聞及網上熱話等，設有即時手語傳譯。節目為港台2016年接手亞視模擬頻道後新設，是全港首個提供常規即時手語翻譯的直播時事資訊節目。不過，近日港台網頁節目表上已不再見到有關節目，下周一同樣時段將改播《敢教日月換新天》。
+
+《敢教日月換新天》由中共中央宣傳部聯合有關部門製作、中央廣播電視總台出品，講述中國共產黨奮鬥史，為慶祝中共成立100周年的文獻專題片，已於今年6月在央視播出，而港台亦已在10月6日起，逢星期一至五晚上9時半至10時在港台電視31播出該節目，按港台電視網頁節目表，早上時段播放的被標示為重播節目。根據網上資料，該劇共有24集，截至昨日（21日）港台已播放至第13集。
+
+港台自今年7月起，已播放多套購自內地的國劇，包括《號手就位》、《大江大河》、《大決戰》、《喬家的兒女》。對於是次停播《早辰。早晨》，港台回覆眾新聞查詢時未有回應停播節目的原因，僅說港台不時檢討節目播放安排，不評論個別節目的內部編輯事宜。
+
+港台自新任廣播處長李百全3月上任後，公共事務組多個節目被刪改，《視點31》、《五夜講場》、《日常8點半》、《The Pulse》被停播，《鏗鏘集》及《議事論事》改為外判製作，電台《瘋Show快活人》主持曾志豪、貴花田突然被解僱，《自由風 自由Phone》主持區家麟亦被換走。
+
+### 手語時事節目本已寥寥可數　現在少之又少
+
+目前本港免費電視台的手語新聞時事節目不多，港台播放的除《早辰。早晨》外，晚上11時播放的《新聞天地》自7月中起才開始設有手語傳譯，其餘節目如《時事摘錄》、《盤點政策》每周只播放一天。除港台外，無綫電視明珠台自2018年起，每晚7時亦會播放《手語新聞報道》。
+
+聾人組織「龍耳」創辦人邵日贊對節目停播感到失望，認為對聾人接收資訊的影響很大。他指，由於聾人教育普遍以手語及口語為主，對文字的理解未必足夠，因此接收資訊很依賴手語，但提供手語傳譯的節目本身已不多，如今若再減少聾人接收資訊的渠道，將對聾人很不公平，「我哋（聽力正常人士）接收資訊，可以揀好多報紙、收音機、電視，咁聾人有咩選擇呀？如果佢可以接收好多資訊嘅，少一個冇所謂，但佢係好少呀嘛。佢都係公民，有乜理由接收社會資訊係咁少？」
+
+他指，很多聾人都會收看《早辰。早晨》，節目提供的資訊較廣闊及詳細，除香港及國際新聞外，亦包括交通、天氣等資訊，節目停播將會對聾人接觸世界的連繫構成很大阻礙。他認為現今供聾人收看的電視新聞節目並不足夠，只有數個時段可以選擇，例如明珠台雖然會播放《手語新聞報道》，但晚上7時正值下班時段，加上很多聾人不會慣性收看明珠台，亦未必會知道。
+
+本身是聾人的「聾人力量」發起人路駿怡指，聾人日常生活中接收的資訊本身已經有很多遺漏，有手語傳譯的新聞節目可以說是寥寥可數，主要只有明珠台晚上7時的《手語新聞報道》、港台電視31每天晚上11時的《新聞天地》及早上7時半的《早辰。早晨》，現時更要取消《早辰。早晨》，變相聾人可接收手語新聞的節目少之又少。
+
+港台回覆查詢時指，作為公共廣播機構，港台的公共目的包括鼓勵社會共融及多元化，一直關注不同人士的需要，例如港台電視31每天晚上11時的《新聞天地》、星期三晚上8時的《盤點政策》、《2021立法會換屆選舉 - 資訊短片》等等，均配以手語傳譯，照顧聽障人士需要；視障人士亦可以使用港台開發的手機應用程式「聽出好戲勢」欣賞港台節目。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128183433/https://www.hkcnews.com/aboutus/#subscribe)

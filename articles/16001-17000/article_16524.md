@@ -1,0 +1,72 @@
+---
+title: "【金馬獎】獲獎感言被指講台獨　大陸網民翻牆狂轟傅榆　台灣文化部長：這裏是台灣，不是中國台灣"
+date: "2018-11-18"
+last_updated: "2018-11-18 15:18:25"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "台獨"
+  - "taiwan independence"
+  - "金馬獎"
+  - "傅榆"
+url: "https://web.archive.org/web/20211026073813/https://hkcnews.com/article/16524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16526/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/16524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16526/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【金馬獎】獲獎感言被指講台獨　大陸網民翻牆狂轟傅榆　台灣文化部長：這裏是台灣，不是中國台灣
+
+<figure>
+<img src="https://web.archive.org/web/20211026073813im_/https://hkcnews.com/news_新聞/hk-discuss/2018/11/金馬獎-傅榆-20181118133227_144a_large.jpg" alt="">
+<figcaption>金馬獎最佳紀錄片導演傅榆（左），獲獎後發表感言。美聯社</figcaption>
+</figure>
+
+周六晚在台北舉行的第55屆金馬獎頒獎典禮， [《我們的青春，在台灣》](https://web.archive.org/web/20211026073813/https://www.youtube.com/watch?v=LRyIVfqpzlY) 獲得最佳紀錄片獎。該片導演傅榆獲獎後表示，「這部片很多人以為在講政治，其實更多是在談論青春，青春很美好，但是青春也是最容易犯錯。尤其是容易把錯誤的期待投射在別人身上，這種錯誤不只是可能發生在人對人，有可能發生在國家對國家。我真的很希望有一天，我們的國家，可以被當成一個真正獨立的個體來看待。這是我身為一個台灣人，最大的願望。 」
+
+
+{{< video src="https://web.archive.org/web/20211026073813if_/https://www.youtube.com/embed/6YogcutJS9I" >}}
+
+
+傅榆說了這一段話後，中國的網絡立即停止直播，宣傳部門下令禁止報道有關言論。共青團中央微博帳號轉發一個留言，上有一張包括台灣、南海在內的中國地圖，配文「中國，一點都不能少！我深深的愛着這個國家」。獲得大量轉發和評論，轉發者包括出席金馬獎的中國演員鄧超、胡歌等。
+
+台灣文化文化部長鄭麗君，周日凌晨於facebook貼文稱，「台灣是亞洲最自由、民主、多元、熱情的國家。台灣的金馬獎為所有電影工作者打造一個尊重電影藝術及創作自由的國際獎項。但請記得：這裏是台灣，不是『中國台灣』」，並恭喜傅榆獲得最佳紀錄片獎。
+
+<figure>
+<img src="https://web.archive.org/web/20211026073813im_/https://hkcnews.com/news_新聞/hk-discuss/2018/11/金馬獎-傅榆-20181118135536_2559_large.png" alt="">
+<figcaption>台灣文化部長鄭麗君（左）在facebook留言，並貼上她與傅榆合照。網上截圖</figcaption>
+</figure>
+
+台灣網民力推傅榆的講話，聲援「傅導演妳好棒」、「導演加油，謝謝妳的發聲」。中國網友翻牆到傅榆facebook留言「我一定要解放台灣」的圖片，有人說「台灣狗永垂不朽」、「台灣狗宇宙第一」。傅榆其後留言，「想罵人的請來這邊，在其他無關《我們的青春，在台灣》貼文底下做人身攻擊，怎麼看都有點荒謬」。
+
+《我們的青春，在台灣》以台灣青年的太陽花運動為背景，劇情簡介說：「有反抗中國的台灣學運明星，有喜愛台灣的當紅中國學生，也有關注政治的台灣紀錄片工作者，在一次次社會運動中，試圖找尋合作的可能性，在歷經台灣24年來最大的社會運動後，紀錄這群人，所受到的衝擊，及經歷現實與理想矛盾的心路歷程。」傅榆在得獎後說，「很多人可能一輩子不會進戲院看一部紀錄片，紀錄片只是我們用真實的人拍一個很好看的故事。我希望大家可以進戲院不要再讓我們當票房毒藥」。
+
+**《我們的青春，在台灣 Our Youth in Taiwan》片段**
+
+
+{{< video src="https://web.archive.org/web/20211026073813if_/https://www.youtube.com/embed/LRyIVfqpzlY" >}}
+
+
+《美國之音》報道，曾在中港從事媒體工作的中國傳媒人賈葭在中文推特留言：
+
+> **好多人發牢騷說，政治的歸政治，藝術的歸藝術，指責傅榆不該發表此番言論云云。我對此論調頗為反感，藝術不干預政治，則必為政治所干預。藝術必須干預政治，直到政治不能干預藝術為止，其他類推。那些大陸演職人員噤若寒蟬的反應，不正是政治干預藝術的結果麼？**
+
+
+去年金馬獎影帝、今年的頒獎嘉賓中國演員塗們的開場白說，「特別榮幸再次來到中國台灣金馬做頒獎嘉賓。這次見到很多熟悉面孔，接觸了很多新朋友，我感到了兩岸一家親。 」賈葭說，這顯示在中國沒有說話的自由也沒有沉默的自由，「今晚的金馬獎，大陸演職人員就演繹了什麼叫『沒有沉默的自由』」。
+
+台灣《蘋果日報》引述金馬獎執委會主席李安表示：「我們金馬獎是希望所有的華語影人來這邊，來慶祝優秀的作品，評選過程必然幾家歡樂幾家愁，我們希望做到一個開放，台灣這邊是自由的，影展是開放的，他們愛講什麼講什麼，只要來金馬獎，我們希望就藝術論藝術，不希望有任何的政治世界來干擾，我們有今天金馬獎這樣的成果，幾乎90%的人都出席了，請大家給電影人一個尊重。」最佳劇情長片獎的頒獎人，原定是導演李安和演員鞏俐，但鞏俐沒有上台頒獎。有twitter用戶寫道：「點贊鞏俐女神，在國家領土問題上，不能退讓。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026073813im_/https://hkcnews.com/news_新聞/hk-discuss/2018/11/中國一點都不能少-金馬獎-胡歌-20181118150208_9255_large.jpg" alt="">
+<figcaption>頒獎嘉賓胡歌在微博轉發「中國，一點都不能少」表態反對「台獨」言論。中國藝人一面倒的紛紛表態反「台獨」。照片來源：台灣《鏡週刊》</figcaption>
+</figure>
+
+中國導演張藝謀以《影》獲得四個大獎，他深夜在S Hotel舉行慶功宴，酒店工作人員阻擋記者進入，甚至將窗簾拉下。台灣《蘋果日報》引述消息指出，因金馬獎頒獎禮上因有涉及台獨立場的發言，所有中國影人都被通知「不得出席金馬相關酒會」。中國演員胡歌原定在台停留5天4夜，周日上午提早離台，記者問他對金馬獎的政治風波有何看法？他聞言只說：「很遺憾。」
+
+李安與鞏俐於凌晨一點半進入S Hotel，兩人都默不說話，直接入內。李安在2點44分離開S Hotel前接受媒體訪問，他一臉疲態，被問是否擔心明年的金馬獎，他兩手一攤表示：「不曉得，明天再想吧。」對於金馬獎的政治風波，他一臉無奈說，「台上要講什麼就講什麼」，並說沒有實際看到什麼通知或禁令，但就感慨表示「我盡量做到主人，盡力了」，希望大家可以繼續支持下去。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026073813/https://hkcnews.com/aboutus/#subscribe)

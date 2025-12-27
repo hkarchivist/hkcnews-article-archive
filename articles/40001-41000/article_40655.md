@@ -1,0 +1,69 @@
+---
+title: "韓國民主路系列（一）：外在勢力"
+date: "2021-04-29"
+last_updated: "2021-04-29 11:57:27"
+author: "華人基督徒義顯社"
+category: "眾說"
+tags:
+  - "獨裁者"
+  - "外國勢力"
+  - "韓國民主路"
+url: "https://web.archive.org/web/20211205044022/https://hkcnews.com/article/40655/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40766/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/40655/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40766/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 韓國民主路系列（一）：外在勢力
+
+<figure>
+<img src="https://web.archive.org/web/20211205044022im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/外國勢力-韓國民主路-20210429113825_9b29_large.jpg" alt="">
+</figure>
+
+【撰文：鳴暉】   
+   
+ 在二次大戰後，戰敗的日本退出在韓國長達35年的高壓殖民統治，可是卻出現了美國與蘇聯的冷戰，朝鮮半島分為南北，南方在美國支援下於1948年成立為「大韓民國」，憲法規定要實行民主制，何以卻延至1987年才可擺脱歷任獨裁者無窮欺壓的厄運？   
+   
+ 朝鮮半島過去一直受外國所侵擾，在古代早於漢武帝時便被侵佔，並設郡管理，漢人亦陸續移居，此後歷代朝鮮王朝大部分皆以中國為宗主國，遲至晚清，朝廷仍派兵屯駐。鄰近的日本亦長期對朝鮮半島虎視眈眈，戰國時代的豐臣秀吉便曾兩次征討，至明治維新後更多次干政，最終在1910年成功吞併為殖民地。   
+   
+ 時下流行的韓劇，其古裝故事便充滿著朝廷深受外國勢力所左右的悵然宿命之情。然而，當這國家最終脫離了殖民地之囚牢時，國民萬想不到的是，以為從此便可當家作主的立國夢卻粉碎了。一代代的統治者不斷利用人民長久對外來勢力的恐懼，化為合理化箝制國民自由民權的工具！   
+   
+ 不幸地，大韓民國由第一屆的民選總統開始，便墮入了極權統治的枷鎖。
+
+<figure>
+<img src="https://web.archive.org/web/20211205044022im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/前總統-李承晚-20210429005322_1cc4_large.jpg" alt="">
+<figcaption>南韓第一位民選總統李承晩。美聯社資料照片</figcaption>
+</figure>
+
+本身曾經是留美推動反對日本殖民統治運動的李承晩，是韓國獨立後的首任總統，但是他就職後便立刻以北韓的外來勢力及共產主義的滲透為藉口，全面污名化反對他的民眾，大舉鎮壓。   
+   
+ 數年後韓戰的爆發造成的南北緊張對峙，更讓李承晚乘機變本加厲，為能長期執政，便順勢修改憲法，取消總統連任的限制，並且在連續兩次的總統大選，都誣衊對手或反對者為親北韓共黨的破壞份子，以嚴刑峻法肅清。
+
+終於，在1960年，全國發起反對運動，政權仍開槍鎮壓，造成百多人喪命，人心盡失，最後李承晚出走流亡至夏威夷，民主派的尹潽善成為總統。不過，未幾，軍人朴正熙又在1961年發動政變，展開另一輪18年的獨裁治權。直至1979年朴正熙被刺身亡，又換來軍人全斗煥的奪權，大規模血腥追剿反對者，軍人在光州的屠城，更因記者的報導得以傳流外國令全球嘩然，最終下台。
+
+<figure>
+<img src="https://web.archive.org/web/20211205044022im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/朴正熙-獨裁者-20210429115335_17b0_large.jpg" alt="">
+<figcaption>發動政變奪權的朴正熙繼續獨裁統治，最終被暗殺身亡。照片來源：epailive.com</figcaption>
+</figure>
+
+兩位軍人獨裁者，都不忘沿用李承晚所謂外來勢力之砌詞，將異見者誣揑為北韓同謀，恣意拘捕收監，把民眾的示威指控為共產黨顛覆政府的陰謀，合理化任何暴力，不少異議份子和追求民主的學生，都因而喪失寶貴的生命和前途。   
+   
+ 諷刺的是，另一端的北韓三代金氏王朝，也採用同一套殺手鐧：外在勢力，不過，卻換了是美國帝國主義，據一些「脫北者」（即逃離北韓者）所言，北韓人民朝夕都要隨時警戒美帝的入侵，家中常備逃到郊外的背包，以投入游擊戰以保衞家園，生活全方位必須聽從金家歷代的政令。   
+   
+ 北方所謂的美國帝國主義，與南方所提的共產主義，本來是南轅北轍的意識型態，卻被雙方獨裁者說成侵害人民的罪魁，其實，說穿了，這些統治者口中的外在勢力，只不過是南、北二國的極權政府用來鞏固勢力的手段，藉以對反對者斬草除根，或奴化人民成為唯命是從的傳聲機。
+
+外國勢力、顛覆國家、危害安全，正於曾是亞洲四小龍之一的另一城市重演著，爭取民主的鬥士及學生，一一被捕入獄，韓國的血淚民主路，前車可鑑！（未完待續）
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205044022/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 華人基督徒義顯社](https://web.archive.org/web/20211205044022im_/https://hkcnews.com/uploads/avatars/81bc8451-efb1-4dc2-9482-f5b0c5859fce.png?76270930)
+
+**博客 | 華人基督徒義顯社**
+
+【華人基督徒義顯社・義顯之聲】組織使命為：彰顯神國公義，普及社會倫理，結合靈修社參，服事華人教會。

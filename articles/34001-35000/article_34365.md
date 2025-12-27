@@ -1,0 +1,47 @@
+---
+title: "民主派留低　議會變街頭"
+date: "2020-09-29"
+last_updated: "2020-09-30 06:12:16"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "泛民"
+  - "民主派"
+  - "立法會延任"
+url: "https://web.archive.org/web/20220118003503/https://www.hkcnews.com/article/34365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34367/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34367/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民主派留低　議會變街頭
+
+
+{{< video src="https://web.archive.org/web/20220118003503if_/https://www.youtube.com/embed/8Ztr5uHlle0" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20220118003503/https://bit.ly/2Cj8v4t)
+
+特首林鄭月娥以疫情為理由，押後原本安排在9月6日舉行的立法會選舉至明年9月。人大常委決定全體現任議員在9月30日任期完結後留任多一年。在政府民望低迷、建制派選情極為不利下，林鄭借疫情押後選舉一年，司馬昭之心，路人皆見，泛民支持者憤怒，但無法改變政府決定，集體拒絕接受留任，杯葛未來一年立法會的聲音得到不少支持。民主派立法會議員中，以民主黨和公民黨為主流，他們清楚傾向留任，但泛民支持者反對聲音大，最終去留交由民調決定。
+
+民調結果今日（29日）公佈，在2500多位回應的市民當中，有739人自稱是15名民主派議員的支持者，其中 47.1%支持他們留任，45.8%受訪者反對他們留任，兩者皆未能達到過半數的門檻，相差只有1.3個百分點，其餘7%受訪者對去留問題表示「一半一半」。泛民支持者留和走基本是各一半，只有7%可說留和走都能接受。泛民陣營對留和走分歧比估計嚴重，議員傾向留，支持者一半一半。公民黨陳淑莊以個人理由不接受，亦退黨及政壇，早前已宣佈走的有朱凱迪和陳志全。大部份議員最後決定留，相信反對留的亦能勉強接受。
+
+北京和林鄭押後選舉，再延任全體議員一年，是一石多鳥的陽謀，既推遲選舉一年，分化泛民，特別是現任主流黨派與在初選中勝出的激進本土派，亦同時分化泛民支持者，多個目的都可說已達到。經過個多月的爭拗，大部份留任決定必然仍有爭議，會否因而造成內鬨、互相攻擊，以致影響泛民內部團結及明年選舉協調，現在言之尚早，但不能排除。
+
+但可以肯定的是，泛民議員在未來一年別無選擇，必然採取更強硬、激進路線，原因很簡單，對反對留的，泛民要證明留低有作用，必然是做更堅定強硬的反對派，支持他們留在議會的民主派支持者，面對林鄭政府暴政，相信絕大多數市希望他們在議員企硬，阻止政府為所欲為，不單只是發聲，要有行動。泛民議員無論決定留和走，假如計劃明年再選，未來12個月是選舉年，政府民望無起色，反林鄭、反政府仍大有市場，留或走的議員不可能放軟手腳。
+
+林鄭政府和建制派虛偽、口不對心，他們呼籲泛民留低，與政府合作，但一直標籤民主派為「反對派」、「攬炒派」，假如全部泛民離開，他們不會感到可惜，甚至樂得清淨，林鄭班子也不會在乎港人和國際社會觀感，更可把責任推到泛民身上。
+
+政府瀕臨管治危機，政治風暴未過，一心以為抗疫可得分、振經濟、保就業可凝聚市民，但政府由政策到執行都不斷犯錯，以為押後選舉可以以時間爭取表現，提高民望，打殘泛民，幫建制一把，只是發夢。
+
+夢很快會完。林鄭下月發表新一份施政報告，泛民肯定儲足彈藥大報復。林鄭政治能量已成負數，任何她提出和自己推動的政策措施，都會因為「林鄭因素」，好事變壞事，壞事變小災難，小災難成大災難。「林鄭因素」不徹底消除，未來12個月及未來，政治亂局不會平靜下來，更不會因泛民留在議會而改變，今日的議會路線與街頭路線已越來越分別不大。
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20220118003503im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

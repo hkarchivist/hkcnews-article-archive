@@ -1,0 +1,45 @@
+---
+title: "20泛民留任　議會勢激化"
+date: "2020-10-05"
+last_updated: "2020-10-05 16:37:51"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "立法會議員"
+url: "https://web.archive.org/web/20210928050653/https://www.hkcnews.com/article/34507/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34515/20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34507/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34515/20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 20泛民留任　議會勢激化
+
+<figure>
+<img src="https://web.archive.org/web/20210928050653im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/立法會-20201005152458_f6c0_large.jpg" alt="">
+</figure>
+
+大部分泛民議員選擇留任，這個結果並不令人意外，民主黨、公民黨等早已表明傾向，之所以一直懸而未決，是因為非建制陣營內有極強烈的民意，要求非建制議員在四年任期結束後便卸任，不要認可中央和特區政府押後立法會選舉及將原有立法會延長一年，指這種臨時延任的安排在《基本法》內並無依據，議員留任並無民意授權。民主黨、公民黨等為示尊重民意，委託獨立民調機構進行民意調查，若民調顯示有清晰主流意見，便按主流民意決定去留。
+
+最終出來的民調結果是自稱民主派支持者中，47%支持留任，46%反對留任，兩者皆不過半，泛民諸政黨和議員遂各取所需，自行演譯民意。
+
+雖然民調結果顯示非建制選民意見嚴重分歧，贊成退出議會的與主張留守的各佔一半，但由於眼前沒有選舉，立法會選舉最快要在一年後才舉行，屆時若疫情仍未受控，或有其他突發事故，令建制派對選情看淡，不排除仍有再次押後選舉的可能。
+
+既然暫時沒有選舉，泛民群眾對應否留守議會的分歧，就暫時不可以用投票來反映，決定留任的議員不用懼怕被反對留任的選民懲罰，而留守可以討好半數選民，又有議會財政資源可用，兼有持續曝光機會，所以留任者眾，最後有20名議員決定留任。
+
+不過，決定留任的議員也知道，他們不可以像過去那樣履行議會職責，斯文客氣地開會審議文件，他們為留任提出的理據是延續抗爭，盡最大努力阻止建制派通過一些違反民意或侵犯人權的法案與撥款，例如明日大嶼填海計劃。
+
+既然作了這樣的公開承諾，他們就要在議會內以更激烈的行動表達抗爭意圖，令外面的抗爭派民眾無法指責他們背叛抗爭運動。由於議事規則已被修改，而建制派又動輒召喚警察到立法會拘捕搗亂的議員，留任的泛民議員有可能被檢控，甚至被譴責和取消議員資格，未來一年的議會政治將充滿張力。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928050653/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20210928050653im_/https://www.hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

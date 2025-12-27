@@ -1,0 +1,112 @@
+---
+title: "【理大留痕】有人暈倒有人瑟縮機房　社工執仔陪伴　曳仔：多謝無放棄我"
+date: "2020-11-29"
+last_updated: "2020-11-29 15:00:09"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "社工"
+  - "救理大"
+  - "理大圍城"
+url: "https://web.archive.org/web/20221209162822/https://www.hkcnews.com/article/36009/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36010/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36009/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36010/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【理大留痕】有人暈倒有人瑟縮機房　社工執仔陪伴　曳仔：多謝無放棄我
+
+天光之前是最冷的，夾雜了人性的冷血和未明的將來。去年被圍困理大的社工，成為外間和被困者之間的重要媒介，他們受老師和家長所托，走遍校園「執仔」。記得有一次，社工走到一間機房，入面還有一間小房，幾個年幼男女蹲在渠管下，他們不似大人般收到很多資訊，可以很有組織地走，他們想匿藏到所有事情都過去再出來。
+
+在圍城內可做的事並不多，哪裏安全？要留多久？很多疑問連自己都未能解答，但不說一句的陪伴，或在慌亂之中已發揮很大作用。當日中學校長和老師走進槍彈橫飛的校園時，一個在旁人眼中很衝動的「曳仔」跟老師說：「多謝你無放棄我。」平日學校的曳仔，彷彿這個時候才看見真正的他。
+
+四位社工紅著眼睛，訴說圍城內的回憶，勾起難以撫平的傷痛，呼喚的是人性最基本的關愛。
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129003342_6701_large.jpg" alt="">
+<figcaption>Angel感到內疚……</figcaption>
+</figure>
+
+### 「和理非拿袋了，我們一陣攻出去，你們好走了」
+
+早在圍城第一日11月17日，社工Angel從不同渠道得知，理大內有很多年紀很小的示威者，部分人可能只是初中生，身為理大校友的她，決定走入校園看看，當日中午便已抵達。她憶述，當時理大校園仍有出有入，她最後一次在下午四五時走進去，不料從此被圍困。衝突大半天，當時不少人走到飯堂用餐補給，她一直留在廚房洗碗，完全不知道外面情況。
+
+她憶述，當時飯堂有很長人龍領取食物，煮食和洗碗也不夠人幫忙。直至傍晚後，傳來所有在理大的人都會被控告暴動的消息，她當刻心存疑惑，畢竟整場運動都從未試過無差別式、不區分人物和行為來處理衝突，「講真裏面乜人都有，老師、職員、教會姨姨……都和我們一起幫手。」
+
+自知無法離開，更得悉有同工離開校園時被捕，疲倦的身驅叫她繼續留下來。那夜凌晨，她目睹的是一個戰場，有些人雄心壯志地步出校園，卻渾身水炮藍水、紅色傷痕被人抬回來；有些人歇斯底里地大叫，因為看著身邊的手足、認識的朋友被警方拉走了。
+
+有位13歲的男生耳朵中彈，Angel把他帶到安全的地方休息和包紮。翌日清晨，被困者商討如何突圍而出，更拋出爬渠的念頭，讓她頓時「O嘴」，作為一個成年人，不願看見他們冒上極大的生命風險，但被困者的心態就是「就算要死，都唔想死在警察手上。」
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129120959_1b47_large.jpg" alt="">
+<figcaption>更衣室的凌亂。張凱傑攝</figcaption>
+</figure>
+
+**接下來一兩日，她成為外來人和被困者之間一個信任的媒介，不少老師、家長找社工幫忙尋找被困者，她收集外間資訊、親身接觸校長，再將所見所聞告訴被困者。「飯堂攻略」有一個好處，因為在校園平台移動的人都是蒙面，唯有在飯堂才會除下口罩進食飲水，這樣她就可以估計對方的年紀，每當遇見奀瘦的、細粒的、沒有食物的，她就會上前。**
+
+交托要找的人都找了，還會在校內遊走的人也愈來愈少，似乎是時候要離開了。她被登記個人資料後離開，但那刻有些被困者始終無法聯絡上，步出校園時伴隨的是一絲遺憾。
+
+**她記得11月18日，有一班人在飯堂看著電視直播，看見圍城外的民眾試圖突破警方防線，營救理大被困者，喊著說：「來了來了，和理非拿袋了，我們一陣攻出去，你們好走了。」**
+
+**「他們很勇敢，其實很多人細過自己，為何要這樣救自己？」**
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129003415_ddc6_large.jpg" alt="">
+<figcaption>Ben原諒不了的……</figcaption>
+</figure>
+
+### 「把心一橫躲起來的，你不會找到他」
+
+廚房內還有另一位社工Ben，他同樣在11月17日看見新聞，食過午飯後便前往理大，由下午開始已看見有人被水炮撃中需要沖身，現場氣氛一直緊張。直至傍晚六七時，有人傳短訊告訴他，已經走不了。他說當時沒意識要走，因為沒甚麼可以做到，唯有繼續洗碗在廚房幫忙。
+
+晚上九十時，人們在校園流動，試圖尋找出口，飯堂的人漸漸減少，或者大家已沒有心情吃喝，女友、媽媽、家姐……一個又一個問他：「咁你而家點好？」家人著急，外面的人比自己急，因為他們不知道裏面的情況，有沒有食物？有沒有水？現在情況如何？一連串的問題，其實他也不知道如何回答。圍城之際，記得的是要跟老闆「攞假」：「我走不了，明天不能上班。」
+
+**那一夜，很痛。「大家跑來跑去，有人被捕，有人崩潰，話要救番佢、話要報仇，有人暈了，有人被抬著回來，有人被打中頭部……」他們都很細個，Ben說不下去。**
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129120950_1443_large.jpg" alt="">
+<figcaption>他說那夜很冷。美聯社</figcaption>
+</figure>
+
+**秋日的清晨有點冷，可能夾雜了人性的冷血。太累了，他找了一角有陽光的照射下睡了睡。睡醒之後，他和同工開始「執仔」，問的是「你點啊？在哪裏休息？」他走到一個地方，機房內還有一間小房，入面有幾個年紀很小的男女蹲在渠管下，他們不似大人般收到很多資訊，可以很有渠道和組織地走，他們想匿藏到所有事情都過去再出來。**
+
+第一日是有目的；第二日是迷失；第三日是迷失加驚慌，有人把心一橫躲起來，根本不會讓你找到他。「點解要走到咁入？就是很怕被警察找到，又怕記者看不到，不知警察會點對佢哋。」他要問的是：「可以留到幾耐？留到幾時？萬一人愈來愈少，你承不承受到？當被人搜到時，有咩人可以幫你？」他的問題，令渠管下的年輕人開始掙扎。
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129003401_bc21_large.jpg" alt="">
+<figcaption>Cindy想到一場災難……</figcaption>
+</figure>
+
+### 陪伴、給食物、急救、情緒支援
+
+社工Cindy在11月17日下午走入理大後，沒幾個鐘頭就已經封城了，「自己無擔心，就一定是假的，但外間的擔心，才令我們最掛心。」
+
+**有服務對象得知她被圍困校園後，很想盡一分力走上街頭，像其他人一樣「救理大」，但當目睹油麻地人踩人時，很驚、不知所措、以為差一點就要死，哭著打電話給Cindy問可以怎辦？「當刻我會覺得很難受，你要年輕人擔心番你轉頭，佢要冒風險和受傷，這令我最心痛。」**
+
+可以去邊？留在哪裏安全？要留多久？有很多疑問，其實她也不知道，同樣都會驚、都會擔心，但也要裝作無事陪伴其他比自己更年輕的「寶寶」。在圍城內，社工可以做的就是：陪伴、給食物、急救、情緒支援。
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129003421_12fc_large.jpg" alt="">
+<figcaption>David看見剩下的人……</figcaption>
+</figure>
+
+### 曳仔：多謝你無放棄我
+
+外展社工David走入理大其中一個原因，是因為有自己跟進的學生在校園內，學生「心口有個勇字」，對香港抱有想法，繼而責任感上身，有時候令他很擔心。11月17日下午理大校園有出有入，他記得校內有些小朋友，可能只是第一次走到衝突現場，聞到催淚彈味已經受不了，於是先送他們離開，當他再次回到校園後，就已經封城了，再也無法出去。
+
+他遇到最年幼的，只有9歲。他說「留都留低咗，我行得正企得正真係一個社工，不如做番社工的事」，於是當時連口罩也沒有戴上。社總和其他在外面的同工收到很多求助，他們將個案轉介到圍城內的社工，尋找不同被困者，看看有甚麼需要。「其實唔知道可以做啲乜，大家好似都坐埋同一條船，只是我們用僅餘的冷靜去讓他們冷靜。」
+
+**他記得當中學校長和老師走進校園帶走學生時，有一個在旁人眼中很衝動的「曳仔」，帶點很像遺言的感覺，跟老師說：「多謝你無放棄我。」其實很難得，平時在學校好像很曳的學生，在這個時候，才看見真正的他。**
+
+又有一個年輕人決定跟校長走，但知道David未走，就說「我等你消息，要無事」。即使年輕人離開了校園，間中仍會傳訊息關心David的情況。
+
+「我覺得好窩心。」
+
+「其實很簡單的，他們打完回來、很頹回來，你畀個擁抱他們；他們跟同伴走失了，不知所措，你陪伴佢。一個擁抱，一個陪伴，其實就已經很足夠。」
+
+慌亂之中，不忘最基本的人情和關愛。
+
+<figure>
+<img src="https://web.archive.org/web/20221209162822im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/理大圍城-20201129120942_14da_large.jpg" alt="">
+<figcaption>一齊走。美聯社</figcaption>
+</figure>
+
+*註：上述社工使用了化名，但內容卻是真實。*

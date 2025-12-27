@@ -1,0 +1,95 @@
+---
+title: "【南韓直擊】南韓90後大學生：光州人民教我抗爭精神"
+date: "2019-04-22"
+last_updated: "2019-04-28 14:09:03"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "韓國"
+  - "大韓民國"
+  - "南韓"
+  - "大學生"
+  - "光州事件"
+url: "https://web.archive.org/web/20210923182658/https://www.hkcnews.com/article/19970/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20158/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19970/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20158/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【南韓直擊】南韓90後大學生：光州人民教我抗爭精神
+
+南韓人幾經艱辛抗爭，終脫離軍事獨裁政府的桎梏。生來便享受到民主自由的新一代，對於前人的民主抗爭抱持什麼態度？記者上月到首爾誠信女子大學，與數十名就讀不同學科的學生交流，其中兩名學生在活動後接受記者訪問，分享南韓時下年輕人對於39年前光州民主運動的想法。
+
+相關文章：
+
+[【南韓直擊】「逆權攝記」39年前冒死記錄光州抗爭　 相片納入聯合國《世界記憶名錄》](https://web.archive.org/web/20210923182658/https://www.hkcnews.com/article/19852/%E5%85%89%E5%B7%9E%E4%BA%8B%E4%BB%B6-%E6%B0%91%E4%B8%BB%E9%81%8B%E5%8B%95-%E9%9F%93%E5%9C%8B-19852/%E3%80%90%E5%8D%97%E9%9F%93%E7%9B%B4%E6%93%8A%E3%80%91%E3%80%8C%E9%80%86%E6%AC%8A%E6%94%9D%E8%A8%98%E3%80%8D39%E5%B9%B4%E5%89%8D%E5%86%92%E6%AD%BB%E8%A8%98%E9%8C%84%E5%85%89%E5%B7%9E%E6%8A%97%E7%88%AD-%E7%9B%B8%E7%89%87%E7%B4%8D%E5%85%A5%E8%81%AF%E5%90%88%E5%9C%8B%E3%80%8A%E4%B8%96%E7%95%8C%E8%A8%98%E6%86%B6%E5%90%8D%E9%8C%84%E3%80%8B)
+
+[【南韓直擊】光州抗爭大學生被虐打險死　創傷逾廿年　分享經歷釋懷](https://web.archive.org/web/20210923182658/https://www.hkcnews.com/article/19871/%E5%85%89%E5%B7%9E%E4%BA%8B%E4%BB%B6-%E6%B0%91%E4%B8%BB%E9%81%8B%E5%8B%95-%E9%9F%93%E5%9C%8B-19871/%E3%80%90%E5%8D%97%E9%9F%93%E7%9B%B4%E6%93%8A%E3%80%91%E5%85%89%E5%B7%9E%E6%8A%97%E7%88%AD%E5%A4%A7%E5%AD%B8%E7%94%9F%E8%A2%AB%E8%99%90%E6%89%93%E9%9A%AA%E6%AD%BB-%E5%89%B5%E5%82%B7%E9%80%BE%E5%BB%BF%E5%B9%B4-%E5%88%86%E4%BA%AB%E7%B6%93%E6%AD%B7%E9%87%8B%E6%87%B7)
+
+[【南韓直擊】光州今昔對比　紀念館展民眾笑臉　鐘塔每天響抗爭之歌](https://web.archive.org/web/20210923182658/https://www.hkcnews.com/article/19954/%E5%85%89%E5%B7%9E-%E9%9F%93%E5%9C%8B-5%C2%B718%E6%B0%91%E4%B8%BB%E5%92%8C%E5%B9%B3%E7%B4%80%E5%BF%B5%E9%A4%A8-20006/%E3%80%90%E5%8D%97%E9%9F%93%E7%9B%B4%E6%93%8A%E3%80%91%E5%85%89%E5%B7%9E%E4%BB%8A%E6%98%94%E5%B0%8D%E6%AF%94-%E7%B4%80%E5%BF%B5%E9%A4%A8%E5%B1%95%E6%B0%91%E7%9C%BE%E7%AC%91%E8%87%89-%E9%90%98%E5%A1%94%E6%AF%8F%E5%A4%A9%E9%9F%BF%E6%8A%97%E7%88%AD%E4%B9%8B%E6%AD%8C)
+
+<figure>
+<img src="https://web.archive.org/web/20210923182658im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-學生-20190418223805_5fc1_large.png" alt="">
+<figcaption>誠信女子大學兩名學生分享對光州民主化運動的理解及想法。左：朴美貞；右：康倫華。吳婉英攝</figcaption>
+</figure>
+
+中文系學生朴美貞，與修讀心理及地理的康倫華，都是「90後」。她們出生之時，光州抗爭已得到平反；她們成長期間，正好見證昔日獨裁政府的暴力統治被清算，國家走上轉型正義的路上。從小認識光州民主運動的朴美貞與康倫華都說，前人的抗爭於她們意義重大。
+
+### **「5.18對韓國人來說是一份勇氣」**
+
+朴美貞對於光州運動的認識和判斷，主要來自家人。她說：「光州運動發生的時候，（時任）總統全斗煥和政府控制言論，所以大部分的人都不相信（光州人民自發爭取民主），他們覺得是共產主義者（煽惑）。但我媽那時候在光州有親戚，她知道光州發生了什麼事、他們為什麼示威。那時候，我的爺爺在政府工作，所以他也聽了這些消息。我爸確定這事不是朝鮮軍介入的，因為如果是朝鮮軍隊介入的話，全斗煥政府不會控制言論發表。」她續指，在她成長的90年代，政府「開始弄清歷史」，包括調查光州5.18抗爭及 [濟州4.3事件](https://web.archive.org/web/20210923182658/https://zh.wikipedia.org/wiki/%E6%BF%9F%E5%B7%9E%E5%9B%9B%C2%B7%E4%B8%89%E4%BA%8B%E4%BB%B6) ，她見證著這些運動的真相逐一揭開，「所以我是相信那時候光州的人原意是（推動）光州的民主化，而不是共產化。」
+
+被問到光州運動於她們這一代人的意義，朴美貞以近年的事件作解釋，由世越號沉船事故到親信干政醜聞，時任總統朴槿惠被揭發有問題時，南韓人民都舉行燭光集會，向當權者抗議。
+
+> **有什麼事情發生的時候，韓國人民很積極對待這些事情，我覺得因為韓國人民都體驗過（抗爭的）成果。譬如朴正熙、全斗煥軍事獨裁，他們不是經民主選舉上台的，可是韓國人民一直示威，會發表人民需要的是什麼，要求他們下台，所以韓國人民就是有社會變化的經驗。我們年輕人要求政府什麼事情的時候，我們有勇氣。我覺得5.18這樣的事情，對韓國人民來說是一份勇氣。**
+
+<figure>
+<img src="https://web.archive.org/web/20210923182658im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/世越號-20190416230628_140a_large.jpg" alt="">
+<figcaption>世越號沉船事故後，南韓人民發起燭光集會，悼念罹難者，並向政府追究責任。美聯社圖片</figcaption>
+</figure>
+
+### **「5.18教懂我們媒體自由的重要性」**
+
+康倫華則從學校的歷史課中認識到光州運動。「值得慶幸的是，我們這一代人可以了解真相 — 事實上，這是一場反軍事獨裁的正義運動……當我們說『5.18民主運動』，我們只稱之為『5.18』，因為那是個標誌性的事件，沒有其他的5月18日可以取代它。」
+
+她補充指，基本上每個人都知道5.18，有很多電視節目都會提醒南韓人有這場運動，亦經常有人將事件相關的資料上載於網絡。「我認為，這些都使『反抗』成為我們這代人最大的精神。」
+
+康倫華坦言，她是國內類似運動、 [濟州4.3事件](https://web.archive.org/web/20210923182658/https://zh.wikipedia.org/wiki/%E6%BF%9F%E5%B7%9E%E5%9B%9B%C2%B7%E4%B8%89%E4%BA%8B%E4%BB%B6) 受害者的後裔。對於光州5.18抗爭，她特別關注倖存者親屬承受的痛苦。康倫華視光州運動為事實（reality），多於一件歷史事件（historical event），「這只是30多年前的事件，參與者的家人、朋友仍在生，甚至我這一代仍有部分人直接受到影響，因為參與者是他們的父母或兄長。我們不是『記住』他們，因為我們與他們一起生活著。」
+
+> **光州的人民很勇敢，我們必須記住這場運動。我認為，政府過往試圖隱瞞及扭曲5.18的真相，令它變得更特別。它教懂我們媒體自由的重要性，以及它在揭露真相的努力。與此同時，我們不應該總是相信政府和媒體。**
+
+<figure>
+<img src="https://web.archive.org/web/20210923182658im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州-光州屠城-20190418180258_170a_large.jpg" alt="">
+<figcaption>民間估計光州5.18民主運動造成的死亡數字以千計。攝影師羅庚沢提供</figcaption>
+</figure>
+
+### **「假資訊考驗人民的批判」**
+
+朴美貞提到，雖然大部分的南韓學生都會從歷史課學到光州運動，但近代史課程太簡略，很多年輕人或對光州運動存在誤解，與此同時，保守派在網上發布流言蜚語，例如過往有一個叫 「일베」的保守網站，指光州運動時有朝鮮軍隊介入，現時亦有假新聞的問題，不排除對歷史認識不深入的青少年會有誤解。
+
+此外，朴美貞留意到，主流媒體對光州民主運動的取態亦不盡正面。「韓國有三大新聞社，它們都是保守的，在韓國被日本殖民的時候已存在，它們跟每一代政府的關係都好，特別是獨裁政府。」她解釋， 國內幾間大企業都與全斗煥及保守政黨人士有關係，這些公司是主流媒體的廣告客戶，影響著媒體的運作。
+
+「5.18民主運動不是單純的歷史事件，5.18正式名字是『5.18光州民主運動』。但是，很多新聞媒體都用『光州事態』，『事態』這個單詞附帶的情感不是很好的；媒體說在其他地方發生的（民主抗爭）運動時，都用『抗爭』、『革命』之類的單詞，『抗爭』、『革命』並沒有負面意思。媒體說光州的tone與其他地方的民主運動不一樣。」儘管南韓人享受著言論、資訊自由，光州運動等歷史事件仍考驗人民的批判。
+
+### **「不樂觀但希望找出真相」**
+
+現任總統文在寅前年承諾重新調查光州事件，然而，軍隊內的主要涉事人物，過去破壞了大批文書證據。光州血腥鎮壓矛頭直指全斗煥，但他至今仍然拒絕承認責任，近年更被指誹謗光州運動的受害者，正面臨審訊。被問到是否相信光州運動的真相被查清，朴美貞回應指，她想相信調查有用，但是她感到悲觀。
+
+「全斗煥下台的時候，曾經在監獄待了兩年之後就出來（獲得特赦），他一直活得很輕鬆。南韓沒有人不知道全斗煥有5.18運動的責任，但是全斗煥在保守政黨還有影響力，而且保守政黨還是執掌軍隊，所以這個調查不可能清查，我不相信有責任的犯罪者們會受到制裁。」朴美貞補充指，一些知名南韓巨企都是在軍事獨裁下成長的公司，至今仍未能與全斗煥和保守政黨的幾位人士撇清關係，「所以全斗煥是很有影響力的。」
+
+「我會說，我期望查出真相。」康倫華坦言，她對調查亦頗感悲觀，因為前總統全斗煥、李明博、朴槿惠及相關人等，他們不喜歡5.18等民主運動，而他們現在仍有權、有財，在政府及其他機構有要職。
+
+<figure>
+<img src="https://web.archive.org/web/20210923182658im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-全斗煥-盧泰愚-20190415144548_243a_large.jpg" alt="">
+<figcaption>前總統全斗煥（右）及其繼承者盧泰愚（左）1995年被拘捕；1996年面對審訊，二人分別被判處死刑及22年半徒刑；1997年底，二人獲得特赦。美聯社圖片</figcaption>
+</figure>
+
+就讀中文系的朴美貞過去曾在中國山東及珠海留學，關心中、港、澳、台的時政發展，知道中國的六四事件及香港的雨傘運動。她認為，六四天安門鎮壓與光州5.18抗爭很相似。
+
+> **光州這事情，差不多10年多都不讓說出（真相）。六四在百度上不能查，所以大部分（知道六四）的韓國人對中國共產黨的感情不太好。六四的過程中，很多有知識的、學生們都犧牲了……我們都知道香港發生的雨傘示威，知道有主導雨傘示威的學生也進入了監獄，所以我們韓國人都希望，在香港、澳門、台灣、中國大陸，也會有弄清歷史的機會。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923182658/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,43 @@
+---
+title: "單車節復辦大會籲避免政治元素 「香港加油」可否用？　旅發局：「我諗你地明嘅」"
+date: "2021-11-17"
+last_updated: "2021-11-17 21:24:14"
+author: "記者伍銘熙"
+category: "眾聞"
+tags:
+  - "旅遊發展局"
+  - "旅發局"
+  - "香港旅遊局"
+  - "香港加油"
+  - "單車節"
+url: "https://web.archive.org/web/20220701072225/https://www.hkcnews.com/article/47797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47837/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47837/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 單車節復辦大會籲避免政治元素 「香港加油」可否用？　旅發局：「我諗你地明嘅」
+
+香港單車節自2019年起停辦至今，香港旅遊發展局今日（17日）宣布，活動將於明年1月16日復辦，本周六（20 日）起接受登記，人數上限為3,000人。旅發局指，若有參賽者穿著不適當的衣服，或於單車上展示不適當的標語，會先作出勸喻，若參賽者不合作將交執法部門處理。惟被問到如何界定不適當，「香港加油」是否又算不算時，旅發局只答了一句「我相信你明嘅」就轉身離開。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/香港加油-單車節-20211117154728_130e_large.png" alt="">
+</figure>
+
+歷屆單車節路線均由尖沙咀起步，今屆將移師到港珠澳大橋香港段舉行，旅發局總幹事程鼎一表示，期望為旅發局未來在大灣區內舉辦更具規模的跨城市盛事鋪路，亦希望下屆單車節可吸引來自大灣區其他城市的旅客參與。考慮到防疫和交通安排，今次只供本地居民參加，並需曾參加單車節並完成賽事，人數上限為3,000人。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/單車-20211117154530_28d3_large.jpg" alt="">
+<figcaption>歷屆單車節路線均由尖沙咀起步，今屆將移師到港珠澳大橋香港段舉行。伍銘熙攝</figcaption>
+</figure>
+
+上月舉辦的渣打馬拉松，有選手穿著寫有「香港」「加油」雙體書法字樣的衫或褲，被要求換掉衣服才准許出賽。被問到穿著這類服飾可否參加比賽時，旅發局節目及旅遊產品拓展總經理洪忠興指，希望參賽者能盡量避免加入政治元素，呼籲車手合作。他續指，若有參賽者於單車節穿著不適當的衣服，或於單車上展示不適當的標語，會先作出勸喻，要求更換有關服飾或除下單車上的標語。若參賽者不合作，將交執法部門處理，但未有回應會否取消資格。被問到如何界定不適當的衣服和標語，「香港加油」又是否屬不適當，洪忠興只回應一句「我相信你明嘅」，隨即記者會答問環節完結。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/單車-20211117154514_1838_large.jpg" alt="">
+<figcaption>被問到「香港加油」是否屬不適當，旅發局節目及旅遊產品拓展總經理洪忠興（右）只回應「我相信你明嘅」。伍銘熙攝</figcaption>
+</figure>
+
+旅發局指，活動已獲豁免限聚令，亦將設有不同防疫限制。參賽者需於活動前14日完成接種疫苗，並在活動前48小時內接受核酸檢測。參賽者需使用「安心出行」進場，需全程戴上活動手帶，活動前後亦需佩戴口罩。被問到會否擔心疫情反覆而臨時取消活動，旅發局指要視乎政府安排。
+
+首屆單車節於2015年舉行，2019年先因反修例運動取消，到去年再因疫情取消，今年原訂於11月舉行，鑑於疫情發展不明朗而再次取消。上一次成功舉辦，已要追溯至2018年10月14日。
+
+另外，停辦了兩年的維港泳，今年亦將復辦，定於12月12日舉行，今日至11月22日接受網上報名，名額1,500個。活動同樣是全新路線，3年前由尖沙咀公眾碼頭游到灣仔金紫荊廣場公眾碼頭，而今年就改由港島游到九龍。活動對接種疫苗與檢測的要求與單車節相同，泳手亦須遞交電子健康申報表，確認賽事前21日（即11月20日或之後）未有離港。

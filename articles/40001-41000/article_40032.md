@@ -1,0 +1,61 @@
+---
+title: "大力鞭撻中國共產黨的書　胡適：容忍比自由更重要"
+date: "2021-04-06"
+last_updated: "2021-04-07 17:16:00"
+author: "讀材者"
+category: "眾說"
+tags:
+  - "胡適"
+url: "https://web.archive.org/web/20210916180737/https://www.hkcnews.com/article/40032/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40068/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40032/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40068/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 大力鞭撻中國共產黨的書　胡適：容忍比自由更重要
+
+**書名︰ [容忍比自由更重要](https://web.archive.org/web/20210916180737/https://baike.baidu.com/item/容忍比自由更重要)**   
+ **作者︰胡適**   
+ **出版︰九州出版社（北京）**   
+ **版次︰2013年**   
+ **ISBN︰9787510816475**
+
+<figure>
+<img src="https://web.archive.org/web/20210916180737im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/胡適-容忍比自由更重要-20210406153739_65dc_large.png" alt="">
+</figure>
+
+適逢今年中國共產黨建黨百周年，趕上齊來學黨史的大調子，當然要翻一翻孕育中共的新文化運動時期著作。
+
+翻查歷史，胡適（1891-1962）與中共首任總書記陳獨秀（1879-1942）其實私交甚篤，曾經在陳氏被國民政府拘捕後接任其創辦的《每周評論》雜誌編輯一職。胡、陳二人同為新文化運動的主要推手，當中胡氏推崇美國哲學家約翰杜威（John Dewey, 1859-1952）的實用主義，重視民主實踐和科學方法論，與陳氏引進的馬克思主義分庭抗禮，後來胡氏隨國民政府遷台，曾任駐美大使和中央研究院院長，已是此書涵蓋1930至1950年代時評之後的事。   
+   
+ 新文化運動的新思潮包括引入西方思想、白話文運動等主張，這些都在書中不少評論和演講觸及。相較於其他新文化運動的中堅份子，胡適更在意西方思想與中國傳統文化的融和。譬如認為平等思想早見於孔子「有教無類」的看法、老子的「無為而治」正好規範了政府管治方式的理型等等。只是傳統東方文明尊天畏神，欠缺西方求知冒險的精神和爭取政治自由的動力，自足於現成的環境與命運，各安天命只圖安分守己做個順民。於是胡適眼中的新文化運動的根本意義，就是承認中國舊文化不適宜於現代的環境，提倡充分接受現代世界的新文明，特別是歐洲思想學術、文學美術與風俗道德的新文明。   
+   
+ 此書書名一直是胡適其中一句廣為後世所知的說話，然而此話並非胡氏原創，是引用受教於美國康乃爾大學的史學家喬治伯爾（George Lincoln Burr, 1857-1938）一次閒聊語重心長的總結。伯爾專研古代及中世紀歷史，對於皇朝、種族和宗派更迭所致的衝突感受尤深，亦頗影響胡氏對自由主義的看法，不但認為容忍比自由更重要，而且認為容忍是自由的根本。
+
+講容忍之前，胡適到底是怎樣理解自由？
+
+**胡適歸納自由主義的第一個意義是自由，第二是民主，第三是容忍，最後是和平漸進的改革。自由民主簡而言之就是民治，寫在帝制結束民國開始之初，胡適已經指出「民治主義的根本觀念是承認普通民眾的常識是根本可信任的」，因此以人民程度或水平不夠為由延續政治精英壟斷並不合理，倒是讓人民得到參政的經驗，學懂政府官吏的一切行為都不得踰越明文憲法與法律規定的權限，在制約自己的權力避免社會衝突之餘促進社會整體利益。**
+
+在這個基礎之下，持守自由價值就不得不容忍。古時國君對諫奏的容忍一向被認為是一種最高的美德，儘管如此，容忍卻不是與生俱來的德性。人類物以類聚，習慣喜同惡異，自然不喜歡與自己不同的信仰、思想和行為的人。不容忍源於不肯承認自己的見解會有錯誤，不承認持反對意見的人會有值得考慮的理由，故此民主政治最寶貴的就是政府能在制度上承認反對黨的存在。
+
+胡適警告倘若國家濫用權力，摧殘一切能糾正或監督政府的勢力趕絕反對黨之後，國家就會變成「變態的社會」——政治會日趨腐敗，國民亦沒有民選的機關制衡。生活在這樣的國家的人民自由發展受限，個人的個性被迫屈服在國家的統一意志之下，非但會失去有力量的諍臣義士，還會喪失青年人心悅誠服的愛戴，甚至催生反極權的學生運動。
+
+如此也說明了胡適與陳獨秀的分別︰胡適曾經批評馬克斯主義依賴階級鬥爭的方法造成一種不容忍、反自由的政治制度，認為這種制度必須依靠暴力來強力維持，最終走上殘忍壓迫與消滅異見的獨裁專制道路。今時今日，當下是否胡適所說「求統一反致分裂」的時候尚未可知，只知道一個世紀之前已有人洞察中國共產黨獨裁專制、內部鬥爭無日無之的本質。
+
+如此大力鞭撻中國共產黨的書，還能成為公共圖書館館藏，眼見全民國家安全教育日在即，這本書是否要永久下架了？
+
+**本文原刊作者Facebook**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916180737/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀材者](https://web.archive.org/web/20210916180737im_/https://www.hkcnews.com/uploads/avatars/794f4a1f-2624-4d04-ac71-22148295e421.png?551028815)
+
+**博客 | 讀材者**
+
+【讀材者・9樓C室】蝸居斗室，隨讀隨想。

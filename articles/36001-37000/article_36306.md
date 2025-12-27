@@ -1,0 +1,57 @@
+---
+title: "【繼續服刑】 高院拒周庭保釋申請　周庭：失望、遺憾　身體欠佳尚未適應獄中生活"
+date: "2020-12-09"
+last_updated: "2020-12-09 16:15:17"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "周庭"
+  - "621包圍警總"
+url: "https://web.archive.org/web/20210729161651/https://www.hkcnews.com/article/36306/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-621%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/36306/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-621%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 【繼續服刑】 高院拒周庭保釋申請　周庭：失望、遺憾　身體欠佳尚未適應獄中生活
+
+前香港眾志秘書長黃之鋒、主席林朗彥和成員周庭，因去年 6.21 包圍警總案，被控煽惑、組織及參與未經批准集結等三罪，三人早前認罪，分別判囚 7 個月、10個月及13.5 個月，當中判囚 10 個月的周庭今日向高等法院申請保釋等候上訴，高等法院法官張慧玲聽取雙方陳詞後，拒絕周庭保釋，並稍後頒發判詞解釋理據，周庭須繼續還柙。
+
+周庭透過代表律師表示，她對裁決感到失望及遺憾，由於尚未適應到獄中生活，現時身體狀況欠佳，又呼籲牆外港人繼續關注在囚人士。
+
+<figure>
+<img src="https://web.archive.org/web/20210729161651im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/周庭-626包圍警總-20201123181414_192c_large.jpg" alt="">
+<figcaption>周庭申請保釋被拒，對裁決感到失望及遺憾。    周滿鏗攝</figcaption>
+</figure>
+
+法官張慧玲表示，聽取雙方陳詞後，認為上訴沒有合理或極高的成功機會，亦不認為服刑等候上訴會造成不公允，因此拒絕周庭的保釋申請，並將擇日頒布書面裁決理由。
+
+周庭聽判後反應平靜，但雙手合十，眼神哀傷，有庭內的支持者向她高呼「撐住啊！」、「我哋一定會等你出嚟！」等打氣說話，周庭繼而離開犯人欄步入囚室時，公眾席上的市民亦向她揮手。
+
+周庭早前向裁判官申請保釋等候上訴被拒，她其後向高院申請保釋候上訴，並由資深大律師駱應淦及大律師譚俊傑代表。周庭今早由囚車押解到高等法院，她束起頭髮及佩戴眼鏡，坐在犯人欄內，今日比上次判刑時顯得較為精神，亦不時望向公眾席，與庭內支持者有眼神交流。
+
+在庭上，律政司代表指出，在法例上未經批准集結與非法集結原意一致，亦無講明未經批准集結，一定要涉及暴力或破壞社會安寧。他形容，本案是最嚴重的未經批准集結案，引伸出有堵路和投擲雞蛋等行為，認為要有偏向阻嚇性的刑罰。代表周庭的一方說，周庭並非承認積極參與，只是承認有參與，法官張慧玲則認為，從客觀來說、根據申請人承認的事實，「點可能她不是積極參與」。
+
+庭上播放多條片段，包括周庭與前香港眾志秘書長黃之鋒、主席林朗彥步行往警察總部，及他們與大批示威者在警察總部地下外圍的情況。
+
+<figure>
+<img src="https://web.archive.org/web/20210729161651im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/周庭-621包圍警總-20201209145200_12e9_large.jpg" alt="">
+<figcaption>多名軍裝警員於高院囚車出入口位置戒備。   Eyepress圖片</figcaption>
+</figure>
+
+周庭向高院申請保釋被拒之後，需返回監獄服刑。散庭後，多名軍裝警員於高院囚車出入口位置戒備，有警員背有各色警告旗幟，包括警告違反港區國安法的紫色旗。警方又於現場不停播放有關限聚令廣播，要求在場人士不要進行多於兩人的聚集，警方又要求在場採訪的記者佩戴記者證。有部分支持者在法院外等待囚車，但車閘外設有鐵馬並有警員駐守，阻止市民接近囚車。
+
+周庭自上月23日還柙至今已17天，在獄中渡過24歲生日的她，早前承認於去年6月21日在金鐘夏愨道非法煽惑在場人士參與未經批准集結，以及同日在警總外參與未經批准集結。
+
+案件編號：HCMP374/2020
+
+<figure>
+<img src="https://web.archive.org/web/20210729161651im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/626包圍警總-周庭-黃之鋒-20201123181547_23a5_large.jpg" alt="">
+<figcaption>前香港眾志秘書長黃之鋒、主席林朗彥和成員周庭，因去年 6.21 包圍警總案，被控煽惑、組織及參與未經批准集結等三罪，三人早前認罪，分別判囚 7 個月、10個月及13.5 個月。   周滿鏗攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729161651/https://www.hkcnews.com/aboutus/#subscribe)

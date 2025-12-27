@@ -1,0 +1,89 @@
+---
+title: "網媒女記者拒捕罪原判緩刑　官認出錯下月再判：我必須覆核自己"
+date: "2021-06-16"
+last_updated: "2021-06-16 22:09:14"
+author: "實習記者丁心怡"
+category: "眾聞"
+tags:
+  - "網媒記者"
+url: "https://web.archive.org/web/20210726123759/https://www.hkcnews.com/article/42430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 網媒女記者拒捕罪原判緩刑　官認出錯下月再判：我必須覆核自己
+
+網媒《娛賓》女記者去年5月採訪期間，在旺角公廁內懷疑遭4名警員以膝頭跪頸、近距離噴胡椒噴劑及腳踢背部，記者事後被控拒捕罪，案件周三（16日）於九龍城裁判法院裁決。主任裁判官嚴舜儀早上裁定她罪名成立判處緩刑，但數小時後稱發現「判刑出錯」，押後至下月17日判刑。被告何家欣在庭外表示，仍在考慮是否上訴，又指案件對她影響深遠，「我現在每次經過旺角洗衣街公廁，都會打冷震，每日經歷著，每日都問為何是我？」
+
+<figure>
+<img src="https://web.archive.org/web/20210726123759im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/網媒記者-20210616164939_7d85_large.jpg" alt="">
+<figcaption>被告何家欣。丁心怡攝</figcaption>
+</figure>
+
+27歲女被告何家欣，去年5月於洗衣街花園公廁內，懷疑被警員以膝頭跪頸及噴胡椒噴霧，何被控拒捕罪，案件今日（16日）在九龍城裁判法院裁決，主任裁判官嚴舜儀裁定一項「抗拒正當執行職務的警務人員罪」罪成，判監4星期，緩刑2年。不過，散庭後數小時，嚴官發現有關控罪不能判處緩刑，因此再開庭，並且致歉，承認判決出錯，案件下月17日再判刑，期間被告獲准繼續保釋。
+
+案件審訊期間透露，被告去年在洗衣街公廁採訪期間，女警誤以為她在女廁偷拍，意圖不軌，上前調查。被告逃跑，並大叫「死黑警喺廁所拉人啊！」女警稱曾多番警告被告不要逃走，被告拒應女警要求停下並撥開女警。
+
+### 被告抗拒女警罪成
+
+嚴官裁決時表示，女被告行為嚴重，以4星期為量刑基礎，沒有減刑空間，又指被告的行為阻擾女警員執行職務，被告當時只需出示記者證便完事，但卻大叫「黑警喺廁所拉人」，引起廁所外公眾起哄，警員亦要增援。嚴官稱當時的社會情況下，起哄有一定的潛在風險，又指被告拒聽從女警指示停下，撥開女警的手及推女警，裁定被告抗警罪成。
+
+嚴官認為被告罪成的行為不屬於頑強抵抗，警長誤判形勢，不應施放胡椒噴霧。嚴官稱不排除被告當時在地上連串行為是出於自我保護，不穩定情緒下的自我傷害。
+
+### 接納女警證供  不出示記者證不能證明記者身分
+
+嚴官接納女警的供詞，指女警看到被告在女廁門口拍攝，因此上前查詢。被告當時紮半馬尾，戴上口罩並穿反光衣，女警不清楚被告在採訪拍攝。嚴官接納女警誤以為被告是男性的說法，有合理懷疑被告偷拍厠格。
+
+嚴官又指女警是正當地執行職務，身穿制服，被告理應知道其身分。女警執行職務的態度合理，有給予被告口頭警告，極少肢體接觸。被告當時身穿反光背心，但她沒有展示記者證，證件放在記者背心的透明口袋裡，且被告的相機遮擋了口袋，嚴官指不出示記者證根本不能證明記者身分。
+
+而事發前在場的被捕女子以辯方證人身分出庭，嚴官認為她的證供不可信，因為她案發時曾哭泣並驚慌失措，現場場面混亂，導致記憶模糊，亦不排除辯方證人得悉被告是記者，且聽到被告叫救命，產生同情心，從而扭曲記憶及隱瞞事實，因此不接納其供詞。
+
+### 案發後被告受情緒困擾：經過案發廁所打冷震
+
+嚴官透露，被告送院後有發燒、頭痛、氣促，前額及左拇指有紅斑。入院後頭痛發燒消失，被診斷為急性壓力反應，與警員的證供所描述被告的反應一致。
+
+辯方求情時指，被告在2016年被診斷為躁鬱症二期，有家族病史，深受精神情緒問題困擾，同年開始接受藥物治療，情緒一直不穩定，2018年後停止治療，今年2月在社工陪同下再次接受治療。被告因被捕後有心理創傷，不時萌生自殺念頭，至今不斷回憶案發被捕的經過，每逢途經事發女廁時會感到焦慮。辯方律師希望法庭考慮被告的精神問題，及雙方沒有嚴重身體接觸，予以輕判。而嚴官今早裁決時表示，女被告的個人行為是嚴重，需以4星期為量刑基礎，沒有減刑空間，最終判被告刑期4個星期，緩刑24個月。
+
+被告何家欣判刑後聯同葵青區議員易承聰與荃灣區議員林錫添一起見記者，她指仍考慮是否上訴，何家欣坦言，是案對其帶來深遠影響，「我現在每次經過旺角洗衣街公廁，都會打冷震，每日經歷著。對於我來講係每日發生一樣 ，每日都問點解係我？我仲係咪適合當記者？」民主黨荃灣區議員易承聰表示判決結果感到失望，認為被告只是進行採訪工作，並非故意抗拒警員執行職務。他透露何期望法庭可判處社會服務令，可以盡快讓生活回復平靜。
+
+### 裁判官出錯須再覆核：「我必須覆核自己」
+
+判決後逾一小時，嚴官又再開庭，自認出錯，再次進行覆核聆訊，嚴官在庭內致歉，表示查詢條文後，發現拒捕罪不可以以緩刑方式處理。嚴官決定索取被告社會服務令和背景報告，被告能繼續保釋，案件押後7月17再判刑。嚴官坦言緩刑和真的監禁有誤差，判決時會考慮這因素。嚴官表示：「我必須覆核自己。」
+
+<figure>
+<img src="https://web.archive.org/web/20210726123759im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/法官-20210616180201_28ae_large.jpg" alt="">
+<figcaption>裁判官嚴舜儀曾處理多宗反修例示威案件。</figcaption>
+</figure>
+
+裁判官嚴舜儀1966年在香港出生，1988年於英國利茲大學取得法學士學位，一年後通過英國Holborn法律學院大律師公會期終試，並在英格蘭及威爾斯（林肯律師學院）及香港獲大律師資格。1990年在澳洲首都領地最高法院獲大律師及事務律師資格，1994年再於澳洲新南威爾斯大學取得法學碩士學位。1995年在澳洲新南威爾斯最高法院獲大律師及事務律師資格。其自1990年起開始私人執業，直至在2002年獲委任為常任裁判官，去年更獲委任為主任裁判官。
+
+裁判官嚴舜儀曾處理多宗反修例示威案件，如九龍遊行新巴司機案，裁定司機兩項不小心駕駛罪罪成。去年6月4日晚朗豪坊案件中有警員稱受襲，嚴官曾在庭上斥責有關行為，質問涉案被告「有無考慮過自己行為傷到好多人嘅心？」
+
+<figure>
+<img src="https://web.archive.org/web/20210726123759im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/大律師-20210616192406_124e_large.jpg" alt="">
+<figcaption>大律師陸偉雄表示，裁判官主動覆核情況不罕見，「法官都是人黎㗎，人都會犯錯。」 圖源：ALBERT LUK'S CHAMBERS</figcaption>
+</figure>
+
+眾新聞就此案件向大律師陸偉雄查詢，他表示是次案件中「抗拒正當執行職務的警務人員罪」不可被緩刑，因為其屬 [《侵害人身罪條例》第36條](https://web.archive.org/web/20210726123759/https://www.elegislation.gov.hk/hk/cap212!zh-Hant-HK) 意圖犯罪而襲等，違反該條例可被視為例外罪行， [例外罪行](https://web.archive.org/web/20210726123759/https://www.elegislation.gov.hk/hk/cap221!zh-Hant-HK?xpid=ID_1438402852270_002) 在法律上不設緩刑。
+
+至於裁判官主動覆核方面，陸大律師指 [裁判官條例第104條](https://web.archive.org/web/20210726123759/https://www.elegislation.gov.hk/hk/cap227!zh-Hant-HK) 下容許裁判官主動覆核自己已作出的決定或批准一項覆核申請，更可在覆核時將整件案或其部分重開及重新聆訊。他坦言類似情況偶爾發生「成日有啊！不是很罕有的情況，偶然都會有。在裁判法院坐下來，每一日都有可能發生，不出奇。」他又認為法官在早期時間，發現自己犯錯並糾正屬無可厚非。
+
+<figure>
+<img src="https://web.archive.org/web/20210726123759im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/律師-20210616203053_2f69_large.jpg" alt="">
+<figcaption>港大法律系教授楊艾文對裁判官嚴舜儀表示同情，同意需進行重新覆核。圖源：港大法律學院</figcaption>
+</figure>
+
+港大法律系教授楊艾文與陸大律師持相近意見，並對嚴官表示同情。他同意嚴官需重新覆核，違反《侵害人身罪條例》第36條意圖犯罪而襲等屬例外罪行，不設緩刑，須即時監禁。
+
+另外，他形容例外罪行是「壞法律」並需盡快廢除。法律改革委員會（法改會）曾於2013年發表諮詢文件，並在2014年發表 [報告書](https://web.archive.org/web/20210726123759/https://www.legco.gov.hk/yr14-15/chinese/panels/ajls/papers/ajls20141222cb4-264-7-c.pdf) ，建議廢除《刑事訴訟程序條例》（第221章）附表3所列的例外罪行。法改會認為例外罪行一些嚴重罪行不在列表之上，但一些較輕微罪行卻見於列表，容易令人覺得法律上存在不公平和隨意性。楊艾文亦提及政府曾承諾將會檢視該條例但現時仍未有任何實際決定。
+
+楊艾文提到 [《警隊條例》](https://web.archive.org/web/20210726123759/https://www.elegislation.gov.hk/hk/cap232!en-zh-Hant-HK?pmc=0&m=0&pm=1) 中亦有類似的「對執行職責的警務人員襲擊等或以虛假資料誤導警務人員的罰則」任何人一旦抗拒執行職責的警務人員罪，可被處第2級罰款及監禁6個月，但此刑罰可被緩刑。他稱有人會因此認為「不公平」因為檢察官相對以《警隊條例》起訴，可以選擇以《侵害人身罪條例》起訴。被告一旦被定罪，須即時監禁。他透露不少人希望量刑應完全由法庭判決。
+
+案件編號：KCCC2829/20
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726123759/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,76 @@
+---
+title: "唐英傑司法覆核不設陪審團決定　要求給予理據　律政司反駁：無義務"
+date: "2021-05-10"
+last_updated: "2021-06-15 18:31:10"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "戴啟思"
+  - "鄭若驊"
+  - "唐英傑"
+url: "https://web.archive.org/web/20210726160518/https://www.hkcnews.com/article/41198/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41198/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41198/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41198/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 唐英傑司法覆核不設陪審團決定　要求給予理據　律政司反駁：無義務
+
+國安法首案被告唐英傑，就案件根據《國安法》第46條不設陪審團，早前提請司法覆核，要求撤銷不設陪審團的決定。唐英傑由資深大律師戴啟思代表，他表明，是次司法覆核並非挑戰《國安法》第46條是否合憲，而是質疑律政司司長鄭若驊誤解、誤用《國安法》所賦予她的權力。
+
+雙方陳詞突顯了 [《基本法》](https://web.archive.org/web/20210726160518/https://www.elegislation.gov.hk/hk/A101%21en-zh-Hant-HK.assist.pdf) 與 [《國安法》](https://web.archive.org/web/20210726160518/https://www.gld.gov.hk/egazette/pdf/20202444e/cs220202444136.pdf) 的矛盾，《基本法》第86條表明原有在港實行的陪審團制度的原則予以保留，而《國安法》第46條則賦權律政司司長不設陪審團。戴啟思認為鄭若驊需要給予理據解釋，律政司反駁稱沒有這個義務，更謂決定屬於刑事檢察工作，根據《基本法》第63條不受任何干涉，所以有關決定並不能被司法覆核。
+
+高等法院法官李運騰聽畢雙方陳詞，下星期作裁決。另外，庭上透露，控方（律政司）就唐英傑案擬加控一項危險駕駛罪。據悉，高等法院將於下個月7日處理是否批准律政司申請。
+
+<figure>
+<img src="https://web.archive.org/web/20210726160518im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/唐英傑-20210219170659_1fed_large.jpg" alt="">
+<figcaption>唐英傑自去年7月1日被捕，還柙至今。美聯社（資料圖片）</figcaption>
+</figure>
+
+唐英傑案已排期6月23日開審。律政司司長鄭若驊行使《國安法》第46條賦予她的權力，指示案件不設陪審團，改由3名法官組成審判庭。高等法院周一（10日）開庭聆訊，唐英傑依舊身穿一套深藍色西裝、黑色襯衫，庭內太冷的時候會加穿一件黑色棉外套，看來精神不俗。
+
+唐英傑一方由大律師公會前主席、資深大律師戴啟思代表；律政司則由外聘資深大律師孫靖乾代表。主審法官為李運騰，李官曾於國安法案件批出黎智英的保釋申請，後遭終審法院裁定錯誤詮釋《國安法》條文，黎智英正繼續還柙。
+
+戴啟思首先陳詞，認為鄭若驊沒有給予申請人陳述的機會、沒有提供任何或足夠的理據解釋其決定，違反程序公義；認為鄭若驊錯誤解讀或應用《國安法》第46條，是為不合法；認為鄭若驊的決定未能通過比例測試（proportionality test），是為不合理。因此，申請方認為法庭應撤銷鄭若驊的決定。
+
+### 爭論點（一）：陪審團審訊是否屬基本權利／憲法權利？
+
+戴啟思指，陪審團審訊是香港普通法系統的一部分，《基本法》第86條列明「原在香港實行的陪審制度的原則予以保留」，而這個「原則」就要追溯到近180年前，英國殖民政府在港推行的陪審制度，即被告有權在高等法院原訟庭受審時採用陪審團審訊，這個做法早在《基本法》生效之前已經存在。
+
+他續指，陪審團制度讓社會人士參與裁決，相對於一般人可能認為是嚴峻、壓逼的法律或檢控，能夠起到保護作用。(It is a protection against laws or prosecutions that ordinary men or women may regard as hard and oppressive.)
+
+代表律政司的孫靖乾則指，陪審團審訊有別於其他受《基本法》保障的基本權利（fundamental right）。他舉例說《基本法》第34條寫到「香港居民有進行學術研究、文學藝術創作和其他文化活動的自由」。
+
+<figure>
+<img src="https://web.archive.org/web/20210726160518im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/戴啟思-司法覆核-國安法-20210510233654_738b_large.jpg" alt="">
+<figcaption>代表唐英傑的大律師公會前主席、資深大律師戴啟思。莊曉彤攝</figcaption>
+</figure>
+
+### 爭論點（二）：不設陪審團是否有違《基本法》？
+
+唐英傑一方引用《基本法》第86條，指「原在香港實行的陪審制度的原則予以保留」。律政司一方不同意，孫靖乾形容，引用《國安法》第46條不設陪審團，對於《基本法》第86條所訂明的陪審制度沒有實質改變，並在李官釐清要求下，表示「保留」（maintain）不等於「不變」（no change）。
+
+### 爭論點（三）：律政司是否有責任提供理據？
+
+戴啟思指鄭若驊的決定是剝奪了唐英傑在原訟庭進行陪審團審訊的權利，剝奪權利是應當要給予理據的。他又表示，《國安法》雖然提供了偏離陪審團審訊常規的可能，但仍必須要證明是合理的。戴啟思並指，即使北愛爾蘭設「非陪審團(non-jury)」制度，也需要解釋理據。
+
+鄭若驊按《國安法》第46條發出證明書，指示法庭不設陪審團，建基於（一）為保障陪審員及其家人的人身安全，以及（二）若審訊設陪審團，可能會有妨礙司法公義妥為執行的實際風險。戴啟思指：「風險是甚麼？怎樣評估得出？我們不知道。」
+
+孫靖乾反駁，指律政司沒有義務提供理據。他形容鄭若驊引用《國安法》第46條作出不設陪審團的決定，與提控哪一條控罪、是否接手私人檢控等決定類似，所以同樣沒有義務就每一個決定交代理據。
+
+<figure>
+<img src="https://web.archive.org/web/20210726160518im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/孫靖乾-20210510233611_25cd_large.jpg" alt="">
+<figcaption>資深大律師孫靖乾，曾與資深大律師余若海聯手為立法會主席梁君彥就內會風波提供法律意見。</figcaption>
+</figure>
+
+孫靖乾進一步指，不設陪審團的決定亦都受《基本法》第63條保障：「香港特別行政區律政司主管刑事檢察工作，不受任何干涉。」因此，孫靖乾認為這個決定不應受司法覆核。他指，只有當律政司司長行使超出《基本法》第63條所規定的權力，才可以遭到司法覆核。
+
+他引用郭卓堅、曾健成先後就「浩鼎門」提請司法覆核遭駁回的 [案例](https://web.archive.org/web/20210726160518/https://legalref.judiciary.hk/lrs/common/search/search_result_detail_frame.jsp?DIS=124160&QS=%2B&TP=JU&ILAN=en) ，以支持律政司這類決定不受司法覆核。前特首梁振英因涉嫌收受UGL 5000萬港元，立法會為此成立調查委員會，民建聯議員周浩鼎在會上提交的文件，被揭曾經由特首辦修改（時任特首為梁振英），事件被稱為「浩鼎門」。「長洲覆核王」郭卓堅、社民連成員曾健成先後提請司法覆核，指律政司無徵詢外聘大律師的意見，有違檢控政策，結果申請遭駁回。
+
+李官在庭上多番提醒孫靖乾，唐英傑一方的論點是甚麼，應當集中回應，又不斷釐清孫的論點，釐清後更形容：「這樣可以節省很多時間。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726160518/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,48 @@
+---
+title: "眾新聞告別　感謝讀者"
+date: "2022-01-02"
+author: "公民記者有限公司"
+category: "眾聞"
+tags:
+  - "眾新聞"
+url: "https://web.archive.org/web/20220518022017/https://hkcnews.com/article/49873/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49873/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49873/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49873/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 眾新聞告別　感謝讀者
+
+<figure>
+<img src="https://web.archive.org/web/20220518022017im_/https://hkcnews.com/news_新聞/hk-discuss/2022/01/眾新聞-20220102204848_1a03_large.png" alt="">
+</figure>
+
+今天是2022年1月2日。成立5年的眾新聞，要跟大家告別。
+
+還記得2017年的元旦，眾新聞成立。在記者會上，多名傳媒「老鬼」表示，對本港新聞自由狀況深感憂慮，希望眾新聞可以傳承專業新聞精神，回歸新聞初心，為公眾利益、為公眾服務，「希望我們的一小步，可以鼓勵業界行一小步，各人的一小步可以形成保護新聞自由的一大步。」
+
+然後，眾新聞在資源極度緊絀的情況下，每天嘗試踏出一小步，慢慢地行出一條小路：獨家新聞、數據新聞、人物專訪、調查報道、深度評論、法庭新聞、中國新聞、眾聲集……縱然我們人力有限，新聞不夠多、不夠快，但我們整個小團隊，老鬼和後生仔都一條心，努力在新聞報道上求真、求深。
+
+慢慢地，我們由十人，變成數十人的團隊；由起初街頭人們一句句的「眾新聞？唔識喎」，到今天聽到人們說：「眾新聞？我有睇。」
+
+5年了，多謝大家。
+
+─────────
+
+2017年1月1日，眾新聞發布的首篇文章寫道：
+
+「眾新聞在2017這個特別的元旦誕生，因為，我哋想喺以後嘅日子，不論太陽高掛或是風吹雨打，都陪住你唱番呢句：『同熱愛這片土地，大家刻骨銘記，愁或喜，生與死，也是香港地。』」
+
+我們一直熱愛這片土地，但無奈，當下我們面對的不單是風吹雨打，而是龍捲風吹襲，巨浪滔天。
+
+我們從來沒有忘記初心，但可惜，過去兩年社會的遽變，傳媒生存環境惡化，令我們無法再毫無擔憂地，達成我們的理念。
+
+身在風眼，我們這隻小艇，在風高浪急的當下，情況嚴峻。在危機中，我們必須先確保船上的所有人，可以平平安安。
+
+我們，懷著沉重和萬般不捨的心情宣布：
+
+眾新聞將於2022年1月4日（周二）起，停止營運，網站不再更新，一段時間後將會關閉。
+
+衷心感謝訂戶和讀者的支持，你們的厚愛，我們會銘記於心。
+
+過去5年走過的路，會是我們珍重的回憶。
+
+眾新聞團隊

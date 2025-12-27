@@ -1,0 +1,55 @@
+---
+title: "入境修例通過無限制權力　處長可要求禁運載個別乘客　歐盟只限拒恐怖份子或嚴重罪行者入境"
+date: "2021-04-28"
+last_updated: "2021-04-29 06:00:47"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "入境處"
+  - "入境條例修訂"
+url: "https://web.archive.org/web/20211028122124/https://www.hkcnews.com/article/40750/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40765/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40750/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40765/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 入境修例通過無限制權力　處長可要求禁運載個別乘客　歐盟只限拒恐怖份子或嚴重罪行者入境
+
+立法會周三（28日）三讀通過《2020年入境（修訂）條例草案》，8月1日生效執行。修例後，入境處處長可要求運輸工具禁止運載個別乘客，亦可要求運輸工具提供乘客資料。保安局局長李家超指，政府日後會向立法會提交附屬法例訂明，修訂只適用於前來香港的航機。
+
+美國和歐洲亦有根據國際公約要求航空公司提供乘客資料，其中歐盟指明，除預防、偵查、調查和檢控恐怖主義罪行或嚴重罪行外，當局不得以其他任何理由，將資料用於拒絕入境，並指明任何限制出入境的決定，不得基於一個人的種族、政治立場、宗教等。
+
+<figure>
+<img src="https://web.archive.org/web/20211028122124im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/Hong%20Kong-機場-移民-20190713003705_7668_large.jpg" alt="">
+<figcaption>修例後，保安局局長可賦權入境處處長，指示某運輸工具可或不可運載某乘客。資料圖片</figcaption>
+</figure>
+
+政府去年底向立法會提交草案進行首讀及二讀，指修例旨在改善免遣返聲請的審核程序，並引入措施加強在執法、遣送和羈留方面的工作。草案昨日在立法會恢復二讀，同日進行三讀，最終以39票贊成，陳沛然和鄭松泰2票反對下通過。
+
+就其中有關賦權入境處處長可禁止運輸工具運載個別乘客的修訂，坊間憂慮將限制港人出入境自由。大律師公會早前向立法會提交意見書，質疑修例賦予入境處處長不受約束的權力，限制包括香港居民在內的任何人離港，而條文中並無列明可以在甚麼情況下行使權力。保安局其後發稿回應，指對於建議加入賦權保安局局長可要求運輸工具提供乘客資料的條文，目的是為了履行特區在《國際民用航空公約》下的國際責任，而有關預報系統只要求來港而非離港航機提供乘客資料，不會影響香港居民出入境自由。大律師公會隨後再發聲明指，草案應明確規定局長禁止某人登上運輸工具的權力，只可針對入境航班而非離境航班。
+
+昨日在立法會上，保安局局長李家超指，政府日後會在附屬法例訂明，修訂只適用於前來香港的航機，並會說明預報系統的具體細節及法律要求，包括要求航空公司在航機來港前向入境處提供乘客資料，以及授權入境處可要求前來香港的航機不准運載個別人士前來香港。
+
+政府指，國際民用航空組織2018年更新了《國際民用航空公約》，要求所有成員須推行「預報旅客資料」系統。根據規定，航空公司須在航機起飛前，預先向目的地的入境當局提供乘客資料，而現時已有超過90個國家推行該系統，包括歐盟成員國、美國、加拿大及澳洲等。
+
+國際民用航空組織要求成員推行「預報旅客資料」，主要是基於打擊恐怖主義分子的流動。據國際民航組織 [會議紀錄](https://web.archive.org/web/20211028122124/https://www.icao.int/Meetings/FALP/Documents/FALP10-2018/FALP10.IP7.API%20Implementation-Secretariat.pdf#search=API%202018) 中，該組織就預報旅客資料系統（Advance Passenger Information，API）向成員提供的執行支援文件，API系統包括的資料有乘客護照資料以及航班資料，亦提到各成員的API系統應符合國際認可的標準。該文件未有提及當局拒絕任何人入境的規定。
+
+聯合國人權事務高級專員公署2020年一份專家諮詢會議 [文件](https://web.archive.org/web/20211028122124/https://www.ohchr.org/Documents/Issues/Terrorism/SR/OSCEODIHRExpertMeetingAPI_PNRdata.pdf) ，關於反恐活動中收集資料時面對的人權挑戰，其中提到在應用API時，應該要有嚴格的監督。專員提出適用的人權原則，包括在監察列表上的人，應該是有實際恐怖主義威脅的人，不應具有歧視性，也不應基於種族、宗教信仰、性別等。
+
+**路透社曾 [報道](https://web.archive.org/web/20211028122124/https://www.reuters.com/world/asia-pacific/activists-fear-hk-immigration-bill-will-allow-arbitrary-travel-bans-2021-04-26/) ，美國和歐洲亦一直有根據國際公約要求航空公司提供乘客資料，其中歐盟指明，除預防、偵查、調查和檢控恐怖主義罪行或嚴重罪行外，當局不得以其他任何理由，將資料用於拒絕入境，並指明任何限制出入境的決定，均不得基於一個人的種族或族裔、政治立場、宗教、工會會員資格、健康、性生活或性傾向。**
+
+**不過，港府目前提出的條例修訂當中，並未有列明當局拒絕某些人入境的權力有何規限。**
+
+### 英國國會議員憂修例侵犯尋求庇護者人權
+
+英國國會跨黨派國會香港小組（All-Party Parliamentary Group on Hong Kong）副主席、上議院議員 Lord Alton of Liverpool形容，草案代表著對尋求庇護者的人權的侵犯，亦是直接干涉英國事務，目的是阻礙BNO簽證計劃及其他國際上保護港人的措施，指有關草案驅使英國須即時採取行動，英國必須警告北京和香港，如果實施這條不道德的草案，將進一步違反《中英聯合聲明》和國際人權法，若然發生這種情況，必然會有後果。
+
+對於政府指會於附屬法例列明只針對入境本港的航班，支聯會副主席鄒幸彤認為，只要主體法例賦予政府權力，即當局始終有機會使用，附屬法例限制並不足夠，擔憂日後會否有港人出境後，會因條例而被禁止入境返港。
+
+公民黨亦發聲明指，對草案漠視公眾憂慮，表示極度遺撼，認為若草案目的旨在防範潛在免遣返聲請人抵港，理應列明當局的權力僅限於入境香港航班，避免日後當局可乘機擴權禁止港人離境，有關條文的適用範圍應當清晰列明於主體法例本身，而非附屬法例；亦應於條例的弁言列明條例只適用於入境的免遣返聲請者，並不限制香港居民自由出入境，以釋大眾疑慮。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028122124/https://www.hkcnews.com/aboutus/#subscribe)

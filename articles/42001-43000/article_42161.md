@@ -1,0 +1,9 @@
+---
+title: "Temporarily Offline"
+date: ""
+author: ""
+url: "https://web.archive.org/web/20210712062534/https://www.hkcnews.com/article/42161/%E8%BA%BA%E5%B9%B3-asi%E5%A4%A7%E6%95%B8%E6%93%9A-42161/%E3%80%8C%E8%BA%BA%E5%B9%B3%E9%A2%A8%E3%80%8D%E6%B7%B9%E6%B8%AF-%E5%B9%B4%E8%BC%95%E6%97%8F%E7%86%B1%E7%86%BE%E8%A8%8E%E8%AB%96-%E4%BA%94%E5%A4%A7%E5%B8%96%E6%96%87%E9%80%A3%E7%99%BB%E4%BD%94%E4%B8%89"
+original_url: "https://www.hkcnews.com/article/42161/%E8%BA%BA%E5%B9%B3-asi%E5%A4%A7%E6%95%B8%E6%93%9A-42161/%E3%80%8C%E8%BA%BA%E5%B9%B3%E9%A2%A8%E3%80%8D%E6%B7%B9%E6%B8%AF-%E5%B9%B4%E8%BC%95%E6%97%8F%E7%86%B1%E7%86%BE%E8%A8%8E%E8%AB%96-%E4%BA%94%E5%A4%A7%E5%B8%96%E6%96%87%E9%80%A3%E7%99%BB%E4%BD%94%E4%B8%89"
+---
+
+

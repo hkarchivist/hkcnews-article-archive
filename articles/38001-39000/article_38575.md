@@ -1,0 +1,65 @@
+---
+title: "馬嶽、周保松、楊政賢等逾3000中大人　聯署譴責校方打壓學生會促撤回"
+date: "2021-02-26"
+last_updated: "2021-02-26 15:57:34"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中文大學"
+  - "中大學生"
+url: "https://web.archive.org/web/20210726175817/https://www.hkcnews.com/article/38575/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38580/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3000%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38575/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38580/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3000%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 馬嶽、周保松、楊政賢等逾3000中大人　聯署譴責校方打壓學生會促撤回
+
+**前民陣召集人黎恩灝、楊政賢等，歷屆中大學生會成員發起聯署，強烈讉責中大校方暫停代收學生會會費、暫停學生會在委員會的職務、並停止提供場地，形容中大學生會自1971年成立以來，校方從未如此激烈阻礙學生組織運作，明顯是打壓校內言論自由、學生自治和學生組織的生存空間，要求撤回打壓措施，召開中大校友評議會特別大會討論事件。**
+
+**截至中午，已有逾3000名中大人參與聯署，當中包括中大政治與行政學系副教授馬嶽、周保松、前立法會議員區諾軒、區議員楊雪盈、譚凱邦、黎銘澤、陳易舜等人。**
+
+### 上屆內閣：校方背叛中大同學　背叛立校理念
+
+聯署人包括中大學生會前幹事、 其他中央組織前成員、各書院學生會前幹事、 屬下團體前幹事及中大校友等。發起人之一、中大學生會前會長楊政賢表示，中大學生會成立以來，校方從未採取如此激烈行動阻礙中大學生組織運作，收窄校園內言論自由、學生自治和學生組織的生存空間屬史無前例，激起眾多中大人的怒火，校方以為在現時社會環境下校友敢怒不敢言，實在大錯特錯。
+
+上屆中大學生會內閣「星火」發聲明指，新當選學生會幹事會「朔夜」乃經民主選舉由全體中大同學選出，依校董會通過的《中大學生會會章》，具充分權力代表全體中大同學，中大校方口中所云「令大學聲譽受損的失實言論」，實為中大全體同學以手上一票所授權和表達的真實想法。
+
+聲明指出，歷屆中大學生會一直本「員生共治」的精神，作為中大校方、中大教職員以及中大同學之間的橋樑。如今中大校方為向政權表忠，徹底踐踏中大同學的民意，視中大學生會的民主機制如無物，更假借公器，準備處罰敢於站出來為學生發言的學生會幹事。今日中大校方之舉，不單背叛中大同學，更背叛中大立校的根本理念。
+
+「星火」強烈譴責中大校方的無理舉動，並要求中大校長段崇智立即撤回有關聲明及停止打壓行為，即使中大今天把中大學生會噤聲，也絕無法禁止所有中大同學發聲，更無法禁止歷屆歷任的畢業生繼續為同學、為社會而發聲，中大的精神定必永存。
+
+<figure>
+<img src="https://web.archive.org/web/20210726175817im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/中文大學-20210226153316_ac11_large.png" alt="">
+<figcaption>剛過去的畢業日，中大學生寄語「棱角分明，毋負期許。」</figcaption>
+</figure>
+
+**中大學生會歷屆成員聯署聲明全文**
+
+我們一眾中大學生會前幹事會、報社、電台、代表會、 屬下團體成員、前書院學生會成員及會員， 對中大校方決定暫停代收學生會會費、 暫停學生會相關學生在委員會的職務， 並停止提供行政及場地支援表示極度憤慨。
+
+中大學生會自1971年成立以來， 校方從未採取如此激烈行動阻礙中大學生組織運作。校方今次行動， 明顯打壓校園內言論自由、學生自治和學生組織生存的空間。
+
+我們強烈譴責中大校方的荒唐行動， 要求中大校長段崇智教授立即撤回打壓中大學生會的措施。 我們作為中大校友及《香港中文大學條例》訂明的大學成員， 亦將尋求召開中大校友評議會特別大會討論事件。
+
+發起人：   
+ 黎恩灝 第40屆中大學生會會長   
+ 楊政賢 第42屆中大學生會會長   
+ 許少英 第31屆中大學生會會長   
+ 譚駿賢 第24屆中大學生會會長   
+ 馮家強 第30屆中大學生會副會長   
+ 譚惠鵬 第24屆中大學生會外務副會長   
+ 蒙兆達 第23屆中大學生會外務副會長   
+ 朱傑靈 第28屆中大學生報編輯委員會總編輯
+
+截至2月26日中午12時， 共超過3000名中大學生會歷屆成員聯署。
+
+[中大人參與聯署網站](https://web.archive.org/web/20210726175817/https://docs.google.com/forms/d/e/1FAIpQLSczW1KcA5aQ-10c7i6fC1dyJUC66_cMpJPJPYucFKlmR7HIXA/viewform)
+
+[聯署名單](https://web.archive.org/web/20210726175817/https://docs.google.com/spreadsheets/d/1xzbb9TMCOl9Se6coK6_0wHDdFHNOt_aoRWuK4Mc4SrM/edit?usp=sharing)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726175817/https://www.hkcnews.com/aboutus/#subscribe)

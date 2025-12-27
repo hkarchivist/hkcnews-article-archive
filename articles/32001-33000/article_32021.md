@@ -1,0 +1,60 @@
+---
+title: "【回應抗爭派記招】「票王」許智峯、岑子杰沒獲邀加入　陳志全沒答應：但我也是抗爭議員"
+date: "2020-07-18"
+last_updated: "2020-07-18 03:54:26"
+author: "實習記者鄭啟智"
+category: "眾聞"
+tags:
+  - "陳志全"
+  - "慢必"
+  - "CHAN Chi-chuen"
+  - "許智峯"
+  - "HUI Chi-fung"
+  - "岑子杰"
+  - "抗爭派"
+url: "https://web.archive.org/web/20221209082631/https://www.hkcnews.com/article/32021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32083/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32083/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【回應抗爭派記招】「票王」許智峯、岑子杰沒獲邀加入　陳志全沒答應：但我也是抗爭議員
+
+16名勝出民主派初選的候選人，日前舉行記者會，表示他們組成的抗爭派已在初選中成為主流，他們會「齊上齊落」，又期望能與泛民候選人商討如何合作。可是抗爭派一詞，卻引起為何未有包括一些「票王」或議會抗爭者的討論。據眾新聞了解，抗爭派並未有邀請民主黨、公民黨、社民連成員加入，票王民主黨許智峯、社民連岑子杰也表示沒有獲邀，民主黨鄺俊宇則未有回覆查詢。
+
+人民力量立法會議員陳志全（慢必）曾獲邀加入，不過他指因為時間太過倉促，因此未有答應。陳志全認為，即使他沒有加入，也是一名「抗爭議員」，更指「無人可以壟斷抗爭派這個名」。   
+   
+ 立法會選舉提名期今日展開至7月31日，對於是否簽署參選確認書，據悉整個民主陣營內部尚未有共識，部分政黨的立場尚未確定。其中抗爭派16人仍未有統一立場，民主黨的立場有待商討。
+
+<figure>
+<img src="https://web.archive.org/web/20221209082631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/抗爭派-20200715231222_77df_large.jpg" alt="">
+<figcaption>一眾抗爭派候選人，周三召開記者會。周滿鏗攝</figcaption>
+</figure>
+
+出選超級區議會的岑敖暉表示，抗爭派的雛形是在初選時，一眾本土派和進步民主派的候選人一起宣傳，當時大家已有合作的傾向，並無人牽頭。對於邀請甚麼人加入抗爭派，他則形容是「搭上搭」，沒有決定機制。抗爭派中最年長的現任立法會議員朱凱廸承認，曾經邀請人民力量陳志全加入，不過其後因認為具政黨背景的候選人會有較多顧慮，所以未有再邀請其他政黨或候選人。   
+   
+ 陳志全表示，朱凱廸曾於公佈初選結果當晚（周一，13日），邀請他與抗爭派一起召開記者會。惟因抗爭派原本計劃即晚召開記者會，時間上過於趕急，加上是否加入並非個人決定，因此他當時未有答應。陳志全認為，他們標籤自己為抗爭派，是希望顯示他們比較進步，突顯與傳統泛民的區別，也相信是選舉工程的一部分。對於一眾抗爭派是否排除了其他泛民、認為泛民是「非抗爭派」？陳笑言，他在議會8年，一直堅持議會抗爭，「我估無人敢話我唔係抗爭議員。」他說，最近一年來，部分傳統泛民議員如民主黨許智峯，亦有積極在議會抗爭，相信市民能清楚見到。他又強調，「無人可以壟斷抗爭派這個名」。   
+   
+ 對於未來與一眾本土派和素人的合作，陳志全認為：「要落到場先知，唔係自己話自己係抗爭派就係。」他坦言，還未認識所有在初選勝出的候選人，相信仍要「聽其言，觀其行」。
+
+在新界東出線的鄒家成則指，邀請甚麼人加入抗爭派，是經過全體成員商討，而他們也有邀請部分坊間認為具「抗爭意志」的現任議員加入，但被婉拒。他又坦承，希望把抗爭派和部分傳統泛民政黨區分開來，「民主、公民兩黨並唔係考慮（邀請加入）之列。」他批評，民主黨和公民黨過去對中共的立場「企得唔夠硬」。不過他強調，抗爭派會主動和泛民溝通，尋求合作的空間。
+
+<figure>
+<img src="https://web.archive.org/web/20221209082631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/內務委員會-立法會內會-陳志全-20200509062936_21d6_large.jpg" alt="">
+<figcaption>陳志全認為，即使沒有加入抗爭派，他都是「抗爭議員」。EYEPRESS圖片</figcaption>
+</figure>
+
+民主黨許智峯是香港島初選的票王。他表示，未有獲邀加入抗爭派，指他不在意這些派別的標籤，因為市民的看法才是最重要。許智峯被視為民主黨內較激進、走得較前的議員，有網民笑稱他是「許智勇」，其中審議國歌法期間，他帶了一盆發出惡臭的腐爛植物進入議事廳抗議。他指，不會標籤自己為抗爭派還是其他派別，因為這樣做的意義不大。
+
+許智峯又認為，在初選勝出的本土派和素人，與他在抗爭手法上接近，例如大家都願意走到前線監察警暴、保護市民，至於議會抗爭的手法，由於一眾本土派和素人尚未進入議會，他不敢評論。惟他承認雙方在政治光譜上存有分歧，因民主黨仍然支持一國兩制，並不支持港獨，不過他強調雙方目標一致，都是旨在爭取民主自由，不應放大這分歧。   
+   
+ 許智峯未來可否做溫和民主派與抗爭派之間的中間人？他笑言：「唔知自己敢唔敢當」，他在現屆立法會已經擔任類近的角色，尋求民主派內各個版塊的最大公因數。來屆民主派在議會內的分佈或將「大洗牌」，許認為，現時評論來屆民主派內部的合作言之尚早，「可能全部都DQ晒呢。」
+
+<figure>
+<img src="https://web.archive.org/web/20221209082631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/拘捕-許智峯-612一周年-20200615132548_15b4_large.jpg" alt="">
+<figcaption>許智峯早前於銅鑼灣被捕。美聯社圖片</figcaption>
+</figure>
+
+同樣未有被邀請加入抗爭派的另一票王、社民連岑子杰則認為，市民會從候選人的行動來判斷他是否抗爭者，「邊個真係有做抗爭，市民係有眼睇。佢哋鍾意叫自己做抗爭派咪抗爭派囉，重點係市民覺得邊個會抗爭、邊個唔抗爭。」他指，社民連一直以來都有堅持進行司法抗爭、街頭抗爭等。岑又反問：「唔通泛民就唔抗爭咩？」他指，現時不少傳統泛民都有案底在身，就如日前再上庭的「泛民15子」，他們身負的控罪之多也不遑多讓。他強調，政府不斷打壓港人，早已逼到每個香港人都要抗爭，他預視在來屆議會，每個民主派議員都會抗爭到底，「無人可以唔抗爭」。   
+   
+ 至於是否簽署確認書的爭議，據了解，一眾勝出民主派初選的候選人至今仍未達成共識。其中16人抗爭派，據悉至今尚未有統一立場。岑敖暉表示，他們仍在商討，希望能把握提名期開始前的最後時間達成共識。
+
+民主黨主席胡志偉日前在社交網站表示，不會簽署確認書，惟該黨許智峯指，民主黨對確認書的立場仍有待商討。至於人民力量陳志全則重申，無論其他民主派的共識是怎樣，他與出選九龍東的譚得志（快必）都不會簽署確認書，強調這是人民力量對支持者的承諾。他又相信，民主派最終應該不能就此達成共識。

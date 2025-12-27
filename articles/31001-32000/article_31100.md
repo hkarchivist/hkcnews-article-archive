@@ -1,0 +1,44 @@
+---
+title: "自閉症男6.12被捕　遭噴椒壓在地被斥「扮聽唔到」　區議員批警未跟從指引"
+date: "2020-06-17"
+last_updated: "2020-06-18 22:45:07"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "自閉症"
+  - "被捕"
+  - "精神上無行為能力人士"
+url: "https://web.archive.org/web/20220125210356/https://hkcnews.com/article/31100/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31149/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD612%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/31100/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31149/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD612%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 自閉症男6.12被捕　遭噴椒壓在地被斥「扮聽唔到」　區議員批警未跟從指引
+
+一名20多歲患有自閉症的男子，上周五6.12一周年晚上於銅鑼灣被捕，期間遭噴射胡椒噴霧並按壓在地上，及後因未能跟從警員指令，被警員喝罵痛哭。協助事主的區議員袁嘉蔚批評，警員未有跟從指引及辨識「精神上無行為能力人士」的指標，而事主在羈留期間，至少4小時未獲安排合適成人陪伴。
+
+警方回覆指，該名男子當晚約9時被捕，並被送往醫院檢查，警方亦盡快聯絡其家人作為合適成人，該名合適成人約於晚上10時許到達醫院與被捕男子會面，其後於凌晨回到警署等待律師到場，於凌晨1時半，被捕男子在該名合適成人及律師的陪同下錄取口供，男子其後獲准保釋候查。
+
+<figure>
+<img src="https://web.archive.org/web/20220125210356im_/https://hkcnews.com/news_新聞/hk-discuss/2020/06/自閉症-精神上無行為能力人士-20200617194720_1c68_large.jpg" alt="">
+<figcaption>袁嘉蔚（中）批評警員未有跟從指引。左為立法會議員張超雄，右為社總張志偉。鄭靖而攝</figcaption>
+</figure>
+
+袁嘉蔚指，事主當晚乘巴士至銅鑼灣金百利商場附近下車，甫下車即被防暴警察推走，將其拉扯推倒，按壓在地上，事主亦被胡椒噴霧噴中。袁指，警方一度要求事主坐下，隨後又要求他趴在地上，威嚇他若不跟從就會拘捕他，事主當時不及反應，警方其後將他拘捕。到達北角警署後，事主被警員大聲喝令他坐下，事主未能接收指令，遭警員斥責：「你唔好扮聽唔到、我知你明」，事主因而痛哭。
+
+袁嘉蔚指，警方當日未有主動通知事主監護人，是她在直播畫面認出事主，再聯絡其母親，其母再前往警署。有其他被捕人向袁嘉蔚指，事主當日至少4小時未獲「合適成人」陪伴，須獨自面對警察。袁嘉蔚指，事主保釋後當晚仍因受胡椒噴霧影響，感到赤痛未能入睡，雙手亦因曾被手扣扣住感到痛楚，晚上仍夢見在警署被警察辱罵。她指，稍後會再探望事主，了解事主會否作出投訴。事主以涉嫌非法集結被捕，7月要再到警署報到。
+
+警方2015年在大圍美林邨誤拘一名中度智障人士後，於2016年推出措施，以保障患有自閉症、腦退化症、輕度智障等「精神上無行為能力人士（Mentally Incapacitated Patients, MIP）」，措施包括「守護卡計劃」、「行為指標」及「合適成人通知書」。前線警員可根據「行為指標」列出的MIP常見特徵，包括攜帶殘疾人士登記證、反應遲緩、欠缺眼神接觸等，以盡早識別MIP。警方亦建議MIP向警署、特殊學校、NGO等索取「守護咭」，放在銀包內，方便警員看到。而在MIP被羈留或錄取口供期間，警方應盡量安排最少一名「合適成人」在場，包括家屬、社工等。
+
+袁嘉蔚指，事主具有明顯的MIP特徵，如反應遲緩、 目光游移等，如果警方認識行為指標的話，必然會意識到事主是MIP，批評警員未有跟從指引。
+
+工黨立法會議員張超雄批評MIP措施成效不彰，「美林邨事件後所做的改正，根本是做樣的，例如守護卡幾呃人吓。」他舉例守護卡只是由MIP自行填寫資料的卡，由家屬自行向警署等地方索取，但以他理解很少人用。另外有一些經過培訓的家長義工，可在有需要時徵召當「合適成人」的角色，但以他認識的多名義工，一個都未被徵召過幫忙。
+
+社總外務副會長張志偉指，運動中有被捕者為中度智障人士，理解力較差，未及反應警員的指令時，就會被警員以為是故意，將其拘捕或暴力對待。他批評在警員沒有尊重及認知下，應對MIP的措施是形同虛設。他又指，警方曾在美林邨事件後，為警員安排一天培訓，但從不知有多少人接受過培訓，亦無從得知培訓的成果，「加上喺殺紅了眼嘅氣氛下，所有成果相信不會出現得到。」張志偉又指，不少衝突現場，都有社工表示願意擔任「合適成人」的角色，「但基本上差不多100%被拒絕。」他希望政府可進一步保障MIP的權益，並呼籲警方在拘捕MIP後，容許社工作為「合適成人」陪同。
+
+警方周三回覆查詢時指，上周五行動期間，一名26歲男示威者多次無視警方警告拒絕離開，警員於是使用所需最低武力將其制服，男子以涉嫌非法集結被捕，已獲准保釋候查。
+
+警方指，該被捕人於羈留期間，警員已透過他提供的資料，盡快聯絡其家人作為合適成人到警署，待該名合適成人到達警署後，才為被捕人錄取口供。 警方表示，當晚在軒尼詩道一帶共拘捕30人，由於人數眾多，警方需時跟進及處理相關程序，又指任何人如認為受到不合理對待，可向投訴警察課作出投訴。
+
+警方表示，十分重視保障精神上無行為能力人士的權利，已推出一系列相關措施，另外在各個培訓課程中，均有課節教授警務人員在執行職務時應如何處理有關人士、羈押及錄取口供時需要注意的地方等；亦有邀請相關專家、社工、有關人士及其家長，為前線人員提供訓練，警方會持續監察有關措施。
+
+警方周四再回覆指，該名男子當晚約9時被捕，並被送往醫院檢查，警方亦盡快聯絡其家人作為合適成人，該名合適成人約於晚上10時許到達醫院與被捕男子會面，其後離開醫院為被捕男子拿取衣物，並於凌晨回到警署等待律師到場。於凌晨1時半，被捕男子在該名合適成人及律師的陪同下錄取口供，被捕男子其後已獲准保釋候查。

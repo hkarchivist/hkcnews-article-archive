@@ -1,0 +1,58 @@
+---
+title: "美領館拒四人尋求庇護　分析指避重蹈成都封館　國務院譴責拘鍾翰林"
+date: "2020-10-28"
+last_updated: "2020-10-28 22:07:32"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "美國駐港領事館"
+  - "us consulate hong kong"
+  - "美國領事館"
+  - "學生動源"
+url: "https://web.archive.org/web/20210805054226/https://www.hkcnews.com/article/35146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35156/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35156/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 美領館拒四人尋求庇護　分析指避重蹈成都封館　國務院譴責拘鍾翰林
+
+前「學生動源」召集人鍾翰林 [據報周二早上一度到美國駐港澳領事館尋求政治庇護](https://web.archive.org/web/20210805054226/https://www.hkcnews.com/article/35122/%E9%8D%BE%E7%BF%B0%E6%9E%97-%E7%85%BD%E5%8B%95%E5%88%86%E8%A3%82%E5%9C%8B%E5%AE%B6-%E4%BD%95%E5%BF%BB%E8%AB%BE-35128/%E3%80%90%E5%86%8D%E6%8B%89%E5%AD%B8%E7%94%9F%E5%8B%95%E6%BA%90%E5%89%8D%E6%88%90%E5%93%A1%E3%80%91%E9%8D%BE%E7%BF%B0%E6%9E%97%E7%BE%8E%E5%9C%8B%E9%A0%98%E4%BA%8B%E9%A4%A8%E5%A4%96%E8%A2%AB%E6%8D%95-3%E4%BA%BA%E8%A2%AB%E6%8C%87%E7%85%BD%E5%8B%95%E5%88%86%E8%A3%82%E5%9C%8B%E5%AE%B6-%E5%8F%A6%E6%9C%894%E4%BA%BA%E6%93%AC%E9%80%B2%E9%A0%98%E4%BA%8B%E9%A4%A8%E4%B8%8D%E6%9E%9C) ，其後被攝得在對面的山頂纜車站附近被警方帶走，同日下午有四人進入美領館尋求庇護但被拒。有美國政治學者分析，美國庇護政策要求申請人需身處美國境內，另外相信今次是希望避免出現類似關閉美國駐成都領事館等的外交風波。
+
+本港建制派人士則異口同聲說，今次美領館拒絕四人提供政治庇護，是避免中美再次摩擦。保安局前局長葉劉淑儀說，北京最嚴重可以「封咗領事館」。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054226im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/港版國安法-鍾翰林-20201027194819_f8fe_large.jpg" alt="">
+<figcaption>從車Cam片可見，鍾翰林（圖圈者）被三名便服男子帶走，其中二人捉著他。《南華早報》片段截圖</figcaption>
+</figure>
+
+美國國務院回覆查詢時，譴責本港警方拘捕鍾翰林等三人，並形容「出動到警方國安處在咖啡室拘捕一個未成年人（按：鍾19歲）應備受譴責」，又批評國安法繼續用來打壓異己及箝制港人自由，而非保障安全。
+
+被問到為何拒絕四人申請庇護及是否避免類似成都領事館關閉事件，國務院發言人續說，只能在抵達美國申請庇護，基於私隱不便評論與美國公民的討論，但說在難民計劃中已建議納入香港居民。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054226im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/美國駐港澳總領事館-20201027204501_1082_large.jpg" alt="">
+<figcaption>美國駐港領事館周二起稍微多了保安在門口及對面馬路巡邏。眾新聞資料圖片</figcaption>
+</figure>
+
+美國德州大學公共行政學院副教授Sheena Greitens在 [Twitter](https://web.archive.org/web/20210805054226/https://bit.ly/3oBFYME) 分析，相信美國可能擔心駐港領事館成為衝突中心，例如「警察嘗試阻止人進入、學生或其他人用更急進的方法嘗試進入，及其後將（申請庇護）人送到美國的外交對峙」。
+
+她舉例說，過去北韓人嘗試進入美國駐北京或日本東京大使館尋求庇護，但其後難以撤離當事人及產生外交矛盾，也會產生庇護人士與警員的肢體衝突。
+
+中美衝突下，美國要求關閉中國駐休士頓領事館後，中國去年7月下令關閉美國駐成都總領事館。Greitens分析說，當時已有傳言美國駐港領事館可能被迫關閉，可能是美方的關注之一。
+
+美國國務院在10月初公布將香港列入2021年難民收容名單之中。Greitens說，定義上難民一般要身處美國提出申請，而將港人放入收容名單是重要的，但如果當地政府執意阻撓的話，都難以將他們送到美國。自2004年，美國只接收了約225名北韓難民。
+
+此外，她補充，國際法並不要求領事館向進內的人提供政治庇護。「不論喜歡與否，這就是一般基準。」
+
+保安局前局長、新民黨葉劉淑儀認為，美國引用難民政策令事件更好辦，假設四人的確獲得政治庇護的話，要視乎中央政府處理辦法。「北京可以外交交涉叫（美領館）唔好庇護，四人是（香港）想檢控的人，不應提供政治庇護，如果美國唔肯，最嚴重可以封咗領事館。」
+
+民建聯陳克勤說，如果四人的確逗留在美領館，中方及本港警方都要尊重外國領事館，不能說入就入，但相信會指控美領館收留各人並非執行法例中領事功能，會要求入內執法。
+
+陳克勤說：「就好似阿桑奇，英國警方是獲邀入去（厄瓜多爾駐倫敦大使館）拘捕他；（香港政府）總不能爆門（進入美領館），也不值得因四人去爆門。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805054226/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,67 @@
+---
+title: "【逆權社工】速龍稱陳虹秀不合作「由我第一眼已非法集結」　辯方：你高佢一個頭、全副武裝"
+date: "2020-09-19"
+last_updated: "2021-02-02 18:33:03"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "831衝突灣仔"
+  - "陳虹秀"
+  - "逆權社工"
+url: "https://web.archive.org/web/20220125172937/https://hkcnews.com/article/34005/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37772/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/34005/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37772/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【逆權社工】速龍稱陳虹秀不合作「由我第一眼已非法集結」　辯方：你高佢一個頭、全副武裝
+
+呼籲警方保持克制、不要開槍的社工陳虹秀，被控去年8.31在灣仔涉嫌暴動。速龍林上嵐在當日，第二次看見陳虹秀時，決定將她拘捕，因為意識到「由我第一眼見到她，一直參與非法集結」。林稱拘捕過程，對方不合作、想轉身，辯方資深大律師潘熙質疑「你高佢一個頭」、「全副武裝」、「佢點唔合作」？
+
+潘熙指出，被告當時身處行人路，惟重覆播片後，警員堅稱不肯定、看不到地上。有旁聽者聞言證供後，傳來輕聲質疑：「咁都得」？在盤問下，林上嵐同意一般市民未必單憑速龍的外表，分辨到男警或女警，指出警隊對於女性，由女警搜身先恰當，但男警也可作押解。
+
+<figure>
+<img src="https://web.archive.org/web/20220125172937im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/陳虹秀-831衝突灣仔-20200919013516_e9eb_large.jpg" alt="">
+</figure>
+
+### 僅見幾秒　記得聽過「保持克制」說話
+
+審訊第八日，反恐特勤隊警員林上嵐繼續作供，去年8月31日，林上嵐是特別戰術小隊C隊，亦即是俗稱的「速龍」，有份拘捕第五被告陳虹秀。警員提及被告手持咪和擴音器「向我方講話」，被主控張錦榮問到實際是甚麼內容？警員只表示聽到「保持克制」、「需要足夠時間離開」、「唔好開槍」的說話，稱「大致記得呢啲」。
+
+轉到辯方資深大律師潘熙盤問下，警員供稱第一次在軒尼詩道近分域街見到被告時，自己身處東行線，被告在西行線，他不確認當時西行線有沒有警員，但同意警方推進時通常東西行線同時進行。林說自己站在第一排、當時有戴眼鏡，大約與被告相隔30米、看得清楚，但不記得被告是否在行人路上。由「見到」被告到「在視線消失」，只有幾秒。
+
+第二次在軒尼詩道和馬師道交界再看見被告時，二人相距大約10米。林在推進時，同意與隊員大致平排，但有些角度差異、未必會完全垂直。由「見到」到「拘捕」，亦只有幾秒。他承認拘捕被告是自己一人的決定。去年6月至案發當日，他以類似角色處理公眾活動的次數並不是很多，約兩至三次。
+
+<figure>
+<img src="https://web.archive.org/web/20220125172937im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/社工-陳虹秀-暴動罪-20190904000332_e30a_large.jpg" alt="">
+<figcaption>陳虹秀去年8.31在灣仔被捕。資料圖片</figcaption>
+</figure>
+
+### 警：由我第一眼見到她　一直參與非法集結
+
+辯方問到，警員林上嵐的口供寫著「推進、嘗試拘捕暴力示威者」是否就是推進的原因？林回答是其中一個原因。他同意當去到馬師道時，示威者已經退至近鵝頸橋位置，與警方約有80米距離。
+
+林的口供指出被告「再次手持咪向我方講話」、「由於AP曾於軒尼詩道近分域街參與非法集結，於是立即上前拘捕AP，並宣布非法集結罪」。辯方指出，即是拘捕是因為被告在分域街的情況，不是在馬師道的情況？林表示不同意，稱寫出來「描述得無咁好」，具體拘捕的原因是，在馬師道再次見到她時，意識到「由我第一眼見到她，一直參與非法集結」。
+
+辯方反駁「你第一眼之後就無見過佢，第二次見到時就已經拘捕佢」，當時在被告身邊的人沒有被捕，警員沒有嘗試拘捕身邊的人。林亦同意在馬師道，無人拒捕、無人搶犯、無人阻礙警方執行職務。
+
+### 辯方：你高佢一個頭、全副武裝、佢點唔合作
+
+辯方質疑單憑速龍的外表分不到男警或女警，警員說要「視乎咩人」，但同意一般市民未必分到速龍的男女。辯方稱陳虹秀被捕時，曾說過「你係男警，你唔係女警」，林稱不記得。辯方亦指，被告曾要求「要女警、要女警」，林說不同意、聽不到，又說「即使佢無講，我都會搵女警」。
+
+林在盤問下指出，警隊的做法，對於女性，一般會由女警搜身才恰當，但男警也可押解。不過他亦同意辨方指出，如果是女警會比較理想，而當時身邊大約都有女警。辯方指出，陳虹秀被捕時身處行人路，重覆播片後，警員堅稱「不肯定」、「看不到地上」。有旁聽者聞言證供後，傳來輕聲質疑：「咁都得」？
+
+林稱，要求被告蹲下才沒有掙扎。辯方指出，片中被告並沒有很大掙扎，林表示不同意。辯方質疑「你高佢一個頭」、「全副武裝」、「佢點唔合作」？林稱「我拉住佢、帶佢去行、要捉住走」，辯方問到有沒有跟對方表明要行、行去哪裡？林表示，如果合作是不需要拉對方、捉著對方的動作已經表示要前行，形容過程不合作，對方想轉身。
+
+<figure>
+<img src="https://web.archive.org/web/20220125172937im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200919013525_2f21_large.jpg" alt="">
+<figcaption>辯方指出，陳虹秀被捕時身處行人路，重覆播片後，警員堅稱「不肯定」。有旁聽者聞言後：「咁都得」？資料圖片</figcaption>
+</figure>
+
+### 記事簿上　時間的出入
+
+辯方問到，警員記事簿上的標記的時間是否「實時記載」？林稱會盡快紀錄，但同意警方的訓練是要求盡快和準確就見到的記錄下來。案發當日，警員記事簿上寫著「1931到達力寶中心、1945我到達金鐘力寶中心外」，被辯方質疑筆誤或更改時間，林否認，稱一個是指在車上到達的時間，一個是正式落地的時間。
+
+記事簿上也記錄當日11時有簡報（briefing），林說會上並沒有指明他在隊中分工。翌日凌晨2時05分亦有檢討簡報（debriefing ），會上由指揮官說出要訓示的地方，並非每名隊員將記事簿的內容說出來。他指，當時上司已知道他曾作出拘捕。有關被捕的描述，記事簿最先寫有「拉咗一個人、詳情補錄」的字，翌日凌晨3時才補錄，到9月3日正式錄口供。林亦指出，記事簿不可能完整紀錄一切。
+
+控罪指，8人被控去年8月31日在灣仔涉嫌參與暴動，被告依次為余德穎、賴姵岐、鍾嘉能、龔梓舜、陳虹秀、簡家康、莫嘉晴、梁雁彬。龔梓舜另被控涉嫌管有攻擊性武器。各被告分別由大律師黃瑞紅、大律師藍凱欣、大律師王國豪、大律師石書銘、資深大律師潘熙、大律師曾藹琪代表，大律師李國威則代表第七和第八被告。
+
+【案件編號：DCCC12/2020】

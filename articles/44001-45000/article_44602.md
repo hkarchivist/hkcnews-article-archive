@@ -1,0 +1,45 @@
+---
+title: "被控前年831非法集結、太子站內攜燃燒彈　13歲男童認罪被判入教導所"
+date: "2021-08-20"
+last_updated: "2021-08-20 17:20:41"
+author: "實習記者黃麗莎"
+category: "眾聞"
+tags:
+  - "831"
+  - "八三一"
+  - "藏有攻擊性武器"
+url: "https://web.archive.org/web/20211203223518/https://www.hkcnews.com/article/44602/831-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44606/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44602/831-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44606/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 被控前年831非法集結、太子站內攜燃燒彈　13歲男童認罪被判入教導所
+
+案發時僅就讀中一的13歲男童，被指於前年 8 月 31 日在旺角非法集結，及於太子站月台管有自製燃燒彈，被控非法集結和在公眾地方管有攻擊性武器兩罪。男童早前承認控罪，案件今（20日）在灣仔區域法院判刑，法官姚勳智指罪行嚴重，燃燒彈若在當時的環境使用，後果難以想像，認為判入勞教中心不能反映案件嚴重性，最後判男童入教導所服刑。
+
+<figure>
+<img src="https://web.archive.org/web/20211203223518im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/非法集結-831被捕者-20210820160703_7d92_large.jpg" alt="">
+</figure>
+
+案情指，被告在2019年8月31日，在旺角奶路臣街與彌敦道交界附近連同其他身分不詳的人，參與非法集結，另亦於翌日凌晨在港鐵太子站內月台的公眾地方，無合理辯解及權限下管有兩個自製燃燒彈及兩個打火機。
+
+辯方律師陳德昌在庭上指，被告已明白及同意更生中心、勞教中心和教導所報告內容，內容亦正面，學校的訓導主任指「留咗位」讓被告重返校園。被告在正常家庭成長，受家人關愛，只在一晚內衝動、愚蠢地犯案。被告雖成績平平，但近半年成績亦有改善，校內操行保持良好。辯方律師希望法官判被告入勞教中心服刑，給予被告學習守法及重返校園的機會。
+
+法官姚勳智在判刑前詢問辯方，以成人犯案的標準來看，以本案同樣背景和情節而言，例如被告主動參與和擔當前線角色，判處即時監禁的範圍應是如何。律師回應指，大膽估算非法集結和在公眾地方管有攻擊性武器兩罪，應分別以監禁1年作量刑起點，雖兩罪的案發地點不一，但強調兩罪的刑期有空間同期執行。
+
+### 辯方求情︰不涉預謀或號召　官︰主動參與角色前線
+
+姚官引述被告的背景和求情內容，指被告在案發時就讀中一，現已感到後悔，表示知錯，亦明白自己的行為令家人痛心。家人等撰寫的求情信亦稱，被告本性善良及開朗，因誤交損友而犯錯，另他亦是一名出色的舞蹈隊員，平常會幫助別人。辯方求情時亦指，被告並非有預謀犯案，亦非號召者。
+
+姚官認為非法集結屬嚴重罪行，量刑時亦參考了高等法院上訴法庭就2014年衝擊公民廣場案刑期覆核所制定的指引。就非法集結的控罪，姚官指被告在過程中主動參與，手持鐵通及雨傘，亦協助堵路，擔當前線角色。雖事發突然，但當時集結規模亦不小，被告意圖阻塞交通，行為妄顧法紀和不負責任。至於管有攻擊性武器的控罪，被告雖未有使用攜有的燃燒彈，但若在當時的環境使用，後果將難以想像。
+
+姚官考慮過早前高等法院上訴法庭所釐定有關處理少年犯的原則後，認為判被告入勞教中心，不能反映案件的嚴重性，最後判男童入教導所服刑。姚官補充指，法庭了解到被告真心認錯及改過，並得到家人的支持，若被告是成年人可被判監禁3至4年。
+
+案件編號：DCCC 738/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203223518/https://www.hkcnews.com/aboutus/#subscribe)

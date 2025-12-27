@@ -1,0 +1,42 @@
+---
+title: "選管會12.5小時點票　今日再解畫：投票人填錯要再發選票，需時核實有效票數目"
+date: "2021-09-21"
+last_updated: "2021-09-21 19:22:49"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "選管會"
+  - "馮驊"
+  - "2021選委會選舉"
+url: "https://web.archive.org/web/20211205040439/https://hkcnews.com/article/45681/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45685/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD125%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45681/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45685/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD125%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 選管會12.5小時點票　今日再解畫：投票人填錯要再發選票，需時核實有效票數目
+
+選委會選舉結束，點票問題仍連日遭到批評。選舉管理委員會（選管會）主席馮驊昨天（20日）稱，運送票箱、核實報表、電子點票時均出現問題，但始終無說明具體出錯的是甚麼。 [眾新聞遂於昨日向選舉事務處查詢了解詳情，惟只獲其回覆參考馮驊於早上在會展新聞中心會見傳媒時的談話](https://web.archive.org/web/20211205040439/https://bit.ly/3tTVjeI) 。事隔一日，選舉事務處於今午主動回覆眾新聞，進一步交代了「選舉的部分安排並不理想」的情況：有投票人填錯選票後要求重發選票，導致工作人員需時核實發出了幾多張有效票；票箱運抵點票站後，有報表未填好、個別票站無交回所有報表；自動點票系統，因選票放置不當而「夾紙」（俗稱「jam紙」）。
+
+<figure>
+<img src="https://web.archive.org/web/20211205040439im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/電子點票-2021選委會選舉-點票中心-20210920060801_28a6_large.jpg" alt="">
+<figcaption>選委會選舉於周一（19日）傍晚6時結束投票，票箱其後送到中央點票站點票。資料圖片</figcaption>
+</figure>
+
+選委會選舉於昨天（20日）早上6時半才完成點票，近上午8時終於公布最後一個界別的結果。光是計點算時間，用了12.5小時點算4300多票，創下了自1998年以來的最低效率紀錄。
+
+選管會主席馮驊昨天清晨6時見記者，指點票過程出現了報表填錯、點票機3度jam紙等問題。但被追問細節就稱：「你諗住我係部電腦？太誇張」。眾新聞遂即日向選舉事務處查詢，但對方著記者參考馮驊早上的發言，並稱將就點票安排詳細檢討，未有正面回覆。
+
+一日後，選舉事務處主動再度解釋點票過程的問題，並承認工作人員的靈活性、應變能力以及工作程序「有改善的空間」，將認真跟進。根據選舉事務處最新說法，點票過程出現的問題：
+
+1. 有投票人填錯選票，要求重發，投票結束後，工作人員需要額外時間核實有效發票數目；   
+ 2. 工作人員首次使用電子選民登記冊，同時核實發出有效選票的數量與電子選民登記冊所紀錄的數量是否一致，令投票站延遲將票箱送抵點票站；   
+ 3. 票箱運抵中央點票站後，發現投票站交回的報表資料未有妥善填好，個別票站未有交回所有的報表，為免點票結果受到質疑，即刻重新核對；   
+ 4. 由於每一個票站均有各個界別的選票，一旦個別票站的點票工作停頓，各個界別的點票工作亦受到影響；   
+ 5. 自動點票系統出現因選票放置不當而「夾紙」的情況。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205040439/https://hkcnews.com/aboutus/#subscribe)

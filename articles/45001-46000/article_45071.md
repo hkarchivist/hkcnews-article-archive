@@ -1,0 +1,65 @@
+---
+title: "《城市論壇》復播無期　港台發言人拒評　節目議題近期溫吞化　張敏儀曾言：倘節目消失即已改變"
+date: "2021-09-05"
+last_updated: "2021-09-06 03:01:54"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "城市論壇"
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "張敏儀"
+url: "https://web.archive.org/web/20211027010702/https://hkcnews.com/article/45071/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45075/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45071/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45075/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《城市論壇》復播無期　港台發言人拒評　節目議題近期溫吞化　張敏儀曾言：倘節目消失即已改變
+
+港台或再有長壽節目在整頓浪潮中無聲告別。據悉，《城市論壇》在港台內部經討論後復播無期，有傳一度探討過撤換主持蘇敬恆，最終整個節目仍無法在暑假再與觀眾見面。
+
+翻查《城市論壇》在新廣播處長李百全上任後的20集主題，已有「溫吞化」跡象，除了大部分以抗疫及民生作為議題，僅3集探討提及人大常委會決定的新選舉制度，直至7月臨別一集以餐廳走塑為題。就先前討論的議題，依次為柏傲莊重建、消費券、屯馬線、家庭生育、旅遊氣泡、打疫苗送樓等，出席嘉賓中除民主黨主席羅健熙、民主黨前主席劉慧卿、職工盟蒙兆達、時任議員鄭松泰及中科興業潘焯鴻外，少有強烈批評政府者。
+
+<figure>
+<img src="https://web.archive.org/web/20211027010702im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/城市論壇-張敏儀-20210905193222_185c_large.png" alt="">
+<figcaption>《城市論壇》去年四十週年，張敏儀曾在特輯中談及節目當初構思等。港台截圖</figcaption>
+</figure>
+
+目前在港台大權在握的港台節目顧問何重恩，今日（5日）出席活動時卻說不評論「正常節目調動」。他又表示，目前社會關注體育發展，應多製作體育節目。另外，港台發言人稱，港台節目安排及「員工調配」屬港台內部編輯事宜，不作個別評論。
+
+據悉，港台內部一直有傳廣播處長李百全上任後有意改組，甚至「肢解」電視部公共事務組。自今年3月以來，港台電視部公共事務組多個節目，包括《鏗鏘集》及《議事論事》被其他組別參與拍攝或外判，英文節目《脈搏》更被停播。
+
+### 工會：節目異常安排應及時詳細向觀眾交代
+
+《城市論壇》將停播的消息傳出後，港台節目製作人員工會表示，《港台約章》定明，港台須「提供開放平台，讓公眾暢所欲言，以不畏懼和不偏私的方式交流意見。具體工作包括提供各類讓公眾參與和表達意見的節目」，若停播甚至取消《城市論壇》，將嚴重影響港台履行《約章》。
+
+工會亦表示，港台作為公共廣播機構，節目播放的安排和決定理應面向公眾，異常的安排和改變更應及時和詳細向觀眾傳達與交代。
+
+港台《城市論壇》是1980年啟播，意念源自前廣播處長張敏儀，模仿在英國倫敦海德公園的「Speaker’s Corner」，鼓勵市民議政辯論，節目宗旨在於鼓勵言論自由、反映民意。除了暑假外，節目每逢周日風雨不改播放，「自由空氣滿維園、發表言論你有權」的標語下，讓左中右各界議論時政。
+
+《城市論壇》前主持人謝志峰曾在其著作中提及，論壇初期原名「青年論壇」，邀請中學代表參加、專業人士評比，數月後節目形式改為由主持人提問，台上嘉賓發言，及與台下觀眾提出意見交流，四十年來從未間斷。
+
+<figure>
+<img src="https://web.archive.org/web/20211027010702im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/謝志峰-城市論壇-20210905193301_1682_large.png" alt="">
+<figcaption>2005年城市論壇25周年，當時多代主持及政制事務局林瑞麟到賀，可是此情不再。（謝志峰《曾是香港蠱惑男──「峰」雲歲月》截圖，明窗出版社2011年出版）</figcaption>
+</figure>
+
+張敏儀去年在《城市論壇》 [四十週年特輯中](https://web.archive.org/web/20211027010702/https://bit.ly/3n6l3TB) 說：「這幾十年來的香港，是好難得先有今日的這種自由，希望傳媒、尤其公眾，都要珍惜得來不易的言論自由。」她引述《城市論壇》首位主持吳明林名言說，電視節目正在播放時，公眾不覺得特別，但當沒有節目之後，公眾才會突然發現，「《城市論壇》無咗，你會知道真係有啲嘢改變咗」。吳明林周日接受眾新聞查詢時說沒有評論。
+
+### 譚耀宗曾上節目　譴責北京血腥鎮壓學生
+
+早年的《城市論壇》是議政的重要平台，不少政治人物在維園發言都影響時局發展。在1989年「六四」當日，時任立法局議員譚耀宗曾在節目上強烈譴責北京血腥鎮壓學生群眾；2007年，皇后碼頭風波期間，《城市論壇》移師皇后碼頭舉行，時任發展局局長林鄭月娥曾出席發言。
+
+2005年《城市論壇》二十五周年時，時任政制事務局局長林瑞麟到賀；其後政府被指陰乾港台，近年已較少派官員出席。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027010702/https://hkcnews.com/aboutus/#subscribe)

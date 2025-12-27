@@ -1,0 +1,65 @@
+---
+title: "【大三罷天水圍非法集結】男友扶跌倒女友雙雙被控　警員庭上未能肯定情侶屬堵路者"
+date: "2021-11-11"
+last_updated: "2021-11-11 19:58:35"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "1111全城三罷"
+  - "非法集結"
+  - "堵路"
+url: "https://web.archive.org/web/20220117044051/https://www.hkcnews.com/article/47571/1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47571/1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【大三罷天水圍非法集結】男友扶跌倒女友雙雙被控　警員庭上未能肯定情侶屬堵路者
+
+前年11月11日全港多區有「大三罷」示威，天水圍輕鐵翠湖站附近有人堵路，看見警車後逃跑。當時一名男子正在行人路扶起跌倒的女朋友，趕到的警員將情侶雙雙拘捕。兩人今年5月被控參與非法集結，案件今(11日)在屯門法院開審。案發時首先到場的警員供稱，視線一直緊緊望著黑衣人群逃跑，而被告兩人是人群成員，但看不到女被告跌倒的一刻。裁判官質疑：「你點解可以肯定到第一第二被告喺嗰堆黑衫人面？」
+
+<figure>
+<img src="https://web.archive.org/web/20220117044051im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/非法集結-1111全城三罷-20211111175016_4f01_large.jpg" alt="">
+<figcaption>拘捕首被告的警員24957黃飛陽（左）。</figcaption>
+</figure>
+
+被告侍應劉勇及文員譚芷澄均是27歲，兩人同被控一項參與非法集結罪。辯方爭議男被告的口頭招認、警員記事冊及書面供詞內容，法庭以「特別事項」程序處理。
+
+### 男被告被指警誡下稱「我淨係喺度堵路」
+
+拘捕首被告的警員24957黃飛陽供稱，當日早上接報得知翠湖站附近有數十名黑衣人縱火及堵路，他於8時45分趕到天榮路，在警車上看到7至8名黑衣人跑向天頌苑方向，行車路上佈滿雜物並冒煙。黃下車追截至近輕鐵站時，見到穿黑衫的女被告已趴在地下，她身邊的男被告正扶起她，兩人均有戴深色口罩及手套，其他黑衣人已跑到遠處。
+
+黃跑前截停拘捕男被告，女被告則由一名女警截停。黃發現兩人之間有個黑色的環保袋，打開發現內有兩塊木板連螺絲釘。黃稱他隨即以非法集結及管有工具可作非法用途罪拘捕及警誡被告，男被告當時稱：「我淨係喺度堵路，個黑色袋裡面嘅木板釘唔係我」。黃回到警署後補錄事件經過，向男被告覆讀並要求他簽名作實。
+
+### 警員先稱看到兩人是逃跑者　後改稱不肯定
+
+盤問下，黃稱當日沒留意是否有人在場等巴士或輕鐵，他同意2019年經常有同樣裝束的人在區內遊走。
+
+辯方指出，黃第一眼見到兩人時，已是女被告趴低一刻，截停兩人前不知他們做過甚麼，黃只是估計兩人是黑衣人群中的一員。黃稱：「唔係㗎，跑緊嗰時已經見到，（佢哋）跑到去個位置」。
+
+黃續指，「因為街上面只係得呢班黑衣人特別突出，我一直都望緊佢哋跑」， 其間視線從沒離開過黑衣人。但是，黃稱他看不見女被告跌低的動作，一見到她時已是趴在地下。
+
+裁判官施祖堯不解問：「呢部份我唔係好明。如果你一路望住，點解你話會見唔到第二被告趴咗喺地下？」黃回應：「我唔係記得好清楚」。
+
+施官再問：「咁你點解可以肯定到第一第二被告喺嗰堆黑衫人面？」黃稱「因當時得嗰堆人喺度」。黃最終承認，不能肯定被告是否在黑衣人堆的其中一員。
+
+<figure>
+<img src="https://web.archive.org/web/20220117044051im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/非法集結-1111全城三罷-20211111174746_28ee_large.jpg" alt="">
+<figcaption>拘捕女被告的女警11735劉煥如。</figcaption>
+</figure>
+
+拘捕女被告的女警11735劉煥如供稱，她因要跨過欄杆追截，視線有約十秒離開逃跑人群。她第一眼見到女被告時，已經見到她趴在地上，雖看不到她之前的行為，但「我相信佢哋係人群入面嘅人」，因黑衣人群中有名長頭髮及穿白波鞋的人，而女被告「就正正係呢個裝束」。
+
+### 男被告：在警署遭查問感驚慌
+
+施官裁定特別事項表證成立。男被告劉勇出庭作供，稱當日被制服後以投降姿勢趴在地上，沒有反抗，其間聽到有警員說：「將啲嘢帶返警署先講！」他隨後被押上警車，沒有警員向他宣佈拘捕及警誡。
+
+劉稱被帶返警署後，一度被帶去訓示室作初步搜查。一名中年軍裝警員打開環保袋，問他：「啲嘢係咪你㗎？」劉答不是，該警員就稱「唔係你嘅，即係你女朋友㗎啦？」劉稱當時十分驚慌，「因為唔知佢會對我同我女朋友做啲咩。」
+
+其後，他被帶往另一間房搜身，有一名較高級的警員在門口向他咆哮：「係咪你做㗎？係你就認咗佢！」劉稱當時因感到害怕，回應稱「係呀，啲嘢唔係我㗎」。
+
+### 在記事冊簽署因怕警方對女友不利
+
+然後他再被帶往另一間房，警員黃飛陽抄寫一本藍簿，叫他在錯別字地方簽名，及抄寫聲明和簽署。黃並沒有向他解釋聲明，沒有覆讀或給他時間閱讀記事冊口供。
+
+劉解釋，他當時按指示簽名，是因早前中年警員的說話令他感到驚慌， 「配合佢哋先......唔想因為我做咗啲咩唔順眼嘅嘢，就對我女朋友不利」。他說抄寫聲明時，抄到最後一句才知是聲明「我是自願作供的」，而他以為可在任何時候更正和修補。案件明日續審。
+
+案件編號：TMCC988/2021

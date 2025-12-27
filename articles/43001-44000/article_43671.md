@@ -1,0 +1,122 @@
+---
+title: "【蘋果實習下課了】實習小薯的蘋果生活"
+date: "2021-07-25"
+last_updated: "2021-07-25 01:40:19"
+author: "實習記者周瀚霖"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "蘋果記者"
+  - "實習記者"
+url: "https://web.archive.org/web/20210920180555/https://hkcnews.com/article/43671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43676/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43676/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【蘋果實習下課了】實習小薯的蘋果生活
+
+
+{{< video src="https://web.archive.org/web/20210920180555if_/https://www.youtube.com/embed/oyy-xK7OG-Q" >}}
+
+
+在《蘋果日報》的日子雖然短暫，但已經留下深刻回憶。
+
+誤打誤撞入《蘋果日報》工作可能是上天注定安排，對我來說其實讀新聞系和做記者這兩件事以前從來都沒想過。
+
+靜態組其實離不開聽記者會、做街訪等等的工作，對我說最深刻的經歷是「六四」在銅鑼灣採訪。
+
+懵懵懂懂的我跟著一名全職記者於崇光百貨門外等候街站開檔，我最初以為只需要記錄現場情況，沒想過要「扑咪」，所以並沒有準備問題。帶我的全職記者問我「你諗掂轉頭問咩未？」當下好像被冷水淋頭，完全不知道可以問甚麼，只好馬上去想問題。
+
+### [【蘋果實習下課了】專輯](https://web.archive.org/web/20210920180555/https://bit.ly/3iJMwGV)
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/appledaily-實習記者-20210724224705_1034_large.jpg" alt="">
+<figcaption>2021-06-04 銅鑼灣社民連街站。</figcaption>
+</figure>
+
+當下的我毫無頭緒，同事便教我：「你要先諗咗條標題，你想帶到咩信息出嚟比人，咁你先會容易啲諗到問題。」 這方法真的很受用。
+
+有街站，自然就要扑咪，但與平日聽記者會後可以坐下來慢慢寫不一樣，街頭變化萬千，不可能找一個地方慢慢打稿，只好站在路邊一面打稿一面觀察現場情況，可惜我並不懂得速記，只能靠錄音反覆地聆聽受訪者的回應，令本來不能一心多用的我增添額外難度，最後雖然匆匆忙忙地打出一篇報道，但也不禁令我反思我能當一名合格的記者嗎？
+
+入夜後，銅鑼灣街頭人開始多起來，有市民「行街」、有街站派蠟燭，警方亦開始加強搜查力度，特別在維園附近更有衝突的情況出現。我被指派在崇光百貨門外一帶候命，期間銅鑼灣港鐵站外突然出現混亂，據我現場聽到的消息，是有一名自稱是鳳凰衛視的記者被其他行家認出她是假記者，她衝入地鐵站後，警方築起防線，禁止其他記者一同進入地鐵站，更向我們表示「不要再向警方的防線推進」。由於被阻，大家無法查證當事人的身份。
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/蘋果日報-實習記者-20210724224402_dfb6_large.jpg" alt="">
+<figcaption>2021-06-04 警員警方築起防線，禁止記者進入地鐵站</figcaption>
+</figure>
+
+而在街站舉行期間，警方一直用擴音器重複播出有關於599G章的防疫條例，未見特別阻撓街站運作，亦有支持政府人士到場，當有爭執時警員便分隔現場人士，並帶走該名支持政府者，而結果如何則不了了之。
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/蘋果日報-實習記者-20210724224334_3a99_large.jpg" alt="">
+<figcaption>2021-06-04 紅衣女子（左）與市民對罵。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/實習記者-appledaily-20210724225152_1aa2_large.jpg" alt="">
+<figcaption>2021-06-04 紅衣女子被便衣警員帶走。</figcaption>
+</figure>
+
+於晚上八時，街頭更「熱鬧」，市民自發於街上點燃蠟燭，用自己方法悼念六四，而此時警方開始舉起旗幟警告市民散去，由街頭行到街尾再拆返，突奔跑，突然拉起封鎖線，有警員一邊說粗言穢語一邊向前跑，雖然不知意義如何，但作為記者只好默默地記錄以上發生的事情，然後報道。
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/蘋果日報-實習記者-20210724225205_1162_large.jpg" alt="">
+<figcaption>2021-06-04 警方在渣甸坊舉起旗幟警告市民。</figcaption>
+</figure>
+
+### 機會是自己爭取的
+
+在立法會舉行的行政長官答問大會，由於大部分官員都會出席，雖然有不同的機會可以讓記者詢問官員問題，但官員有可能不會回答。當日帶我在立法會採訪的全職記者告訴我：「如果你有問題想問就嗌出嚟，不過你都預咗佢唔答。」在《蘋果》最後營運日，這位記者在林鄭行會前見記者的場合，沒被選中發問，但他有大聲嗌條問題，當然最終未獲回答。
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/appledaily-實習記者-20210724224347_167d_large.jpg" alt="">
+<figcaption>行政長官與官員踏出立法會會議廳。</figcaption>
+</figure>
+
+突發組？我想像是做有關不同意外的新聞，但短短一星期的突發組生活，打破我的幻想。
+
+突發組的第一天已經令我難忘，我們每天早上要先向公司查詢當日上車地點，我當日與另外一名實習同學一起於大圍站等候，而上車後我查問今天有甚麼工作，答案讓我吃驚：「今日我哋要去殮房。」殮房？為什麼要去殮房？發生了甚麼？原來前一天發生沙田致命車禍，我們要在殮房等候家屬前來認領遺者，希望可以問到更多資訊。雖然網上有不少報道、有拍攝到親友於路邊拜祭的相片，但由於疫情關係大部份人士均戴上口罩，十分難辨認，根本不知道誰是死者的家屬。
+
+在殮房等待了一個早上未有收穫，便前往午餐，期間接到另一個更加驚訝的工作，就是要前往屯門雙屍案的住宅，訪問附近鄰居，同時查看單位現時情況。
+
+在前往屯門的路上，我和另一位同學一直商討應如何進入大廈，此時帶着我們的全職記者說：「扮上去搵朋友咪得」，雖然當下聽起來像很容易，但始終擔心保安森嚴無法進入。此時，我看到報道有記者成功進入大廈，碰巧地帶我們工作的記者認識該名行家，他提供了方法，最後我們裝傻扮懵，成功地進入大廈。
+
+大廈的走廊沒有窗戶，現場有點昏暗，我感到陰森，但為了採訪只得硬著頭皮。其中一個單位的住客為外籍人士，我只好用「半桶水」的英文發問，雖然最後還是成功採訪，但我並不完全聽得懂他的話，幸好有另外一位鄰居願意訪問，才令我們的報道成功「出街」。
+
+第二件我十分難忘的事，是警方搜查《蘋果》當日，我被派到將軍澳警署門外等副社長「敏姐」，現場有PPRB警員告訴我們「敏姐」即將離開將軍澳警署，另一名PPRB 警員一直望住我，大聲查問：「你邊一間㗎？」我感到愕然，只好簡單回答是《蘋果日報》記者後便繼續採訪。當載着「敏姐」的車離開警署後，我們亦要跟車回到壹傳媒大樓外等待，在大樓外，也採訪了開香檳慶祝《蘋果》倒閉的團體。約3小時後，「敏姐」再次被帶上車離去，不同的傳媒都直播《蘋果》大樓外的情況。當「敏組」離開時，我們再次跟車，更要全程錄影，不禁令我感受到突發組的強大。
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/實習記者-appledaily-20210724224421_1d7a_large.jpg" alt="">
+<figcaption>警方接載「敏姐」的車輛離開將軍澳警署。</figcaption>
+</figure>
+
+6月21號晚上，我在睡夢中醒來，看見實習生的聊天群組有數百條訊息，加上很多個未接來電，當中有一條訊息：「想通知你實習今日last day了，麻煩明天回公司交番個員工證，方便時請聯絡我」。
+
+當下還以為我在做夢，可惜事與願違，事情來得太突然，雖然每一日都以「今日係最後一日返工」的心態工作，但當確認消息後始終感到愕然，只好收拾心情，準備明天回公司。
+
+我們實習生的Last Day 與全職員工不一樣，當回到2樓辦公室後，看見有很多空座位，人去樓空的辦公室不得不叫我承認公司真的要「倒閉」了。靜態組留下來的人繼續堅守崗位，在「倒閉」前夕繼續提供新聞報道給港人，而「長年都唔會熄燈嘅突發房」以往被稱為「禁地」，今天再沒有緊張氣氛，日理萬機的「控制台」今天沒有人工作，大家像在談笑風生，我在猶豫是否可以入內參觀時，突發組的同事説「反正都Last Day啦，隨便參觀啦」。
+
+突發組的「控制台」有很多的電腦及電話，可以想像到平日這裏繁忙的景象，以前密集的電話鈴聲、鍵盤打字聲，今天都消失了。「控制台」上的牆壁有香港地圖，寫了不同的電話，例如PPRB、租船等等的電話，地圖上有一枚枚寫了號碼的磁石，原來是突發組的「實時監控」，以前資訊科技沒那麼發達時，這些磁石就是代表採訪車所在的位置，據突發組的全職同事說：「以前成日希望磁石跌落嚟，咁有事做嘅時候佢就唔會搵到我。」
+
+在參觀途中，突發組的坐堂主動與我「相認」說：「平時就係我喺電話度點你周圍去」，終於知道「幕後黑手」是誰的我反而感到悲傷，第一次見亦是最後一次。期間有人捧著兩箱物品走入來，原來是蘋果人的襟章，相信是公司特意製作給所有員工的紀念品。突發房中的確有不少「寶藏」，有許多年前得獎的報導，有不少書本，雖然這些東西大多會留在大樓內，但我相信《蘋果》的報道則會留在每一個人心中。
+
+公司即將「執笠」，在二樓中庭位置，有不少人在「辛苦晒各位同事」的橫額下拍照留念，間中有人捧著多箱物品放到長枱上——有《蘋果》近日的報紙、有以往出售的特刊、明信片、雨傘等等，而每一次有紀念品「出爐」時，原本安靜的辦公室頓時變得熱鬧，大家務求「搶到」《蘋果》的記念品。
+
+我們更有幸參觀印刷廠的內部，到最後，登上穿梭巴士離開大樓時，聽到一句：「呢部車從來都冇試過咁多人坐。」
+
+<figure>
+<img src="https://web.archive.org/web/20210920180555im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/實習記者-蘋果日報-20210724224438_2757_large.jpg" alt="">
+<figcaption>大樓2樓中庭放置《蘋果》紀念品，當有新品出現時，人群由四方八面湧過來挑選。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920180555/https://hkcnews.com/aboutus/#subscribe)

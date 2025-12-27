@@ -1,0 +1,62 @@
+---
+title: "重判唐英傑「光時」成禁語　官媒轟教協　文革臨香江"
+date: "2021-08-03"
+last_updated: "2021-08-03 16:27:53"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "新華社"
+  - "教協"
+  - "唐英傑"
+url: "https://web.archive.org/web/20211207090549/https://www.hkcnews.com/article/43961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43963/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43963/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 重判唐英傑「光時」成禁語　官媒轟教協　文革臨香江
+
+過去一周，最矚目的政治新聞有兩則，其一是高等法院三名國安法指定法官重判唐英傑入獄九年。去年7月1日他騎著插上「光復香港 時代革命」旗幟的電單車，穿梭港島鬧市及衝向警察防線，被裁定煽動分裂及恐怖活動罪成，此一裁決的客觀效果是令「光時」口號成為禁語，今後在香港展示政治文宣將變成高風險行為。
+
+其次，內地官媒《人民日報》及新華社於周五刊文，炮轟香港教協「煽暴搗亂」，是必須剷除的毒瘤，翌日香港教育局即宣布終止一切與教協的合作、諮詢、會議，不再承認教協的培訓，以及拒接教協轉介的個案等，教育局與擁有9萬5千會員的教師工會割席， **標誌著新一輪的批鬥將以教育界為主要目標，難怪教育行業中人概嘆，有如文革降臨香港，隨時造成十年浩劫。**
+
+<figure>
+<img src="https://web.archive.org/web/20211207090549im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/教協-20210803162044_2014_large.jpg" alt="">
+</figure>
+
+唐英傑案是港區國安法於去年6月30日由北京頒布實施後第一宗案件，具有重要的指標作用，此宗案件在預審階段已顯示，國安法案件與一般刑事案不同，包括主審法官必須來自指定法官名單，被告人一般不准保釋候審，雖在高院審訊也不設陪審團。到了審訊階段，控方傳召專家證人，從歷史及現代的語文字義角度，試圖證明在犯案時（2020年7月1日）「光時」口號只有一個合理解釋，就是強行將香港從中國分離出去，使香港脫離中國獨立，主審法官對此頗為受落，在判詞中大篇幅引述及不作質疑。
+
+可是，輪到辯方傳召專家證人時，兩位學者雖列舉多項研究作證據，力陳「光時」口號有多重意思，不同人有不同理解，不能簡單歸納為單一意思，主審法官對此卻反複質疑，但無法駁倒兩位學者， **於是主審法官作結論說，「光時」口號縱有多個意思，但其中可以包括港獨意思** ，而唐英案犯案的特定處境，包括非法衝擊警方防線、選擇七一回歸日行動、以挑戰法紀形式展示口號等，反映其動機並非展示一個合法溫和的口號，而是傳達一個非法的煽動分裂的信息，法院據此裁定他煽動分裂罪成。 **法院裁決沒有解釋的是，就算唐英傑犯案的特定手法，反映其傳達的應是非法信息，這個信息可以是延續街頭暴力抗爭，直至達成反修例運動的五大訴求，為何法院認定必然是指香港獨立？**
+
+至於恐怖活動罪，國安法條文規定，被告人行為須造成或意圖造成「嚴重社會危害」，但主審法官對此的理解是，危害不一定是身體受嚴重傷害，心理危害也包括在內，因此，雖然唐的行為只是導致三名警員輕傷，與一般恐怖襲擊相去甚遠，但三位主審法官卻認為，他騎電單車三次衝越警方防線，最後衝向一批警員撞傷三人，這景像會令不少守法的市民感到恐懼，是出於政治目的而令他們受到威嚇，屬於嚴重社會危害，法院據此裁定他恐怖活動罪成。
+
+按照法院這次裁決，嚴格來說，單是使用「光時」口號本身，並不足以構成煽動分裂，還要看使用的特定處境，才能推斷被告人是否有煽動分裂的犯罪意圖。可是，警方在執法上採取「有殺錯沒放過」的準則，只要看到有人在公眾場合展示或喊叫「光時」口號，便假定是煽動分裂，進行拘捕、調查、檢控，這樣的執法策略，加上被控告者不准保釋，而最終若被定罪，刑期介乎5至10年（唐的煽動分裂罪判6.5年，恐怖活動罪判8年，部分刑期合併執行，最終是監禁9年），在這樣嚴苛的處罰下，市民無論如何理解「光時」口號，相信都不敢冒險使用，所以裁決的客觀效果就是令「光時」口號成為政治禁語。
+
+> 這個客觀效果意味著，日後其他政治口號，只要在使用上與分裂、顛覆等意涵沾上邊，被建制定性為犯禁，就可以按照唐英傑案處理，使其絕跡於公眾領域，包括互聯網上的公開領域。
+
+<figure>
+<img src="https://web.archive.org/web/20211207090549im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/唐英傑-20210219170659_1fed_large.jpg" alt="">
+<figcaption>國安法首案被告唐英傑，上周五被判囚9年。美聯社圖片/資料圖片</figcaption>
+</figure>
+
+唐英傑案的政治震撼還未過去，新一波政治衝擊已經殺到，這次是由北京權威媒體新華社和《人民日報》擔當吹號手，吹響集結批鬥香港教協的號角。這兩家京媒同日刊出的評論文章，指教協名為教育專業機構，實際上卻是政治組織，與支聯會及民陣等政治組織糾葛甚深，不能藉退出而卸去責任，文章又攻擊教協策動教師罷工，鼓勵學生上街，充當了支援「黑暴」的角色，所以是必須剷除的「毒瘤」。這一波政治衝擊，鬥爭的對象非常明確，就是擁有9萬5千名會員、全港最大的工會，鬥爭的目標也相當明確，就是要把這個組織剷除，像把《蘋果日報》剷除那樣。
+
+特區政府馬上就有反應，教育局以五項具體行動與教協割席，包括不再視教協為諮詢對象，終止一切合作關係，撤消教協人員的公職任命，不承認教協辦的師資培訓，拒絕處理教協轉介的教師權益個案，這種表態是政治至上的，是不顧現實後果的，就算這樣做會損害前線教師利益，會為教育局官員執行教育政策製造諸般問題， **為了向北京表明效忠意圖，與北京點名批鬥的組織劃清界線，教育局也只能毫不猶豫地做，這種政治掛帥的行為模式，將貫徹落實到特區政府各個政策局上，成為香港管治新常態。**
+
+特區政府可以怎樣剷除教協？教協雖然財雄勢大，但始終是在香港營運的機構，國安處集中人力物力去調查它，只要找到蛛絲馬跡，可以扣上違反國安法的罪名，例如協助、教唆、串謀、資助其他政治組織，去作出煽動分裂或顛覆、勾結等，就可以拘控教協的主要理事，並向法院申請凍結教協的資產，就像拘控《蘋果》管理層及凍結《蘋果》資產那樣，癱瘓教協的運作，逼其解散。
+
+為何北京要把剷除教協列為鬥爭目標？在國安法實施一年後，曾經積極投身社運但實力較弱的公民組織，已經陸續停止運作，一些小型的獨立工會或專業組織，也因成員被控或移民海外而相繼消失， **仍然有實力撐下去並繼續發聲的，實際上只剩下幾個專業組織，如教協、大律師公會、記者協會等，假如國安處能成功癱瘓教協，就有可能令整個公民社會噤聲，也能消除政府整頓教育界的阻力，使教育盡早變成政治洗腦，杜絕年輕人在學校感染抗爭思維。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207090549/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20211207090549im_/https://www.hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

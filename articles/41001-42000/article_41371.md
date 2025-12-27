@@ -1,0 +1,65 @@
+---
+title: "梁振英翻炒郊野公園邊陲建屋　借方案砌林鄭房策失敗"
+date: "2021-05-14"
+last_updated: "2021-05-14 23:00:51"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "leung chun ying"
+  - "梁振英"
+  - "689"
+  - "CY Leung"
+  - "思歪梁"
+  - "狼英"
+  - "梁特"
+  - "梁特首"
+  - "港獨之父"
+  - "郊野公園邊陲地"
+  - "特首選舉"
+url: "https://web.archive.org/web/20210724210507/https://www.hkcnews.com/article/41371/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41371/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 梁振英翻炒郊野公園邊陲建屋　借方案砌林鄭房策失敗
+
+
+{{< video src="https://web.archive.org/web/20210724210507if_/https://www.youtube.com/embed/IO6WWKRYSfE" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210724210507/https://bit.ly/2Cj8v4t)
+
+明年特首「選舉」仍有接近10個月才舉行， 特首林鄭月娥擁有在位優勢，無須爭取曝光機會， 有意落場人士開始製造聲勢，並不令人感到意外；前特首梁振英有意再競逐，亦是公開秘密，令人感到奇怪的是，他早在去年已開始進行「選舉」工程，先在再參選問題上露口風，在不少具體議題，與林鄭政府唱反調、甚至隔空拳來腳往，近日，「梁粉」更進一步擺明車馬，硬銷梁振英，CY也赤膊上陣。
+
+林鄭昨日64歲生日，梁振英十分「有心」，在facebook不點名送桃賀壽，借桃寄甚麼「意」，太高深！另一篇貼文卻寫得十分清楚，重提郊野公園邊陲建居屋方案，明踩林鄭房屋政策失敗，向林鄭挑機，嘹交嗌。
+
+梁振英上周在facebook重提成立文化局的建議，昨日再在facebook提出「雖然明知障礙重重， 既得利益阻力巨大，但我仍然希望香港人能夠重新考慮在郊野公園邊陲地帶起居屋」。他稱任內提出研究郊野公園邊陲地帶建公營房屋，惟現屆政府2019年初中止房協有關研究。
+
+他接受當年梁振英競選辦成員擔任董事的齊心基金轄下網媒「港人講地」訪問，被問為何重提計劃，梁稱有具體價錢建議，就知道市民是否支持，「當日的結論（中止有關研究），為何大部分市民不支持，我都不是很清楚。」
+
+翻查紀錄，2019年2月土地供應專責小組報告後，發展局局長黃偉綸回應時指，專責小組特別指出郊園邊陲建屋方案未能獲得大多數市民的支持，小組亦認為和其他中長期選項比較，郊園選項較為複雜，牽涉的生態等種種問題多，亦可能牽涉法律上的爭議，社會上有「強烈保留」。
+
+林鄭政府兩年前KO梁振英政府提出的郊園方案，社會上並沒有太大反對聲音，已經解答了CY提出的問題「為何大部分市民不支持」，梁振英今日重提，不排除是對建議死心不息， 更主要是要說「兩年過去了，香港的房屋問題持續惡化。」
+
+土地房屋是林鄭上任以來的主打議題，CY一句「持續惡化」， 出手狠，擊中要害。梁振英與「梁粉」及寫手對準林鄭施政及各項政策的攻擊，將陸續有來， 目的要說服北京「林鄭好唔掂」，應考慮其他人選，包括再給梁振英一個機會。
+
+梁振英近月已表明心跡，「對國家和香港有利，他都願意盡自己力量去做」。他任內行會成員張志剛日前代他放風說 ，假如以全國政協副主席身份兼任特首，CY要二選一， 他寧可辭去政協職務，只做特首。張志剛說，CY做特首有直達北京的「優勢」，「 周恩來也兼任過外交部長一段長時間，有沒有人說過他『降格』？」
+
+張志剛接受《香港01》專訪時表示，本港政治議程已重新洗牌，中央不需要再擔心選舉「出事」影響國家利益，認為來屆特首選舉應開放競爭，至少讓兩人入閘角逐。張志剛的潛台詞清楚不過，不應讓林鄭在無競爭下連任。
+
+梁振英及「梁營」頻頻出招，有理由相信中央已開始醞釀下屆特首人選，特首戰第一仗是說服中央容許競爭，「梁營」動作多多，顯示中央仍未作出相關決定，建制內鬥只是剛開始。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724210507/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210724210507im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

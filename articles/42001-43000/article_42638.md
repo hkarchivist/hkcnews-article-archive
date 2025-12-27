@@ -1,0 +1,106 @@
+---
+title: "【11.11中大暴動案】警承認當日觀察有盲點　辯方質疑未拘捕先帶走被告　警：保護佢安全"
+date: "2021-06-22"
+last_updated: "2021-06-22 20:56:22"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "中大二號橋"
+  - "中大保衛戰"
+  - "中大暴動案"
+url: "https://web.archive.org/web/20210920173926/https://hkcnews.com/article/42638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42651/%EF%BF%BD%EF%BF%BD%EF%BF%BD1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/42638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42651/%EF%BF%BD%EF%BF%BD%EF%BF%BD1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【11.11中大暴動案】警承認當日觀察有盲點　辯方質疑未拘捕先帶走被告　警：保護佢安全
+
+前年11月11日中大二號橋衝突，5名中大學生被指在校園內暴動，案件今（22日）在區域法院（借用西九龍裁判法院）續審，由區域法院暫委法官張潔宜審理。案發時拘捕首被告的警員許冠雄承認，當時觀察示威者有盲點，同意在垃圾車後的示威者有可能不是首被告。案發拘捕第二被告的警員陳仲球作供時，對於追捕時曾多少次將視線移離第二被告和何時截停被告等問題，均表示不清楚。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173926im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/中大暴動案-中大二號橋-20210622174842_14b3_large.jpg" alt="">
+<figcaption>拘捕首被告的警員許冠雄。鄭啟智攝</figcaption>
+</figure>
+
+### 辯方爭議首被告與前線垃圾車距離
+
+控方今早首先傳召案發時拘捕首被告劉晉旭的警員許冠雄。許作供時表示，當日下午約2時25分，大約20名示威者由警方防線的左前方走到環迴東路與二號橋交界，匿藏於5輛黃色垃圾車後，並開始向警方投擲汽油彈。他當時收到上級指令向前推進和掃蕩示威者，在路口左轉，發現第一被告從黃色垃圾車背後走出來，當時首被告距離垃圾車約1至2米，之後沿環迴東路向大學站方向逃跑。
+
+許冠雄在庭上表示，第一被告當時身穿黑衫、戴上黑色鴨舌帽、全面罩防毒面具和手套，認為其裝束，與之前在躲垃圾車後的示威者相似，相信他有份襲擊警方，於是尾隨追截，並高叫「警察，咪郁！否則使用武力。」惟首被告繼續逃跑，並跨越欄桿打算從馬路走上行人路，許遂衝上前制服首被告。許拘捕首被告後，將他帶到近賽馬會研究生宿舍位置進行快速搜查。許冠雄之後表示，首被告戴上防毒面具後未能看見其容貌，最多只能看到其雙眼。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173926im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/中大二號橋-中大暴動案-20210621190020_277b_large.jpg" alt="">
+<figcaption>首被告劉晉旭（資料圖片）</figcaption>
+</figure>
+
+代表首被告的大律師關百安盤問許冠雄時，聚焦於當時首被告與黃色垃圾車的距離。關百安指出，首被告當時距離垃圾車約20至30米，而非許所指的1至2米，惟許不同意。關之後將一幅由許冠雄在去年4月初繪畫的現場地圖草圖呈堂，圖中所標示首被告與黃色垃圾車的距離，跟許表示警方防線與黃色垃圾車的距離相約。許冠雄不同意，稱草圖並不是按比例繪畫，強調首次看見首被告時，首被告距垃圾車約1至2米。
+
+許冠雄之後表示，草圖中標示首被告的位置，並非他第一眼見到首被告的位置。關百安要求許在圖上再標示，法官張潔宜聞言指：「佢呢幅圖都唔合比例，咁佢證供都話黃色垃圾車後1-2米囉，你叫佢呢幅圖畫喺邊呢？」最終許亦有在草圖標示相關位置。
+
+許冠雄盤問時同意在身處垃圾車後可能是其他人，未必是首被告，也承認當時的觀察上可能有盲點。關百安盤問時亦指出，許上前掃蕩時警方施放催淚煙，現場煙霧彌漫影響視線。許回應指他在同袍施放催淚彈的同一時間便向前跑，因此在看到和追捕首被告時，催淚彈的煙霧仍未四散，視線尚算清晰。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173926im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/大律師-關百安-20210621185806_415e_large.jpg" alt="">
+<figcaption>大律師關百安（資料圖片）</figcaption>
+</figure>
+
+### 拘次被告警員屢答「唔清楚」、「唔肯定」：不是竭盡所能追捕
+
+控方之後傳召當日拘捕第二被告符凱晴的警員陳仲球。陳在控方盤問時表示，當日下午約2時25分，示威者第四次衝擊警方防線，他沿環迴東路向大學站方向掃蕩，推進約3米後，發現身處其前方約5米的第二被告，當時第二被告距離黃色垃圾車約20米。第二被告當時身穿黑色長袖衫褲，背著黑色背囊，戴著半面式防毒面罩，頭上圍著灰色面巾。陳稱防毒面罩遮擋次被告鼻以下的位置，面巾則包裹著頭頂。
+
+追捕期間，陳指他的視線曾短暫離開次被告「零點幾秒」以看清前路。他形容第二被告逃走時不時向後望，他確保環境許可後，便從行人路跨越欄桿到馬路拘捕第二被告。陳續指，他當時捉住第二被告雙手，遇到反抗並將她制服在地，第二被告當時極力掙扎，陳的防毒面具被撞到，吸入少量催淚煙。由於現場情況混亂，他將第二被告帶回二號橋附近，並在下午2時30分以涉嫌非法集結和違反禁蒙面法拘捕她。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173926im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/中大二號橋-中大暴動案-20210622174831_c497_large.jpg" alt="">
+<figcaption>拘捕第二被告符凱晴的警員陳仲球。鄭啟智攝</figcaption>
+</figure>
+
+陳仲球在辯方大律師許卓倫盤問時，對於當時有幾多名警員在他前方，追捕期間有多長時間將視線移離次被告等問題，多次回答說不肯定和不清楚。陳仲球在盤問時指當時追捕次被告約數十秒，但不肯定何時截停次被告和何時將她帶到二號橋。許卓倫問陳當時是否「竭盡所能」追捕次被告，陳回答：「唔係」。許續問是否「慢慢行」？陳回應指不是，當時只是跟隨大隊快速步行。
+
+許卓倫在盤問時質疑，陳仲球下午作供稱現場「大部分」示威者身穿黑衫黑褲，但早上卻說全部示威者的衣飾一致，陳回應指他所觀察到大部分示威者，其衣飾均為黑衫黑褲。許又問到，為何陳仲球在記事簿和兩次口供紀錄均沒有提及次被告曾多次向後望，陳回應指書面不能記錄所有事情和被告全部動作，認為沒有需要。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173926im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/許卓倫-大律師-20210621185824_27b2_large.jpg" alt="">
+<figcaption>大律師許卓倫（資料圖片）</figcaption>
+</figure>
+
+**許卓倫在盤問時亦質疑，為何警員當時未宣佈拘捕第二被告，就將她帶到二號橋的警方防線。**
+
+許：「你憑咩帶佢返去站崗（即警方防線）？」
+
+陳：「保護佢嘅安全。」
+
+許：「你有冇講保護佢安全？你有冇講拘捕？有冇講你係警察？」
+
+陳：「當時有講『警察，咪郁』。」
+
+許：「咁就可以亂咁帶人走？」
+
+陳：「要保護佢安全。」
+
+許：「你認為咁樣法律上可以？」
+
+陳：「係。」
+
+許：「咁邊個教你？」
+
+陳：「警察有權保護任何人嘅安全。」
+
+許：「無人教你？」
+
+陳：「學院教官教。」
+
+庭上今日亦盤問了兩名分別負責處理第一和第二被告的證物的警員，案件明日續審。
+
+五名被告依次為案發時21歲的劉晉旭、符凱晴、高梓斌，案發時分別18和20歲的陳歷釋和許貽顓，他們被指於前年11月11日，在中文大學賽馬會研究生宿舍一座附近二號橋及環迴東路一帶參與暴動，另各被控一項在「非法集結中使用蒙面物品」，即在同一地點以防毒面罩、半面式防毒面罩、圍巾、頭套、眼罩等物品蒙面。
+
+第二被告符凱晴及第五被告許貽顓另被控一項「管有攻擊性武器或其他適合作非法用途的工具」罪，指符於同一地點管有一個螺絲批及一個不連手抦的金屬鎚頭；許則管有一把扳手（即士巴拿）。
+
+【案件編號：DCCC361/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920173926/https://hkcnews.com/aboutus/#subscribe)

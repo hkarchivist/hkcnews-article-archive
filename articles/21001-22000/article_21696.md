@@ -1,0 +1,100 @@
+---
+title: "我終於見到了王全璋"
+date: "2019-06-28"
+last_updated: "2019-07-01 01:37:36"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "維權律師"
+  - "王全璋"
+  - "李文足"
+url: "https://web.archive.org/web/20210924232421/https://www.hkcnews.com/article/21696/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21698/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21696/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21698/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 我終於見到了王全璋
+
+<figure>
+<img src="https://web.archive.org/web/20210924232421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/李文足-王全璋-維權律師-20190628223151_192d_large.jpg" alt="">
+<figcaption>李文足見過丈夫王全璋後，離開時接受香港記者訪問，忍不住淚水。香港電台影片截圖</figcaption>
+</figure>
+
+相關報道： [李文足監獄探王全璋：焦躁消瘦蒼老　不是以前那個全璋](https://web.archive.org/web/20210924232421/https://bit.ly/2NjzAeJ)
+
+我拉著兒子泉泉，和全秀姐一起被警察帶著走進會見大廳。
+
+我眼睛緊緊盯著玻璃牆裡面坐著的男人，認出了那就是全璋。我激動地朝他笑並揮手。但是他瞟了我一眼，沒有表情，還把頭扭向一邊不看我。我心裡緊了一下，但顧不上多想，趕緊坐下，拿起電話。全璋沒有表情，低著頭，開始撥電話。
+
+我努力平復著翻江倒海的心情，看著他的臉，笑著說：「老公，好久不見了……」
+
+全璋的目光彷彿沒有焦距，並沒有與我四目相對。他目光空洞，不知道看向哪裡，慢慢回了一聲：「好久不見。」
+
+我趕緊把孩子推到前面，說：「泉泉，叫爸爸。」全璋看見兒子，嘴角微微上挑了一下，算是笑了一下。
+
+泉泉興奮地叫了一聲爸爸，說：「爸爸你吃得好嗎？」全璋慢慢地回答：「吃得好，有炒菜，有饅頭，有包子，有加餐，什麼都有.....」我抱著兒子，全秀姐拿過話筒，問了一句：「加餐都加的什麼？」
+
+全璋聽了全秀姐問話，朝我看了一眼，目光又轉到一邊，表情又回到木木的，嘴裡喃喃道：「加餐加了什麼......」
+
+全璋開始撓頭，彷彿陷入痛苦地思考中，左右晃著自己的光頭。
+
+突然，全璋一下子焦躁起來，說話聲音都高了八度：「我很好！監獄對我很好！不是你們想的那樣！！」
+
+我趕緊從全秀姐手機裡接過電話，開始安撫他：「全璋，彆著急，彆著急，慢慢說.....」
+
+全璋更焦躁了，眼睛避開我的視線，低頭不住地反反覆覆嘮叨：「我很好！我很好！監獄對我很好！我長胖了。我高血壓好了。我不吃藥了！現在吃鈣片，每天都吃。我住的也很好.....」
+
+我眼淚流了下來，看著全璋瘦削的臉，他身高176，以前可是180斤的體重啊。他這叫胖了？他的皮膚本來是白皙的，但是現在除了臉變得很黑，手上的皮膚都是黑的了。他本來整整齊齊的兩顆大門牙，中間竟然有了極寬的牙縫。
+
+我的眼淚一直流，一直流。坐在我懷裡的泉泉把我手裡捏的紙巾掏出來，給我擦眼淚。全璋抬頭看了我一眼。他的表情依然是呆滯的、麻木的。他看著我流淚，彷彿在看一個外人，而不是他四年未見的妻子。
+
+我淚眼模糊地看著全璋，全璋又把視線移開了。我是他妻子，為什麼他不看我呢？？
+
+全璋好像平靜了一點兒，拿起了一直攤在他面前的一張紙，說：「我有事要交代你。我怕自己記不住，就寫到紙上。」
+
+我豎起耳朵，想聽他交代事情。全璋開口，急促地說：「我擔心你......你別做了.......你看卞曉暉就是要求會見，就被抓了。我擔心你......你什麼都不要做了.......」
+
+（卞曉暉是全璋以前的當事人，是個大學生，自己父親因練法輪功被剝奪會見權，卞堅持要求律師會見父親，舉牌抗議，就被抓了。判了四年。）
+
+全璋反覆說擔心我，眼睛卻盯著那張紙。說完一句，好像不知道再說什麼，眼睛就在紙上找。
+
+我趕緊安撫全璋：「沒事，全璋。我沒事......」
+
+全璋又開始暴躁了起來，眼睛盯著紙，很痛苦的樣子。嗓門再一次提高：「你不要做，我擔心你。帶好泉泉，讓泉泉好好上學。泉泉受影響，對泉泉不好！」
+
+我安慰他：「泉泉很好，你別擔心！」
+
+全璋低著頭，不看我，低吼了起來：「泉泉不好，你看不出來！你不知道！」
+
+我被全璋的反應驚住了。他拿的那張紙，他放在手中翻來覆去地，他再沒看一眼。我看見上面密密麻麻寫滿了字。他眼睛不看我，無目的地看著地下 ，我說什麼他似乎都無法接收。
+
+泉泉在我旁邊忍不住了，抓過電話，安撫著爸爸：「爸爸，我很好。真的很好！」全璋彷彿沒有聽見泉泉的話，嘴中依然叨叨著：「你看不出來。你不知道........」
+
+我眼淚再一次控制不住地流出來。
+
+這時電話裡「嘀」的一聲，全璋木木地說了一句：「還有一分鐘了。」
+
+泉泉喊了一句：「爸爸，我愛你！」全璋彷彿機器人一般，木木地回覆了語調平直的一句：「我也愛你。」
+
+話筒裡沒聲音了。全璋站起身，我們也站起身。孩子把手貼在玻璃上，全璋表情木木地也把手在玻璃窗上放了一下，然後轉身，走了。十幾米的路，我看著他的背影，眼淚又流了出來：四年了，他竟然像編好程序的呆滯的木頭人，連回頭看我們母子一眼都沒有。
+
+李文足
+
+2019年6月28日晚8:30於臨沂
+
+**原文上載於 [TwitLonger](https://web.archive.org/web/20210924232421/https://www.twitlonger.com/show/n_1squasr)**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924232421/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20210924232421im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

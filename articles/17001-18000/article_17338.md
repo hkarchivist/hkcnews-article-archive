@@ -1,0 +1,39 @@
+---
+title: "抗議特朗普美軍撤出敘利亞決定　美防長馬蒂斯辭職"
+date: "2018-12-21"
+last_updated: "2018-12-21 10:46:12"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "馬蒂斯"
+  - "辭職"
+url: "https://web.archive.org/web/20210727222247/https://www.hkcnews.com/article/17338/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17348/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/17338/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17348/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 抗議特朗普美軍撤出敘利亞決定　美防長馬蒂斯辭職
+
+<figure>
+<img src="https://web.archive.org/web/20210727222247im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/馬蒂斯-辭職-20181221075419_7995_large.png" alt="">
+<figcaption>馬蒂斯辭去國防部長一職。資料圖片</figcaption>
+</figure>
+
+美國總統特朗普周四傍晚在twitter宣布，國防部長馬蒂斯（James Mattis）將於明年2月底退休。不過，《紐約時報》則報道，前為海軍陸戰隊四星上將的馬蒂斯是提出辭職，抗議特朗普宣布從敘利亞撤軍的決定。
+
+《紐約時報》報道，周四下午馬蒂斯前往白宮，企圖盡最後努力，說服特朗普不要撤回在敘利亞的二千名美軍部隊。但是特朗普不為所動，馬蒂斯於是辭職。幾個鐘頭之後，國防部發放馬蒂斯的辭職信內容，信中隱晦批評特朗普，並說相信總統應當有一個更好的國防部長。
+
+特朗普與馬蒂斯不和已久，有報道說，馬蒂斯曾對朋友說，他留在政府，是要保護國防部及130萬名軍人。特朗普對馬蒂斯亦出言不遜，今年10月，他說馬蒂斯「像一個民主黨人」，暗示馬蒂斯背叛執政共和黨。參議院軍事委員會成員、民主黨成員華納在twitter說，「這真是令人駭然」，「馬蒂斯是混亂不堪的特朗普政府內的一個穩定島嶼」。
+
+馬蒂斯辭職事件，除了加深民主黨人不滿特朗普，共和黨內也出現反彈。參議員盧比奧（Marco Rubio）表示，「愈發明顯，我們正朝向一連串的嚴峻政策錯誤。這會令我國陷於危險當中，損害我們的盟友，以及令我們的敵人強大」。在早前最高法院大法官提名支持特朗普的共和黨參議員格拉咸（Lindsey Graham）表示，這是給敵人的一份厚禮，是對盟友的巨大打擊。特朗普隨即在facebook留言，「很難相信格拉咸會反對拯救軍人的性命，以及省下數以十億美元」。他並說，為什麼美國要為了敵人敘利亞而與「伊期蘭國」作戰，又表示「是時候聚焦於國家，把青年人帶回他們本來的家園」。
+
+《紐約時報》記者紀思道在facebook留言，「國防部長馬蒂斯離去，我們不知誰會接替他。但我擔心的是，這會令到世界更加危險。馬蒂斯善於處理與特朗普的關係，限制了他突然採取軍事行動的衝動（例如18個月前對北韓的想法）」。
+
+近期的爭端，以馬蒂斯為首的國防與國家安全團隊認為，美國不應在「伊斯蘭國」未完全消滅之際撤軍，令中東出現權力真空。但他們的意見顯然不受特朗普青睞，而馬蒂斯被排除在特朗普決策核心圈外已有一段時間。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727222247/https://www.hkcnews.com/aboutus/#subscribe)

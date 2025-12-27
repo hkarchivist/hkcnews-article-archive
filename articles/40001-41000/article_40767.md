@@ -1,0 +1,66 @@
+---
+title: "入境處偷步公開反駁審計報告　審計署長引政府指引不回應　石禮謙憂公開評論影響制度"
+date: "2021-04-29"
+last_updated: "2021-04-29 19:40:12"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "審計報告"
+  - "入境處"
+  - "朱乃璋"
+url: "https://web.archive.org/web/20210924235117/https://www.hkcnews.com/article/40767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40786/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40786/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 入境處偷步公開反駁審計報告　審計署長引政府指引不回應　石禮謙憂公開評論影響制度
+
+[入境處深夜發新聞稿](https://web.archive.org/web/20210924235117/https://www.info.gov.hk/gia/general/202104/28/P2021042800930.htm) 公開反駁審計報告指假結婚調查積壓，該處不點名批評「對於一些不懂刑事調查的人胡亂批評執法部門的個案處理手法」。不過，政府內部通告表明在立法會政府帳目委員會審議前，不論局長、部門首長或下屬「都應避免公開反駁報告書所載的審計結果」，及提醒要「正面和積極回應有關審查工作」，公務員對入境處公然偷步反擊審計署議論紛紛。直接向特首負責的審計署署長朱乃璋今早書面回覆眾新聞查詢，引述政府與立法會協議在帳委會公開聆訊前盡量避免公開評論，故審計署不會公開回應入境處聲明。
+
+<figure>
+<img src="https://web.archive.org/web/20210924235117im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/審計署-20210429133445_27ab_large.png" alt="">
+</figure>
+
+立法會帳委會主席石禮謙周四向眾新聞說，會將入境處聲明紀錄在案，但帳委會會議保密，會根據事實判斷。他也引述政府過去通告中訂明部門在帳委會程序何時回應，認為任何人此時公開回應都會「upset the whole system」（破壞整個制度）。
+
+帳委會前副主席梁繼昌則說，入境處聲明及審計署評論調查個案都不尋常，認為市民看到入境處聲明會想：「點解兩個政府部門會咁？」
+
+事件擾攘大半日後，保安局說已提醒入境處政府與立法會帳委會避免聆訊前公開爭辯的共識。保安局發言人說：「政府帳目委員會稍後會跟進審計署有關報告，屆時入境處可作交代。在此之前，我們不作進一步評論。」據悉，入境處周三深夜「不懂刑事調查的人胡亂批評執法部門」由入境處決定發出自辯，事件鬧大後政策局撲火。
+
+<figure>
+<img src="https://web.archive.org/web/20210924235117im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/審計署-朱乃璋-20210429125959_2645_large.jpg" alt="">
+<figcaption>朱乃璋周四早上出席立法會帳委會閉門會議。眾新聞記者攝</figcaption>
+</figure>
+
+最新一份審計報告質疑入境處處理積壓假結婚調查個案不力，並引述2012年一宗內地當局轉介給入境處的個案，入境處聯絡到疑犯但未能會面，多年後疑犯去世。周三公布的審計報告中引述入境處原則上接受調查假結婚的建議，但其後入境處深夜高調發稿反駁多項內容。事件更令人關注到2019年修例風波後紀律部門得勢、文官失勢的趨勢。
+
+### 立會帳委會未拍板會否調查入境處
+
+根據程序，立法會帳委會將在周三的審計報告中選擇課題進一步調查，進行公開聆訊時有權傳召官員或相關人員應訊，其後政務司司長將公開回應帳委會報告書。立法會帳委會周四閉門會議後未拍板會否調查入境處。
+
+審計署署長朱乃璋回覆查詢時說，根據立法會帳目委員會及政府的協議，在向立法會提交審計署署長報告及帳委會公開聆訊（如有的話）之前，應盡量避免公開評論將進一步調查的事項，以確保帳委會公開聆訊順利及公平進行。朱乃璋「為了符合這指引，審計署不會公開評論入境處聲明。」審計署下午亦發新聞稿引述政府內部指引說法。
+
+朱乃璋及石禮謙所引述指引，來自財經事務及庫務局局長發出、名為「審計署署長的報告書和政府帳目委員會的調查工作」內部通告，通知局長、部門首長及所有相關人員處理審計報告及其後流程，最後一次在2020年9月更新。
+
+該通告當中明確提及，立法會帳委會與政府同意在審計報告提交立法會至公開聆訊期間，「雙方應盡量避免公開爭辯委員會會進一步調查的事項」。
+
+### 公務員內部通告: 應避免公開反駁報告
+
+**通告提及：「不論是有關的局長、部門首長和/或公共機構主管， 還是他們的屬下人員，都應避免公開反駁報告書所載的審計結 果。不過，他們可以按回應口徑回答傳媒查詢。」**
+
+通告又提醒，部門回應審計報告書擬稿的意見可能列入報告書，作為政府的正式回應，建議局長及部門首長親自審閱回覆，如果對內容有異議則應該及早通知審計署長。
+
+入境處今次強硬批評審計報告，及一改原則性認同審計報告的結論，做法令人側目。但該通告在2020年9月更新內容，提醒政府部門要「正面和積極回應審計署的審查工作，並視之為可改善運作和管治、彌補不足和糾正不合規情況的機會」。另一處主要更新，則是提醒各政府部門在「處理審計署的查詢時，確保在最初階段已真誠回應和澄清疑點（在有需要時提供相關資料以資證明），並準確和妥善反映相關事實」。
+
+曾任帳委會副主席的梁繼昌說，事件令人意外，一方面入境處再回應審計署不尋常，另一方面審計署雖然有權限調查個案，但基於衡工量值也較少評論個案內容，同樣也是不尋常。
+
+他續說，一般而言，審計署在公開報告之前都會傳閱給部門回應，過去政府部門即使不完全同意，都會在審計報告內回應。
+
+他關注日後審計署如何處理執法部門：「政府紀律部隊及審計將來不可能不做（審計），將來一些comment點處理？其實兩個部門是否（本來就）互不同意呢？」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924235117/https://www.hkcnews.com/aboutus/#subscribe)

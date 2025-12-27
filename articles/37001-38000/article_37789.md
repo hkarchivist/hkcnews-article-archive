@@ -1,0 +1,71 @@
+---
+title: "民政署派1700萬個口罩　鄉委會、同鄉會佔四成　香港中西區各界協會獨得56萬個"
+date: "2021-02-03"
+last_updated: "2021-02-03 03:48:19"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "劉江華"
+  - "LAU Kong-wah"
+  - "民政事務局局長"
+  - "民政事務局"
+  - "民政事務處"
+  - "民政事務署"
+  - "Secretary for Home Affairs"
+  - "home affairs department"
+  - "home affairs"
+  - "口罩"
+  - "區議會"
+url: "https://web.archive.org/web/20210805040122/https://www.hkcnews.com/article/37789/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37798/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1700%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD56%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37789/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37798/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1700%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD56%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民政署派1700萬個口罩　鄉委會、同鄉會佔四成　香港中西區各界協會獨得56萬個
+
+民政總署去年12月表示，在兩個月內提供約1,700萬個口罩給區議會、地區團體、社福機構等，派發給市民。油尖旺區議員林兆彬早前引用《公開資料守則》要求政府交代這批口罩去向，政府昨日回覆名單。同鄉會、社團聯會等組織合共獲發約448萬個；鄉事委員會合共獲發279萬個，兩者合共佔了四成。只有5區區議員獲發口罩，合共獲發數量少於123萬個，佔約7%。
+
+<figure>
+<img src="https://web.archive.org/web/20210805040122im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/口罩-民政署-20210203034733_5e9e_large.jpg" alt="">
+</figure>
+
+**根據署方提供的名單，口罩分佈如下：（依數量排列）**
+
+．曾出現多宗確診個案的屋苑：共494萬個。
+
+**．同鄉會、社團聯會等組織：合共約448萬個。其中香港中西區各界協會獲派數量為名單之最，獨得56萬個；港島各界聯合會、九龍及新界社團聯會各獲30萬個；多個同鄉會、社團總會則各獲15萬個。**
+
+**．鄉事委員會：全數27個鄉事委員會各獲發10萬個，合共約279萬個。**
+
+．非牟利組織及宗教團體：約236萬個。
+
+．學校及學校聯會：合共約42萬個。除學校聯會取得3萬個外，中小學各獲發6,000個，幼稚園獲2,500個。
+
+**．街坊福利會、居民聯會：合共約18萬個。**
+
+**．婦女會、青年聯會、敬老會等地區團體：合共約34萬個。**
+
+．民政事務處：18萬個
+
+．區議員及民政事務處：只有5區區議會獲分發口罩。屯門區議員獲發16萬個；灣仔區議員獲6.5萬個。至於中西區、油尖旺及東區，派予區議員及NGO的數量一併計算，三區分別獲49.5萬個、約41萬個及10萬個，未知當中分布。全部合共計算為123萬個，區議員獲發的數量相信少於此數。
+
+若依每個團體獲發的數量來看，獲分派最多的團體為香港中西區各界協會，獨得56萬個。灣仔民政事務處、葵青民政事務處、沙田民政處、屯門民政事務處亦獲發3,500至近7萬個，惟未知具體去向。曾出現多宗確診個案的屋苑如長康邨、麗瑤邨等，獲發的數量較多，每個屋苑約10多萬至40多萬個。
+
+不少建制社團組織均獲發數十萬個，當中香港島各界聯合會、九龍社團聯會、新界社團聯會各獲得30萬個；廣東社團總會、浙江省同鄉會聯合會等同鄉會組織各獲發15萬個。學校平均獲發2,500至6,000個。非牟利組織則獲發數百至數萬個不等。
+
+眾新聞正向民政總署查詢派發口罩的準則，暫未獲回覆。
+
+林兆彬批評民政署分配口罩的機制是黑箱作業，無準則可言，並指分配並不合比例，質疑是利益輸送予建制社團，「例如你按返鄉事委員人口，冇理由會按比例拎到十萬個口罩。」他指，反而18個區議會，只有數個區議會獲發口罩，十分奇怪。
+
+他質疑分配有重複之嫌，舉例指很多社團聯會均獲發口罩；而全港最大的社團聯會港島各界聯合會、九龍及新界社團聯會，亦各獲30萬個口罩，「好多社團聯會都係佢嘅會員或者附屬，有機會重複」。他質疑民政署是偏坦建制組織，「畀自己友」，變相打壓區議會。
+
+油尖旺區議會獲分發的口罩數量與分發予非牟利組織的一併計算，合共為41萬。林兆彬指，他及其餘區議員每人獲發5,000個，換言之當中只有10萬個為發予區議員，其餘31萬去向未明。
+
+[民政署公開的口罩分配名單（林兆彬提供）](https://web.archive.org/web/20210805040122/https://drive.google.com/file/d/1bk6FkplhPCtVGCmAVRoXvIBcAiTXRuin/view?fbclid=IwAR13x92uKjZeO_nvtaBkaydXiTLHmDa7wkpBo3jfCdRQPPVNaNt6rHvrwnU)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805040122/https://www.hkcnews.com/aboutus/#subscribe)

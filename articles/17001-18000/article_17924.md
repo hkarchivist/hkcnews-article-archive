@@ -1,0 +1,94 @@
+---
+title: "陳文敏：中、港法律文化衝突更見明顯　「勉強融合會唔見咗兩制」"
+date: "2019-01-17"
+last_updated: "2019-01-17 23:55:26"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "陳文敏"
+  - "一地兩檢"
+  - "人大釋法"
+url: "https://web.archive.org/web/20210805040230/https://www.hkcnews.com/article/17924/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/17924/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳文敏：中、港法律文化衝突更見明顯　「勉強融合會唔見咗兩制」
+
+香港大學法律學院教授陳文敏，在眾新聞成立兩周年午宴暨研討會上，就香港的法制作回顧及展望。他由「一國兩制」說起，闡釋人大釋法及人大決議觸及的問題，並提出他對中、港法律制度勉強「融合」、「銜接」的憂慮－－香港的普通法面臨衝突，失去「一國兩制」。
+
+<figure>
+<img src="https://web.archive.org/web/20210805040230im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/陳文敏-20190117230017_ad62_large.jpg" alt="">
+<figcaption>香港大學法律學院教授陳文敏周四出席眾新聞成立兩周年午宴暨研討會。何君健攝</figcaption>
+</figure>
+
+陳文敏由「一國兩制」說起。他表示，「一國兩制」實施22年，「一國兩制」要有「兩制」，是因為兩個制度有分別，「如果我哋要堅持一國兩制，係要維持兩個制度唔同嘅地方；如果將兩制不同嘅地方勉強融合，最終我哋會唔見咗兩制。」
+
+陳文敏指出，兩個制度最大的分別，在於兩地的法律制度、法律文化及法治。而兩種法律制度的分別，不僅是兩個制度的分別，亦是兩種法律文化之間的衝突：一方面，香港有一種相信權力制衡的普通法制度；另一方面，是一種中央集權，不相信三權分立，甚至不相信權力要受制衡的制度。然而，這兩種法律文化在過去20多年不斷發生衝突，而在近兩、三年，這衝突愈來愈明顯。
+
+### **人大釋法的問題**
+
+陳文敏指，第一個最明顯出現衝突的地方，在於人大釋法。《基本法》規定，人大釋法對香港有約束力，人大釋法是香港法制的一部分。「係咪人大釋法係一個絕對權力，行使呢個權力唔受任何限制？呢個係愈來愈多人問。」
+
+陳文敏回顧過去數次人大釋法，指出第一次釋法時，政府提出一個強烈的理據，因為終審法院就居港權案的判決，引致有168萬人可以在香港擁有居港權，這個不是香港可以解決到的問題，所以提呈人大釋法。他認為，當前提是要處理一個很大、具有逼切而香港不能自行解決的問題，才達提呈人大釋法的準則。
+
+第三次人大釋法，處理的是曾蔭權接替董建華完成董餘下的特首任期，該兩年餘下的任期是否計算作一屆任期。陳文敏指出，該問題在全香港只影響到1個人，而且是曾蔭權做特首7年後再競逐連任，該問題才會出現，陳認為這次似乎不符合提呈人大釋法的準則。
+
+陳文敏續指，至於最近一次就立法會議員宣誓案的人大釋法，案件只涉及幾個議員，而且宣誓亦不是年年有。陳認為，這不是香港不能自行處理的問題，也不是要馬上解釋的問題。「但係呢個釋法，係喺一個法院處理緊（宣誓案）嘅過程中作出，係直接破壞緊香港成個嘅司法獨立。」他遂提出：
+
+**是否應該有準則以界定人大何時釋法？**
+
+**人大釋法是否具追溯力？**
+
+陳文敏表示，任何法律若具有追溯力，必須有不公平的地方，因為那是以今日的尺度改變，影響昨日的行為標準。法院過往接受人大釋法為一個立法性質事宜，而非一個司法解釋，因此，無論人大釋法在內地有沒有追溯力，當它引用於普通法內，香港是否可以普通法的角度去理解人大釋法是否具追溯力的問題？陳解釋，普通法一般假設沒有追溯力，但這不表示完全不可以具追溯力。他指出，在非常例外的情況，人大釋法可以具追溯力，例如就第一次釋法而言，假如沒有追溯力，則解決不了168萬人的問題，不過，有關宣誓案的釋法則不必具追溯力。
+
+<figure>
+<img src="https://web.archive.org/web/20210805040230im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/宣誓-DQ4議員-梁國雄-20170717161419_9790_large.jpg" alt="">
+<figcaption>陳文敏指，在梁游上訴案中，法院沒有處理人大釋法是否具追溯力的問題，但他預期，在梁國雄的宣誓案上訴，終審法院今年或明年初始終要面對這問題。資料圖片</figcaption>
+</figure>
+
+### **人大釋法VS人大決議**
+
+陳文敏提到，去年底備受矚目的一地兩檢案，亦牽涉到新的問題：
+
+**人大決議（非釋法）有何法制影響力？**
+
+陳文敏明言，無意否定高鐵的經濟效益，惟經濟效益並非法理基礎。「即使去到法院，法院都唔能夠好清楚咁話俾我哋知，係用邊一條法例，可以將中國法例全盤擺喺西九個內地管理區度。」
+
+「法院最後依據人大決議，但呢個決議唔係香港法律一部分，《基本法》亦都係冇，無論呢個決議喺內地有咩效力。但係今次法院個判決嘅後果，就將人大決議成為香港法律一部分，甚至係可以提供一個法理基礎，去違背《基本法》一啲好明確、關於內地法律喺香港實行嘅法理基礎。呢個有另一個問題，開咗一個好大嘅缺口。」
+
+<figure>
+<img src="https://web.archive.org/web/20210805040230im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/09/高鐵-西九龍總站-20180923131353_1e64_large.jpg" alt="">
+<figcaption>陳文敏指，高鐵的經濟效益並非法理基礎，他質疑一地兩檢欠缺法理基礎。資料圖片</figcaption>
+</figure>
+
+陳文敏引用 [莊豐源案](https://web.archive.org/web/20210805040230/https://legalref.judiciary.hk/lrs/common/ju/ju_body.jsp?DIS=22558) ，指終審法院當時仍然會在原有法律框架內，嘗試將人大釋法放諸憲制範疇內，亦介定了一些範圍，「如果同我哋普通法個傳統、諗法、過往個價值完全相違背時，法院仍然係嘗試採取一個比較保障我哋普通法入面個法律文化、做法。」
+
+> 但係近年，喺第五次釋法、宣誓案入面，以至一地兩檢案入面，我哋睇到法院相對上係用一個比較理解嘅態度。甚至上訴庭處理梁游案時，對人大釋法，無論人大釋法應該有效、是否具追溯力、法律範圍去到邊度，法院係採取一個全盤接收、甚至唔願意去質疑嘅態度。呢個係咪一個法律上嘅改變呢？
+
+陳文敏指，上述案件仍在初審、上訴的階段，未來一年「陸續有來」。「值得關注嘅係，呢啲案件去到終審法院時，我哋係會睇到法院有唔同嘅取態，而呢個取態背後涉獵咗兩個法律文化嘅衝突。」
+
+### **忽略程序將侵蝕制度**
+
+陳文敏留意到，中、港法律文化的衝突，近年見於很多事件的決策上，「（港府）開始唔注重一啲程序」。他舉例指，最近律政司在一個檢控決定上，沒有尋求外間獨立法律意見，違背了過往慣例；在土地選項公眾諮詢期間，政府已經「拍板」推出「明日大嶼」方向，有計劃興建多少公頃土地；在900多頁的預算案文件中有1句提及調高長者綜援申領年齡，政府已當成諮詢；愈來愈多參選人被DQ，而DQ過程沒有程序可言……
+
+> 當我哋漸漸忽略程序嘅時候，往往係侵蝕緊我哋個制度。
+
+  
+ 陳文敏展望，在未來一年，將有佔中案判決、香港民族黨申請覆核政府的決定、一批被DQ參選人的選舉呈請、一地兩檢案上訴、梁國雄就宣誓案的上訴等，將相繼被提上法庭。他引用終審法院首席法官馬道立在法律年度開啟典禮的 [致辭](https://web.archive.org/web/20210805040230/https://www.hkcnews.com/article/17832/%E9%A6%AC%E9%81%93%E7%AB%8B-%E7%B5%82%E5%AF%A9%E6%B3%95%E9%99%A2-%E6%B3%95%E5%BE%8B%E5%B9%B4%E5%BA%A6%E9%96%8B%E5%95%9F%E5%85%B8%E7%A6%AE-17832/%E9%A6%AC%E9%81%93%E7%AB%8B%EF%BC%9A%E6%B3%95%E5%BA%AD%E9%9D%9E%E8%A3%81%E6%B1%BA%E6%94%BF%E6%B2%BB%E7%A4%BE%E6%9C%83%E8%AD%B0%E9%A1%8C-%E5%88%A4%E6%A1%88%E5%8F%AA%E8%80%83%E6%85%AE%E6%B3%95%E5%BE%8B%E7%88%AD%E8%AD%B0%E9%BB%9E) ，強調法院處理這些案件時，只會依據法律，不會考慮政治因素。
+
+「當依據法律嘅時候，我哋堅持普通法文化。呢一點，當同政府嘅睇法甚至內地對法律嘅睇法有衝突時，無可避免，我哋嘅法院都被擺咗喺衝突嘅風眼入面。」
+
+<figure>
+<img src="https://web.archive.org/web/20210805040230im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/法律年度開啟典禮-鄭若驊-20190114180022_e538_large.jpg" alt="">
+<figcaption>陳文敏關注律政司司長鄭若驊在法律年度開啟典禮致辭指「《中國憲法》和《基本法》共同構成香港特區的憲制基礎」，憂慮相關說法未來對於自決案件的影響。何君健攝</figcaption>
+</figure>
+
+陳文敏強調，訴諸法庭不是處理政治問題最好的方法，政府若不把關，港人珍惜的法律制度、這重要的優良傳統將會受損，「要勉強銜接兩種法律制度，甚至勉強將中國嗰一套對法律嘅睇法、甚至對司法獨立嘅睇法加諸我哋身上，或者當我哋法院愈來愈採取一個理解嘅態度，我哋成個普通法係會面臨一個好大嘅衝突。呢個亦都係今年我哋應該拭目以待，去睇吓個發展係點樣。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805040230/https://www.hkcnews.com/aboutus/#subscribe)

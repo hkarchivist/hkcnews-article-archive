@@ -1,0 +1,123 @@
+---
+title: "【由銀幕到螢幕】電影導演轉做網上講波佬　何Wayne： 從沒放棄電影夢"
+date: "2020-10-11"
+last_updated: "2020-10-11 00:16:57"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "夢想"
+  - "香港電影"
+  - "何Wayne足球評述員"
+url: "https://web.archive.org/web/20210726140613/https://www.hkcnews.com/article/34609/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BDwayne%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BDwayne%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34609/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BDwayne%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BDwayne%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【由銀幕到螢幕】電影導演轉做網上講波佬　何Wayne： 從沒放棄電影夢
+
+大家可能對「何冠寰」這個名字，彷彿有點陌生，但他的網名「何Wayne」，相信香港大部分的足球發燒友也一定聽過。何冠寰在2012年以「何Wayne」之名於YouTube開頻道講波，憑著獨特聲線、自創詞彙和評述風格，殺出一條血路。他曾預測巴西和西班牙不能取得2014年世界盃，亦曾成功預測2017年至2018年英格蘭超級足球聯賽排行榜的頭六名次序，眼光之準令網民稱他為「何Sir」。
+
+其實何Wayne除了Youtuber身份之外，他更曾是一個電影導演，作品包括《愛鬥大》、《愛出貓》等。八年前，時為導演的他在YouTube上載恐怖電影《生前必做七件事》宣傳片，片中女子在暗室嚎哭呼叫，引起警方調查，最終他因涉嫌浪費警力被捕。這爭議片段雖為他贏得海外獎項，卻也成為他暫時最後一套電影作品。
+
+
+{{< video src="https://web.archive.org/web/20210726140613if_/https://www.youtube.com/embed/PC_RaG7G0vk" >}}
+
+
+現時35歲的何Wayne回顧他的電影路，坦言自己並非由小到大都想做導演，而是因為一套港產片而萌生這想法。「我16歲睇過套電影叫《無間道》，從此我就覺得，我要做導演﹗因為香港人實在太叻，拍咗套戲好勁，作為香港人嘅我真係好驕傲，劇本仲要賣去荷里活，仲要攞埋奧斯卡，令我好想投身呢一行。」
+
+何Wayne大學時選讀了香港浸會大學的電影電視學系，未畢業就有人介紹他加入了寰宇娛樂做助理編導，更在機緣巧合下，得到當時電影公司的導演賞識，獲准開拍屬於他人生中的一部電影。「當時係公司走廊，撞到嗰時寰宇合約導演彭氏兄弟嘅彭順。當時我就以PA嘅身份比咗個劇本佢睇。佢肯睇之餘，仲好鍾意個劇本喎，跟住就升我職喇，唔單止比我做編劇，仲比我做埋導演添！因為佢想搵啲新導演撞吓火花，就拍咗套戲叫《愛鬥大》，點知套戲票房又幾收得喎，所以就拍多套叫《愛出貓》，有埋宇宙GEM(鄧紫棋)同William Chan(陳偉霆)演出添。」
+
+原以為可在電影業一帆風順之際，何Wayne卻遭受人生第一次重大打擊。何Wayne編寫的《愛出貓》劇本，講述一名補習老師為求得到公開考試試題，向香港考試及評核局高層出賣肉體，劇情被活學教育的前補習天皇高式卡控告誹謗。他表示，其實該劇情與高式卡是完全無關的，只是他借用了他的名字，再改成「高式古」，不過高式卡認為電影橋段在影射他，所以告他誹謗。
+
+打官司所費不菲，初出茅廬的電影導演，怎敵得過年薪過千萬的補習天皇？何Wayne最終選擇與高式卡進行庭外和解，雖避免了對簿公堂，但何Wayne事後仍須自行賠償。他坦言，事件雖不致於令他傾家蕩產，但賠償額是他在寰宇娛樂的三年人工總和。他在事後選擇向寰宇辭職，從此展開了他長達7年零收入的日子。
+
+何Wayne離開寰宇娛樂後，尚未立即放棄他的電影夢。2013年，他自資十萬港元，在16天內拍攝了電影《生前必做七件事》。為了宣傳電影，他在YouTube上傳了女主角許芯悅求救的影片，引發網民擔心許芯悅的安危而報警。後來何Wayne於影片發放後的六小時，便揭露影片只是電影預告片。有「受騙」的網民表示會杯葛電影，他亦因涉嫌浪費警力被捕，最終律政司了解事件後決定撤銷起訴，何Wayne才避免再次捲入官司。
+
+<figure>
+<img src="https://web.archive.org/web/20210726140613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/何Wayne足球評述員-香港電影-20201008204030_82d4_large.jpg" alt="">
+<figcaption>何Wayne指他若在今時今日，仍然會選用同一方法去拍攝預告片，作電影宣傳。   周滿鏗攝</figcaption>
+</figure>
+
+事隔七年，何Wayne仍然沒有後悔當年拍攝《生前必做七件事》預告片時所採用的呈現手法，他解釋：「我自己出錢搞電影，就係想做一件轟轟烈烈嘅嘢，咁要點樣轟烈？就係要轟動，轟動嘅話就係要創新，要創新即係要冇人做過！我到而家都唔覺得條宣傳片有咩問題，其實外國一直都有，只不過香港人比較少接觸類似嘅呈現手法，先會搞出一個咁大嘅誤會。」
+
+雖然《生前必做七件事》其後獲得2014年美國丹佛Intendence Film Festival最佳恐怖片獎，其預告片亦在2014年美國獨立電影展獨得榮譽優異獎。此時機會再次出現在何Wayne眼前，因為ViuTV主動聯絡上他，希望開拍一套合拍片，劇本已經寫好，演員亦已聯絡好，萬事俱備，臨門一腳卻「撻Q」︰「國內嘅投資者，突然唔肯投資，冇講原因，有可能係國內嘅政策突然轉變？我都唔知，總之套戲就胎死腹中。」事件令他十分沮喪，之後更黯然離開了電影界，轉向Youtube發展另一喜好，專注講波。
+
+何冠寰表示，他最初在YouTube作足球評述時，因為有觀眾喜歡其影片，而建議他全職當YouTuber，於是他便每天上載一段足球評述影片，也因此每月至少收看50場足球比賽。
+
+有追聽何Wayne的聽眾，會留意到他講波時，不時加插一些如「支停插」、「主攻陷阱」、「假對攻」、「明買明賣」等自創詞彙，別樹一格，他解釋：「點解要自創一啲容易記、或者得意嘅名？源於我另一種堅持，就係對創意嘅堅持，呢樣係讀電影時獲取返嚟。」他講波時的風格充滿個人特色，激動的語氣、真摰的感情流露，以及嬉笑怒罵的形容，都令何Wayne的聽眾留下深刻印象，例如他諷刺時任皇馬領隊盧柏迪古為「星際鈍胎」、時任巴塞領隊華維迪為「盤古人類」，令聽眾聽得津津樂道。
+
+現時何Wayne的Youtube頻道訂閱人數已經超過31,000人，平均每條影片都有至少一萬個觀看次數，成績不俗。他提到自己所研發的足球理論，其實受另一名足球評述員何輝所啟發。他形容，何輝是他由細到大的偶像，卻從沒想過自己真的能與何輝一起大傾波經。
+
+自2018年6月，他與何輝共同主持《蘋果日報》的Facebook直播節目《如何講世盃》，同年8月又開始共同主持另一直播節目《如何講英超》至今，每月兩集。何Wayne憶述，當時《蘋果》與他做完訪問後，知道他的偶像是何輝，及後竟然邀請他與何輝做節目，現在回想，仍記得拿著那通電話，「Dead air咗十秒，唔知點應好。」他形容感覺很夢幻，就猶如一般足球員能與C朗、美斯同場競技一樣。
+
+<figure>
+<img src="https://web.archive.org/web/20210726140613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/何Wayne足球評述員-香港電影-20201008203805_f7c5_large.jpg" alt="">
+<figcaption>何Wayne指他從沒放棄過做電影的夢想，不過現階段仍然以拍好Youtube影片為首要目標。   周滿鏗攝</figcaption>
+</figure>
+
+被問到現時的他會否以電視台講波為目標時，何Wayne則擰擰頭地說：「冇呢個諗法。因為我等緊英超、西甲，或者歐聯等頂級足球比賽，唔再經由電視台去轉播賽事。」他反對足球賽事直播被本地單一電視台獨斷播放，希望日後觀眾可自由選擇觀看平台，甚至自己選擇旁述員。
+
+雖然何Wayne今時今日已經轉行講波，但他沒有放棄做電影的夢想：「做電影永遠都係我嘅夢想，因為我認為未來嘅人類，夢想係必需品。有陣時我諗到特別嘅故事會寫低佢，到時機到再拎出嚟睇吓得唔得。」
+
+足球和電影，鍾意邊樣多啲？何Wayne思索一會後答：「當我好專注做電影嗰陣，就覺得自己鍾意足球多啲，但當我好專注做足球嗰陣，就覺得自己鍾意電影多啲，因為每次做緊嗰陣都覺得好困難、好辛苦，想搵一啲生活嘅調劑品，而電影同足球兩樣嘢都係我嘅興趣，所以每當做緊嗰樣嘢嗰陣，就會覺得另一樣嘢特別美好咁。」
+
+### 何Wayne的自創足球詞彙及術語分析
+
+**主攻陷阱**   
+ 「球隊不應該去控球在腳時，卻選擇了控球在腳，即是沒有意義的控球權。熱刺領隊摩連奴的拿手好戲，主動讓出控球權予對手，集中防守，吸引對方大軍壓上，靜待機會反擊得分。」
+
+**死守陷阱**   
+ 「即是不夠防守中場。球隊收縮防守時，卻不夠防守中場，久守必失。」
+
+**假對攻**   
+ 「兩隊球隊也不想控球在腳時會出現的情況，因為兩隊也希望盡快完結攻勢，便會形成假對攻的情況。大部分盃賽決賽都會出現的情況。」
+
+**來回高速球**   
+ 「攻守轉換快速的比賽品種，通常都是兩隊互相壓迫而產生的。」
+
+**超級連結人**   
+ 「進行反擊及快攻時的速度型進攻中場。 例子：卡卡」
+
+**主角**   
+ 「面對密集，在禁區頂能有效傳出破密集的致命直線進攻中場。 例子：占士洛迪古斯」
+
+**半主角**   
+ 「邊線內切型翼鋒，比主角需要更多速度，必定是逆足打邊線。 例子：夏薩特」
+
+**綠葉**   
+ 「邊線不內切入的翼鋒，負責拉邊及尋找前場空位插入。 例子：柏度」
+
+**支停插**   
+ 「支點、停波、插入，最基礎的破密集方法。」
+
+**主攻**   
+ 「4-2-3-1陣式，控球在腳，可以靜待機會，慢慢進行破密集攻勢。」
+
+**中短期進攻**   
+ 「4-3-3陣式，控球在腳，但當內切入時，便要盡快完結攻勢，否則只會變成4-3-1-2，天然老鼠拉龜陣式。」
+
+**短期進攻**   
+ 「盡快完結攻勢。當球隊把皮球傳過半場後，要盡快作出攻門，不可在對方半場控球過長，以免墜入主攻陷阱。」
+
+**快攻**   
+ 「球隊在自己半場控傳時，突然向前場作出傳送，快速向對方龍門施襲。」
+
+**反擊**   
+ 「搶斷對手腳下球後，快速反擊進攻。」
+
+**正三角**   
+ 「兩個進攻中場及一個前鋒，天然老鼠拉龜陣式，不適合打任何戰術。」
+
+**倒三角**   
+ 「兩個前鋒及一個超級連結人，最理想的反擊陣式。」
+
+
+{{< video src="https://web.archive.org/web/20210726140613if_/https://www.youtube.com/embed/YFJerF9ixCw" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726140613/https://www.hkcnews.com/aboutus/#subscribe)

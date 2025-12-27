@@ -1,0 +1,91 @@
+---
+title: "【農夫也移民】「歐羅有機農場」黃如榮：香港或繼續腐爛　盼有天能重新栽種"
+date: "2021-02-21"
+last_updated: "2021-02-21 17:43:41"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "BNO"
+  - "bno passport"
+  - "bno 護照"
+  - "移民英國"
+  - "黃如榮"
+url: "https://web.archive.org/web/20210725130455/https://www.hkcnews.com/article/38263/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38263/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【農夫也移民】「歐羅有機農場」黃如榮：香港或繼續腐爛　盼有天能重新栽種
+
+從事有機耕種超過10年，熱愛香港這塊土地的農夫黃如榮（阿Wing），去年12月毅然決定離開他開拓的「歐羅有機農場」，一家四口移民到英國。
+
+一個曾經打算一生跟土地結緣的農夫，面對政治氣候、社會環境的不穩定，為了下一代，也要心痛放棄「收成期」。匆匆的決定，裡頭充滿著不捨、傷心和歉疚。
+
+> **我哋一班香港人去外邊生活，好努力咁貢獻或建立緊，呢班人仍然心繫住香港，依家香港可能會繼續腐爛落去或爛哂，到時內部好難建立返，要靠外面去支援。**
+
+阿Wing如此期盼著，物先腐而後蟲生。無論是離開，還是留下，都是不容易的決定，這一代的移民潮，是每個香港人的必修課。
+
+
+{{< video src="https://web.archive.org/web/20210725130455if_/https://www.youtube.com/embed/bs3FOYjQtTU" >}}
+
+
+### 投身農業10年   為兒子成長棄事業
+
+53歲的阿Wing，原本任職電子廠總經理，因為親眼目睹內地工廠排放物污染影響附近農田，自幼在農場長大的他，感觸良多，2010年便毅然決定放棄高薪厚職，回到兒時居住的元朗錦田大江埔村田野，開展他的有機農業，創立了「歐羅有機農場」。
+
+10年過去，正當「歐羅」走上軌道，不能算上是賺大錢，但起碼是農場有能力擴充業務，有更多發展大計的同時，面對急劇變壞的社會和教育環境，阿Wing育有兩個正讀中學的兒子，為了下一代，太太在去年9月提出了移民的想法， **「如果係咁嘅話，我哋大人寧願犧牲一下手頭上嘅野，包括你的生活環境、朋友、事業。」**
+
+阿Wing說話的感覺敦厚樸實，過去53年的歲月紮根於香港，山野阡陌之間長大，中學就讀聖公會聖西門呂明才工業中學，之後升讀當時仍然是香港城市理工學院的香港城市大學電子工程系，畢業後在電子音響廠工作廿年，升至總經理一職，在香港曾經美好的時代向上流動，然後再回歸田野，一切歸因於這片充滿機遇的彈丸之地，「以往無（移民想法），差唔多全部精神投放喺農場發展，好想喺香港推廣農業，根本無空間去俾你諗其他方向，一直向前衝，其實後面5、10、30年亦都有好多規劃，本身都想幫香港農業做好多推動，所以其實是之前嘅時間，完全無諗過離開香港呢回事。」
+
+<figure>
+<img src="https://web.archive.org/web/20210725130455im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/黃如榮-移民英國-20210217155714_e27b_large.jpg" alt="">
+<figcaption>為了下一代，阿Wing一家四口去年循LOTR方式入境英國，計劃申請BNO5+1簽證。受訪者提供</figcaption>
+</figure>
+
+### 移民決定匆忙　嘆香港急速被破壞
+
+移民的過程，由與家人討論到正式落實，僅大約短短兩個月，賣樓、調動在港的資金以及交代農場的接手工作之後，一家四口去年12月便循LOTR方式入境英國。而事實上，為下一代離鄉別井的這回事，阿Wing也是過來人，當年他父母同樣是由大陸來香港，為了下一代在香港重新建立家園，如今香港生存環境變得惡劣，他亦同樣背起孩子，踏上離鄉別井之路，「呢個轉變你捱完之後，小朋友往後就會有好嘅將來，就好似阿爸阿媽當年如果唔係來咗香港，我亦都唔會喺一個改善咗嘅環境成長，而家同樣係行緊阿爸阿媽以前嘅路，又要走出來，呢個係現實社會必要的經歷。」
+
+雖然農夫移民的故事來得突然，但相比下近年香港社會以至政治制度上的急劇轉變，實在有過之而無不及，「呢年幾兩年社會、立法會轉變或者教育當局的制約，我覺得都係好唔適當 、好唔理性，亦都唔係為香港市民好，而係不停喺到做破壞」、「我哋同香港一般市民都近似，對香港社會的不滿，對政府運作失去信心，嘗試過好多表達方式，唔覺得有咩效果，包括議員幫我手去反映都無效果。」
+
+> **其實好傷心，香港係我家，曾經有個幾好的環境，但依家係破壞緊，我哋無法出手改變。**
+
+這一次，阿Wing選擇以腳投票，他相信這一波移民潮，是投下對政府的不信任票，「當你唔去改進的時候，大家唔會再支持你，我哋都要搵我哋自己嘅生活方式，向理想的生活發展。」
+
+<figure>
+<img src="https://web.archive.org/web/20210725130455im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/移民英國-黃如榮-20210217155742_223f_large.jpg" alt="">
+<figcaption>阿Wing決定移民英國後，會繼續在當地發展都市農業。受訪者提供</figcaption>
+</figure>
+
+### 移英繼續務農　信艱難時期栽種　花會更美麗
+
+移民，總是離不開選擇與捨棄，每當講起農業，阿Wing總是滔滔不絕，生於斯、長於斯的情感，特別是對於在土地上默默耕耘的農夫而言，怎能一句帶過。阿Wing一家有九兄弟姐妹，在他轉職農夫後，便陸續邀請大家姐、二家姐、姐夫等家庭成員來農場幫忙，阿Wing形容自己就如農場的引擎，這次離開令農場彷彿減速，甚至停頓下來，在臨別前他與團隊成員包括其家人以及助手交接，不捨得之中帶有歉意，「最初都係因為我放低工作，佢哋過來幫我手，我話要走嘅時候，佢哋變咗點呢？如果真係大家都辛苦，要退咗落來......都唔覺得可惜，始終做咗11年的成績出來。」農場現時由助手Kelly擔當阿Wing本身的角色，負責推廣、農場發展等工作，他則遠在英國背後支援，期望「歐羅」能夠繼續營運下去。
+
+坐上前往英國的航班，他反覆思想，內心始終不希望就此放棄農業。阿Wing住在倫敦周邊的城市，安排好孩子的學業後，他開始聯絡附近社區人士，計劃利用天台、園圃等環境發展「都市農業」，延續「本地人吃本地菜」的理念，「既然都來咗，不如再去衝一衝，將不可能變做可能」、「係...係要放低自己成果重新來過，但唔係未試過。」由一整個團隊再次變成孤身上路，縱使萬事起頭難，但自身經驗告訴他，與其繼續消沉，不如發掘可能，「艱難時期種的花，盛開時會更美麗」。
+
+政界一直傳言，包括前任特首梁振英曾提出取消持BNO港人的香港永久居民資格，阿Wing反駁說： **「你係咪香港人身份，唔係人哋話你係咪，係你自己的認同，我唔覺得來咗英國，你就唔係，最主要係你同屋企人關係、同土地關係。」** 會否擔心失去居港權或投票權？「我唔會擔心俾唔俾你返、佢會唔會取消你身份，我反而好想睇下透過外邊生活，點樣慢慢改變返香港的當權者，佢哋去反思，唔覺得係政府講幾句說話我取消咗你永久居民身份，就唔俾你投票，香港人唔係咁表面幾隻字代表到。」
+
+### 分離從來不易  難以啟齒的道別
+
+<figure>
+<img src="https://web.archive.org/web/20210725130455im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/黃如榮-移民英國-20210217155729_6779_large.jpg" alt="">
+<figcaption>阿Wing轉職農夫後，陸續邀請家庭成員來農場幫忙，圖左起：助手Kelly、阿Wing、阿Wing 二家姐和大家姐。受訪者提供</figcaption>
+</figure>
+
+這年頭離別的確如一把快刀，一閃而過，很多人還來不及梳理自己情感，就匆匆別去，阿Wing與年邁的母親道別時，久久未能剖白，「唔係好知講咩好，係有啲...唔捨得」。抵步英國近兩個月，但阿Wing一直低調處理，未有公開透露移民近況，外人或許很難想像或不明白，一個熱愛土地的農夫，要與土地分離這般予盾，對他來說，是一件難以啟齒的事情， **「你唔知點同身邊朋友講......你點去解釋，會覺得好難嘅一件事情.....人哋可能想同你傾多兩句偈，係有啲遺憾。」**
+
+> **有啲客戶支持咗我好耐，知道我理念、你咁堅持你個熱誠嘅部分推動農業，點解突然間會連根拔起？**
+
+
+但阿Wing誠言，這次接受訪問已有心理準備，或會造成不便，但相比之下，他更希望可以將自身經歷和信念傳開去，「如果可以透過我哋做嘅嘢，令到香港嘅人可以舒服啲，又或者可以支援香港朋友多啲，我都會嘗試去做，我哋理念和價值觀一直沒變，希望發揮自己力量，團結返香港，令香港行錯的路恢復返來，希望可以改變到香港。」
+
+臨別前，他與兒子坐上一程長途的巴士之旅，攀上全港最高峰大帽山，細看香港城鄉共生的風景，「我哋一班香港人去外邊生活，好努力咁貢獻或建立緊，呢班人仍然心繫住香港，依家香港可能會繼續腐爛落去或爛哂，到時內部好難建立返，要靠外面去支援。」
+
+> **香港始終係我哋出生地，好想佢可以變返好。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725130455/https://www.hkcnews.com/aboutus/#subscribe)

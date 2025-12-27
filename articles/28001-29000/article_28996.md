@@ -1,0 +1,61 @@
+---
+title: "沉默是金許冠傑"
+date: "2020-04-16"
+last_updated: "2020-04-16 15:34:01"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "許冠傑"
+  - "網上演唱會"
+url: "https://web.archive.org/web/20211202063848/https://hkcnews.com/article/28996/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29002/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/28996/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29002/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 沉默是金許冠傑
+
+【撰文：Jack Pun】
+
+有些年青人認為許冠傑過氣和脫節，甚至有人認為他跟譚詠麟一起和七婆合照，所以是藍絲，因而應被杯葛。對種種反應，他的回應是：「笑罵由人」。其實，阿Sam從來就是這樣，印象中從未聽過他表達政治立場，他不是司徒華，也不是李柱銘，他做人處世憑著的，就是當年他光榮引退時，跟Leslie合唱的那首歌裡的四個字：沉默是金。
+
+
+{{< video src="https://web.archive.org/web/20211202063848if_/https://www.youtube.com/embed/BNRIuaxd1YQ" >}}
+
+
+> **是非有公理，慎言莫冒犯別人......是錯永不對，真永是真......任你怎說安守我本份，始終相信，沉默是金......笑罵由人，灑脫地做人！**
+
+
+用沉默應對世情，當然是他的個人風格，但也是時代寫照，當中有傳統中國文化的薰陶，也有殖民地時代的特殊時空因素。從六七至九七，香港渡過了殖民地時期中最好的三十年，內地人避秦帶來大量資金，中西文化薈萃，政府銳意培育本土意識，種種因素令這一代人在經濟、教育和文化等方面都有飛躍發展，但他們在政治上大多是沉默的，一來根本不知道英國人早已為百多年前簽下的《展拓香港界址專條》而憂心，所以在整個七十年代裡因著六七暴動後港英政府推行的新政，他們對前途是滿懷希望的。二來即使後來九七前途問題曝光，他們也沒想過自己有權為這個地方的前途發聲，只覺中英談判這樣的大事，不是每天仍要為半斤八兩而折腰的草民能置啄的，賺第一桶金才是本份。   
+   
+ 那時香港大學教育還未普及，資訊也遠比今天貧乏，大多數人對中英政府的政道與治道都沒有甚麼概念，在政治論述和行動上根本遠未達到能參與搏奕的水平。從此角度看，那一代人的沉默，非因缺乏道德勇氣，而是因為未受啟蒙。當然，五十年生聚教訓，港人已非吾下阿蒙，年青人在政治和社會事務上極其敏銳，也滿有道德勇氣，這都是歷史積累下來的成果。在歷史的進程上，人的意志很重要，但也受著時勢的限制。阿Sam讀港大心理學，跟西人拍拖結婚，唱Elvis Presley 和Beatles的歌，開創廣東歌文化潮流，無心插柳地為本土文化意識奠下基礎，在那些年這些已是超越時代的創舉了，但他只是歌神，而不是真神，不可能瓣瓣睇通睇透，對著歷史大限，他也只能「話知你九七」了。
+
+**8:45 演唱《沉默是金》**
+
+
+{{< video src="https://web.archive.org/web/20211202063848if_/https://www.youtube.com/embed/3hRAyCHvung" >}}
+
+
+起初有點怕看阿Sam這個免費網上演唱會，因為他不像Paul McCartney到七十八歲高齡仍能維持那種年青氣息和身段，我其實是不忍看見他的老態。但看著聽著，那些陪伴我們這一代中年人成長的老歌又將我帶回那個夢幻般的七十年代。就在那些年，他站在對岸中環的卜公碼頭上，唱著：
+
+> **我時常清風兩袖**   
+ **吊兒郎當最自由**   
+ **但得有三餐足夠**   
+ **為人樂觀好少掛憂‥**
+
+
+那確是最好的年代，感謝你，阿Sam！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202063848/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211202063848im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

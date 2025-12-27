@@ -1,0 +1,56 @@
+---
+title: "同性配偶居屋加名被拒　高院裁房委會違憲　申訴人：若他還在定感安慰"
+date: "2021-06-25"
+last_updated: "2021-06-25 20:54:01"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "居屋"
+  - "居者有其屋計劃"
+  - "居者有其屋"
+  - "Home Ownership Scheme"
+  - "HOS"
+  - "房委會"
+  - "同志平權"
+url: "https://web.archive.org/web/20210918150617/https://www.hkcnews.com/article/42793/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42798/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42793/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42798/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 同性配偶居屋加名被拒　高院裁房委會違憲　申訴人：若他還在定感安慰
+
+**男同志吳翰林與配偶李亦豪英國結婚後，在香港購買未補地價的二手居屋，惟房委會不承認二人為家庭成員，變相無法「加名」為合法同居，二人提出司法覆核。高院法官周家明裁定房委會違憲，配偶政策對同性伴侶構成非法歧視，違反《基本法》和《香港人權法案》。**
+
+**爭取平權路不易，原申請人吳翰林在司法覆核過程期間，因抑鬱症自殺離世，李亦豪延續亡夫遺願，如今官司勝訴，枕邊人卻已不在。他託律師表示：「若果伴侶今天還在，能看到判決，一定感到安慰。」**
+
+<figure>
+<img src="https://web.archive.org/web/20210918150617im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/同志運動-同樂運動會-Hong%20Kong-20170621170220_100b_large.jpg" alt="">
+<figcaption>律師行指，裁判是爭取平權漫長路上的一小步，但肯定申請人多年來爭取平等對待及基本尊嚴付出的努力。資料圖片</figcaption>
+</figure>
+
+根據房委會現行政策，房委會只接受異性配偶「加名」成為家庭成員，已婚同性配偶若要「加名」，在自己購入的居屋單位「合法」同居，則必須放棄居屋計劃所提供的折扣，補付龐大地價。
+
+吳翰林於2018年以綠表身份購入二手居屋，樓價為545萬元，與其於2017年於英國註冊結婚的同性伴侶李亦豪共同居住。但在房委會政策規定下，李無法合法入住該單位，亦不能在未補地價情況下「加名」，二人遂於2019年提出司法覆核。
+
+高等法院原訟庭今早頒下 [判決書](https://web.archive.org/web/20210918150617/https://legalref.judiciary.hk/lrs/common/ju/ju_frame.jsp?DIS=136766&currpage=T) ，指出在共同基礎上，同性和異性配偶對房屋的需求、在同一屋簷下與家人一起生活的願望、實現房屋業權的渴求，本質上並沒有不同。房委會的配偶政策，不容許已婚同性配偶作為一家人，在其中一方擁有的居屋單位，或共同擁有的居屋單位一起居住，是不公平和不合理。
+
+房委會早前表示居屋供應緊絀，改變政策將影響輪候時間，申訴一方則反駁，海外結婚的同性戀者是「少數之中的少數」，質疑房委會說法欠確實證據。法官在判決書指出，香港房屋供應不足，對異性和同性伴侶都有影響，但無證據顯示，更多的異性配偶或同性配偶屬於中低收入階層，希望購買居屋。
+
+房委會提出，現行的配偶政策要實現「家庭目標」，但法官指出，配偶政策並沒有區分異性配偶有沒有生育、計劃生育、不生育或不能生育，同樣地也不能排除通過人工受孕、收養或其他方式，打算組織有小朋友的同性配偶，以實現「家庭目標」。就購買居屋單位的資格而言，法官質疑是否需要與房委會的配偶定義和夫妻政策保持一致觀點，因為會引伸出性傾向歧視。
+
+法官直言，配偶政策對申訴人進行特定壓迫的不公平，導致不能被視為實現「家庭目標」，構成性傾向歧視。法院裁定，房委會不容許海外合法結婚的同性伴侶，共同擁有或同住於居屋單位的政策違憲，這份差別待遇並不合理，違反《基本法》第 25 條和《香港人權法案》第1(1)及22(1)條。申訴人司法覆核勝訴，房委會須支付對方訟費。
+
+代表申請人的帝理律師行表示，法庭認同同性和異性已婚配偶擁有相同需要，房委會的政策基於不同人士的性傾向，而有差別對待是不正當，並構成性傾向歧視。律師行認為此案判決有重大意義，不僅標誌著香港性小眾群體爭取平權勝利的一小步，更重要的是吳翰林 （Edgar）多年來勇敢地為自己與丈夫李亦豪（Henry）爭取平等對待及基本尊嚴，付出的努力今天終於受到法庭肯定。
+
+「多年來，Edgar 和Henry一直活於隨時從自己家被趕走的恐懼之中，亦曾因同居被匿名投訴。」律師行又指官司的勝利「苦樂參半」︰「就像香港任何一對已婚伴侶一樣，Edgar和 Henry只希望能夠一起努力，建立一個屬於自己而不受騷擾及歧視的一個家」。
+
+原申請人吳翰林去年底因抑鬱症自殺身亡，李亦豪延續配偶生前爭取平權的願望，代為繼續申請司法覆核，律師行引述李亦豪說：「若果 Edgar今天還在，能看到判決，他一定感到安慰。」
+
+案件編號：HCAL 2875/2019
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918150617/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,37 @@
+---
+title: "王志民被免去中聯辦主任職務　山西前書記駱惠寧接任"
+date: "2020-01-04"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "王志民"
+  - "駱惠寧"
+url: "https://web.archive.org/web/20210712034812/https://www.hkcnews.com/article/25863/%E7%8E%8B%E5%BF%97%E6%B0%91-%E9%A7%B1%E6%83%A0%E5%AF%A7-25863/%E7%8E%8B%E5%BF%97%E6%B0%91%E8%A2%AB%E5%85%8D%E5%8E%BB%E4%B8%AD%E8%81%AF%E8%BE%A6%E4%B8%BB%E4%BB%BB%E8%81%B7%E5%8B%99-%E5%B1%B1%E8%A5%BF%E5%89%8D%E6%9B%B8%E8%A8%98%E9%A7%B1%E6%83%A0%E5%AF%A7%E6%8E%A5%E4%BB%BB"
+original_url: "https://www.hkcnews.com/article/25863/%E7%8E%8B%E5%BF%97%E6%B0%91-%E9%A7%B1%E6%83%A0%E5%AF%A7-25863/%E7%8E%8B%E5%BF%97%E6%B0%91%E8%A2%AB%E5%85%8D%E5%8E%BB%E4%B8%AD%E8%81%AF%E8%BE%A6%E4%B8%BB%E4%BB%BB%E8%81%B7%E5%8B%99-%E5%B1%B1%E8%A5%BF%E5%89%8D%E6%9B%B8%E8%A8%98%E9%A7%B1%E6%83%A0%E5%AF%A7%E6%8E%A5%E4%BB%BB"
+---
+
+# 王志民被免去中聯辦主任職務　山西前書記駱惠寧接任
+
+<figure>
+<img src="https://web.archive.org/web/20210712034812im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/駱惠寧-西環-王志民-20200104183719_1897_large.png" alt="">
+<figcaption>駱惠寧（左圖），王志民（右圖）。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712034812im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/王志民-西環-20200104183431_7ac8_large.png" alt="">
+<figcaption>新華社有關免去王志民職務的報道。</figcaption>
+</figure>
+
+中國官方新華社今晚六時許發出報道，國務院免去王志民的香港中聯辦主任職務。國務院同時宣布，駱惠寧接任中聯辦主任。有關報道沒有提到王志民的去向。
+
+資料顯示，駱惠寧今年65歲，浙江義烏人，1970年9月參加工作，1982年3月加入中國共產黨。駱惠寧是經濟學博士，中共第十七屆中央候補委員，第十八、十九屆中央委員。駱惠寧曾在安徽工作多年，2003年任青海省委副書記，2010年任青海省省長，2013年出任青海省委書記。2016年，調任山西省委書記，去年11月30日卸任。去年12月28日閉幕的13屆全國人大常委會第15次會議，駱惠寧獲任命為13屆全國人大財經委員會副主任委員。
+
+王志民則是2017年9月，接替調任國務院港澳辦主任的張曉明，出任香港中聯辦主任。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712034812/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,50 @@
+---
+title: "調查指打工仔今年平均加薪1.4%　6成公司未決定明年是否加薪"
+date: "2020-10-29"
+last_updated: "2020-10-29 15:09:22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "經濟"
+  - "薪酬"
+  - "人力資源"
+url: "https://web.archive.org/web/20211127112812/https://hkcnews.com/article/35167/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35169/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14-6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35167/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35169/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD14-6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 調查指打工仔今年平均加薪1.4%　6成公司未決定明年是否加薪
+
+<figure>
+<img src="https://web.archive.org/web/20211127112812im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/薪酬-20201029150739_2da7_large.jpg" alt="">
+</figure>
+
+香港人力資源管理學會公布最新的薪酬趨勢調查結果，今年僱員平均加薪幅度為1.4%，創十年新低，扣除通脹後僱員實質平均加薪幅度為0.5%，5成受訪僱員表示被凍薪。至於明年加薪幅度展望，63%機構表示未有既定計劃，只有3成預計明年會加薪，幅度為1.7%。
+
+調查在今年1至9月進行，訪問了92家來自15個不同行業的機構，涵蓋12萬7千多名全職僱員。今年僱員平均加薪幅度為1.4%，較去年的3.6%下跌2.2個百分點，創十年新低。扣除通脹後，僱員實質平均加薪幅度為0.5%。
+
+受訪機構中，7成表示今年有加薪，3成凍薪，較去年的3.3%大增；沒有機構減薪。而受訪機構僱員中，46%表示有加薪，54%則表示被凍薪，亦較去年的15.1%增加。
+
+調查亦顯示，受訪機構中有45%設有固定花紅制度，今年花紅金額平均為1.01個月基本薪金，與去年相若。另外，83%僱員獲得非固定花紅，平均金額為1.77個月的薪金。香港人力資源管理學會副會長孔于人指，機構大多在1至4月發放花紅，而當時疫情影響未浮現，而且受訪機構在人力資源系統上有一定規模，認為有出現滯後情況，相信未來幾個月機構在薪金或花紅上會更為審慎。
+
+至於明年加薪幅度展望，63%機構表示對明年會否加薪未有既定計劃，29%表示預計明年會計劃加薪， 8%機構則表示預期來年會凍薪。在預計會加薪的機構中，預計明年平均加薪幅度為1.7%。
+
+孔于人指，雖然港人有沙士經驗，但今次疫情影響全球多個國家，經濟活動及營商環境受限制，企業面對新常態需要時間作調整，會傾向較保守審慎。他指，現時本港失業率高企，估計未來或會高至雙位數，相信在此環境下，公司的加薪幅度都不會高，之後要視乎香港營商環境有否好轉，如疫情控制、通關安排、公司有否以新方式或技術運作等。
+
+調查未有涉及員工被要求放無薪假的情況。孔于人指，6成受訪機構有參加政府的保就業計劃，相信可短暫幫其應付營運壓力，但之後就很視乎行業的應變能力，如無法處理，相信很多公司都會用員工清假、放無薪假等措施應對。
+
+孔于人表示，今年的平均加薪幅度反映僱主在疫情受控前傾向收緊預算，呼籲企業可透過實施更多以人為本的措施，增強員工歸屬感，如彈性工作安排、制定家庭友善政策等，亦應特別關顧較易受經濟壓力影響的基層僱員，建議僱主與僱員之間要多溝通。
+
+<figure>
+<img src="https://web.archive.org/web/20211127112812im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/中環-20201029150408_1ef0_large.jpg" alt="">
+<figcaption>就明年加薪幅度展望，調查顯示63%機構表示對明年會否加薪未有既定計劃</figcaption>
+</figure>
+
+疫情下多個行業受重創，其中旅遊業大受影響。據傳媒報導，近日再多3間本地旅行社結業，新華旅遊全體員工亦收到通知，公司將於12月起推行停薪留職。香港旅遊業外遊領隊及導遊工會總幹事湯劍生估計，未來一、兩天會有多兩至三間較大規模的旅行社會公布相關停薪留職計劃，受影響人數約一千人。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127112812/https://hkcnews.com/aboutus/#subscribe)

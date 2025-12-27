@@ -1,0 +1,50 @@
+---
+title: "通識科試卷政治題目絕跡　老師認為少論觀點程度淺　難辨考生高階能力"
+date: "2021-04-26"
+last_updated: "2021-04-26 20:42:23"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "通識科"
+  - "文憑試"
+url: "https://web.archive.org/web/20210725161315/https://www.hkcnews.com/article/40677/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40681/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40677/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40681/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 通識科試卷政治題目絕跡　老師認為少論觀點程度淺　難辨考生高階能力
+
+去年考評局通識科高層大變動，政府今年亦對通識科落手整頓，由科目名稱到課程內容都大大修改。DSE通識科今日（26日）開考，今年政治題目完全絕跡，試題題目包括郊野公園、太陽能、電競等。有通識老師點評，今年試卷題目完全沒有觸及政治敏感議題，甚至是民生議題；而整體試卷程度較淺，亦較少要求考生表達觀點的題目，難以考驗考生的高階能力。
+
+通識科將在2021/22學年落實新的課程內容，今年是倒數第三屆仍按舊有課程而製訂的試卷。
+
+<figure>
+<img src="https://web.archive.org/web/20210725161315im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/通識科-20210426202942_1e16_large.png" alt="">
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210725161315im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/通識科-20210426202928_2e81_large.png" alt="">
+</figure>
+
+通識試卷分兩部分，卷一須回答三條必答題，今年題目包括郊野公園垃圾問題、中國太陽能使用，及電競發展；卷二則須從三條問題中選答一題，題目包括網絡資訊與公共衞生、電子支付，及港人運動習慣。
+
+教協理事兼通識科老師張銳輝及方景樂分析今年試卷，二人均指程度較淺，較少反映高階能力的題目，亦不見有政治敏感題目。張銳輝指，以往試卷會包含基礎及較高階的題目，即使是考驗基本能力的卷一，都會有較高階的題目，要求學生論證、表達觀點或立場，三題必答題中會有2至3題的分題是這類題目，但今年只餘有關郊野公園一題的分題屬於這類題目，因此只考驗到學生的基礎能力，未必分辨到具高階能力或付出較多的學生。張銳輝認為，如果高中課程走倒車，學生無法裝備多角度思考、判斷能力，將來升學或應付社會就未能有好準備。
+
+方景樂亦指，卷二的題目很多都是學生身邊發生的事，試題程度較淺，與卷一同樣不見涉及政制或法治的問題。
+
+張銳輝指，試卷很多都關乎學生切身的議題，例如電子支付、電競等，但對於政策討論卻非常少，很大程度上迴避了施政評論。他說，過去或多或少題目都涉及法治或政治參與的概念，是次試卷題目是過去多年來涉及政治參與部分最低的一份，試卷完全沒有觸及政治敏感議題，甚至是民生議題，但法治與社會政治參與佔六大單元之中的一整個單元，質疑試卷未能全面反映課程。
+
+今年是倒數第三屆按舊有課程製訂的試卷，政治題目已全面絕跡，往後老師還需否教有關課題？張銳輝說，作為專業老師，不應只看考甚麼，而是考慮整個課程，當舊有通識課程仍沿用時，老師都有責任教授有關內容。
+
+### 通識科大整頓　下學年落實修改
+
+去年考評局通識科高層大變動，曾因「林鄭滾蛋」言論被狙擊、負責通識科的考評局評核發展部高級經理盧家耀，及其下屬經理梁紫艷去年5月請辭，據悉盧的位置由原負責數學科的評核發展經理朱鏡江出任。
+
+政府今年亦對通識科落手整頓，通識科將改名為「公民與社會發展科」，改以「達標」與「不達標」評級，亦會重整和刪減約一半內容，由原有的六大單元刪至三大單元，即「一國兩制下的香港」、「改革開放以來的國家」、「互聯相依的當代世界」，修改後的課程內容將在2021/22學年落實。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725161315/https://www.hkcnews.com/aboutus/#subscribe)

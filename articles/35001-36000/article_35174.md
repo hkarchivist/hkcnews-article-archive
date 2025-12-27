@@ -1,0 +1,80 @@
+---
+title: "港大宮鵬列「無黨派人士」　曾赴黨校培訓　卜約翰：幹部駐港或成新常態"
+date: "2020-10-29"
+last_updated: "2020-10-29 17:46:44"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "香港大學"
+  - "HKU"
+  - "the university of hong kong"
+  - "Hong Kong University"
+  - "宮鵬"
+url: "https://web.archive.org/web/20210928063933/https://www.hkcnews.com/article/35174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港大宮鵬列「無黨派人士」　曾赴黨校培訓　卜約翰：幹部駐港或成新常態
+
+港大校委會周二大比數通過委任兩名大陸學者申作軍及宮鵬擔任副校長，眾新聞發現，將主管招聘及人才政策的現清華大學理學院院長宮鵬雖然被中共黨報《光明日報》 [列為「無黨派人士」](https://web.archive.org/web/20210928063933/https://bit.ly/34BiQG7) ，但他2017年曾經參加中共中央統戰部組織、在中央社會主義學院的 [「無黨派人士理論研究班」](https://web.archive.org/web/20210928063933/https://bit.ly/2Tz5wvH) ，學習中共總書記習近平精神及中共領導制度等。宮鵬會上憶述舊事時說：「作為新一代中國讀書人，從說到寫到行動，要全面捍衛國家尊嚴。」
+
+港大社會科學院前院長卜約翰（John Burns）向眾新聞表示，港大今次處理副校長風波手法差劣，尤其申作軍被清華列為黨委委員，卻透過消息否認他是黨員，根本無法平息風波。卜約翰又預計，中共幹部或「黨委書記」派駐大學及不同機構，長遠可能成為新常態。
+
+<figure>
+<img src="https://web.archive.org/web/20210928063933im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/宮鵬-Hong%20Kong%20University-20201029163049_2498_large.png" alt="">
+<figcaption>宮鵬（左）2017年出席黨校培訓，與北京市檢察院副檢察長甄貞（中）合照。眾新聞製圖</figcaption>
+</figure>
+
+申作軍早前被揭發2014年及2017年被清華工業工程系內兩度選為黨委委員，但其後眾新聞查詢後在網頁刪除有關資料。港大校長張翔在任命通過後向師生及校友 [發電郵](https://web.archive.org/web/20210928063933/https://www.hkcnews.com/article/35127/%E7%94%B3%E4%BD%9C%E8%BB%8D-%E6%B8%AF%E5%A4%A7%E6%A0%A1%E5%A7%94%E6%9C%83-%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%B8-35127/%E6%B8%AF%E5%A4%A7%E6%A0%A1%E5%A7%94%E6%9C%83%E4%BB%BB%E5%91%BD%E7%94%B3%E4%BD%9C%E8%BB%8D%E5%8F%8A%E5%AE%AE%E9%B5%AC%E7%82%BA%E5%89%AF%E6%A0%A1%E9%95%B7-%E7%94%B3%E5%90%91%E6%B8%AF%E5%A4%A7%E5%B8%AB%E7%94%9F%E7%99%BC%E8%81%B2%E6%98%8E%EF%BC%9A%E6%88%91%E4%B8%8D%E6%98%AF%E4%B8%AD%E5%85%B1%E9%BB%A8%E5%93%A1?fbclid=IwAR0qERnUVPO4Xy51UFbaRDsJoXp_VBj310ENtlUhYO6fKcrGWsjN3BtsQn8) ，當中附上申作軍聲明說自己並非中共黨員及黨委，強調純粹清華大學網頁錯誤，自己多年來都未察覺。
+
+至於宮鵬，清華校內及中共刊物顯示他被列為「無黨派人士」，意味可能並無公開加入共產黨。
+
+根據清華地球系統科學系網頁，宮鵬多次以系主任身分出席「黨政領導班子」會議，根據根據發言次序，宮鵬多是首先發言，順位高於黨總支部書記，包括2019年一次集體學習及深入體會清華大學黨委書記講話精神，但在今年1月，宮鵬也代表「系行政班子」匯報學系及總結會議，顯示較有可能不是系內黨委系統。
+
+<figure>
+<img src="https://web.archive.org/web/20210928063933im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/北京清華大學-HKU-宮鵬-20201029164917_158c_large.png" alt="">
+<figcaption>宮鵬今年1月身穿Google衛衣，出席清華地學系黨政班子會議。清華大學網頁截圖</figcaption>
+</figure>
+
+雖然如此，宮鵬在2017年5月曾經參與中央統戰部組織、在中共中央社會主義學院的無黨派人士理論研究班。
+
+根據學院官方網頁，中央社會主義學院是「中國共產黨領導的統一戰線性質的高等政治學院」。在2016年經中央批准，學校是「中央統戰部管理的黨中央直屬事業單位」。
+
+根據中央社會主義學院網頁，宮鵬2017年4月18日至28日接受十日培訓，同期學員以知識分子為主，期間學習習近平講話精神，介紹中共領導多黨合作和政協制度、一帶一路倡議等。網頁形容，課程為學員「提供精神大餐」，「加深了對中共中央治國理政新理念新思想新戰略的理解和認同」。
+
+網頁引述宮鵬選擇2014年全職回中國任教，「沒有參政議政經驗，也要為國家的發展建言」。他又回憶，1994年有美國學者說中國會出現糧食短缺，宮鵬說作為中國人，就在英國雜誌撰文回應說，中國不需要外國養活。他當時說：「作為新一代中國讀書人，從說到寫到行動，要全面捍衛國家尊嚴。」
+
+2018年9月，習近平出席全國教育大會，提出堅持中共領導下貫徹中國特色社會主義教育發展。清華大學11月中 [舉辦全校幹部學習班](https://web.archive.org/web/20210928063933/https://archive.is/nm8DN) 學習習近平講話精神論述，宮鵬代表學系分享體會，其他講者包括學員黨委書記或院長等。
+
+在今年武漢肺炎疫情爆發，根據 [清華大學黨委](https://web.archive.org/web/20210928063933/https://archive.is/MYHz3) ，宮鵬透過中央統戰部平台建議防範疫情傳播，並回報給國家衞健委。
+
+綜觀今次港大副校長任命爭議，始於美籍華裔教授申作軍在清華大學工業工程系網頁列為黨委委員，其後港大透過消息人士明確否認申是中共黨員，但對於黨委則說並不知情。
+
+曾任港大社會科學院院長多年的卜約翰向眾新聞表示，黨委委員定義上必須是中共黨員才是，認為港大校方說法頗為令人震驚，導致外界仍然有質疑。根據他的理解，大陸大學對學系領導層級黨委名單等網頁一般小心處理，港大卻說成清華網頁出錯，說法不太可信。
+
+「整體而言，大學處理得不好，才會鑄成大錯。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928063933im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/03/卜約翰-香港大學-20170324192615_27e7_large.jpg" alt="">
+<figcaption>卜約翰曾任港大社會科學院院長。眾新聞資料圖片</figcaption>
+</figure>
+
+卜約翰向眾新聞表示，在大陸大學中，一般而言，都是黨員才出任學院院長，但由於宮鵬海外留學及任教多年，可能想保留黨外人士的身分。
+
+類似「黨委」走到台前參與管治，可能已成既定事實。在國安法下，中聯辦主任駱惠寧正式參與國家安全委員會的工作，並同時視察疫情及探訪居民，與特區官員分庭抗禮。
+
+卜約翰預計，最終香港長遠而言，逃不過每個主要機構都有黨委的情況。「問題不是會或者不會，而是幾時，或者情況有無加速。」卜約翰如是說。
+
+「在將來，香港的大學自主將是必爭之地（contested space）。大學過去面對自主的挑戰，例如鍾庭耀（民調風波）、（教統局局長李國章干預）教育學院，都抵擋過去。」
+
+**「沒有地方有絕對的自治，大學財政上依賴政府，教資會過去曾說大學有相當自主空間。我們今日仍然有。但我們也見到習近平在大陸做了加強箝制種種。這就是香港的未來，而我們沒有很好的回應方式。」**
+
+但卜約翰強調，是黨員與否到最後只是一個標籤，考驗仍然是改善教學及研究質素，及大學排名，這樣才能夠回應外界質疑。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928063933/https://www.hkcnews.com/aboutus/#subscribe)

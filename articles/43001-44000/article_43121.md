@@ -1,0 +1,90 @@
+---
+title: "反恐學者駁斥刺警與恐襲混為一談　7.21元朗事件恐怖主義更明顯"
+date: "2021-07-07"
+last_updated: "2021-07-07 09:42:54"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "梁健輝"
+  - "侍建宇"
+  - "721元朗恐襲"
+url: "https://web.archive.org/web/20210922092951/https://hkcnews.com/article/43121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43125/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43125/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 反恐學者駁斥刺警與恐襲混為一談　7.21元朗事件恐怖主義更明顯
+
+**銅鑼灣警員遇襲案，保安局局長鄧炳強不足四小時已形容為「孤狼式恐怖襲擊」，政務司司長李家超在上任後首篇網誌亦提及「本土恐怖主義開始滋生」，形容悼念或獻花是認同甚至鼓勵恐怖行為。專門研究全球反恐的台灣學者侍建宇則認為指控無依據，也不認為民眾悼念跟鼓吹恐怖主義有何關係，港府應檢討事件為何得到民眾同情。**
+
+**他解釋，恐怖主義有兩個基礎概念，一是有沒有造成社會驚恐，現實是涉事男子弄傷警察後，老百姓並沒有十分驚慌；二是有沒有政治目的，如果只是出於不滿，每人每日都有不滿，但稱不上是政治目的。他認為7.21元朗事件則是恐怖襲擊，因帶來驚嚇效果，也並非針對警察，如果有證據顯示施襲者與警方合作的話，更可歸類為「國家恐怖主義」，就是政權用非法手段來恐嚇自己的老百姓。**
+
+<figure>
+<img src="https://web.archive.org/web/20210922092951im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/梁健輝-20210707031601_e453_large.jpg" alt="">
+<figcaption>7月1日，一名中年男子在銅鑼灣，拿刀從後插向警員左背後方位置，遇襲警員隨即跑走，其後躺在地上，被同袍治療。黎家威攝</figcaption>
+</figure>
+
+### 不足四小時稱作本土恐襲　學者：太快下定義
+
+七一當晚近10時，銅鑼灣一名警員遇襲，保安局局長鄧炳強及警務處處長蕭澤頤事發後到醫院探望受傷警員，凌晨約1時50分見記者，鄧炳強當時將案件界定為意圖謀殺，但表明「相信是孤狼式的本土恐怖主義襲擊」。
+
+鄧炳強周一（5日）在國安法論壇上再提及，有本土恐怖主義的潛伏，由「黑暴」至今有超過20宗涉及爆炸品、槍械及子彈的案件，犯案人士有能力、知識、有實際行動策劃本土恐怖主義，更要防範自我激化的人，他們表面正常，突然變成孤狼，做出恐怖行為，導致嚴重死傷。
+
+政務司司長李家超亦在周六（3日）首篇網誌指出，有本土恐怖主義開始滋生，一名男子在軒尼詩道以刀刺傷警員企圖謀殺，之後自刺身亡，調查顯示是一次孤狼式的恐怖襲擊。他指，本土恐怖主義產生，往往是因為有人煽動仇恨、挑撥分化，並美化或正義化恐怖主義行為，孤狼式的恐怖襲擊，可以因個人自我激化或被煽動，產生極端思想，突如其來進行襲擊。他提及所謂的悼念和獻花等，是用不同的方式美化、認同甚至鼓勵恐怖行為。
+
+專門研究全球反恐、中亞、新疆議題的台灣清華大學客席教授，曾經在香港中文大學、香港珠海學院任教，留港多年關注和熟悉香港的社政形勢。他認為當局太快下結論，除非已經完成調查，有初步結論送上法院，否則「哪有事件幾小時後就有結論？還要不是懷疑的語氣，而是肯定的語氣，就用孤狼式本土恐怖主義這個字，我覺得很荒謬。」
+
+他認為，作為警察或司法機構都應在調查後，方可下定義，否則就只是一宗企圖兇殺案、只是一個警察遇襲，至今也不知道涉事男子為何襲擊該警察？為何自殺？他認為，官方的論述是按北京的旨意說出，把所有反抗都稱為「恐怖主義」。
+
+<figure>
+<img src="https://web.archive.org/web/20210922092951im_/https://hkcnews.com/news_新聞/hk-discuss/2020/01/侍建宇-學者-台灣-20200112051241_1d3f_large.jpg" alt="">
+<figcaption>台灣清華大學客席教授侍建宇研究全球反恐、中亞、新疆議題，曾留在香港多年。資料圖片</figcaption>
+</figure>
+
+### 不見老百姓驚慌、施襲者政治目的　7.21更驚嚇
+
+侍建宇指出，國際間對恐怖主義並沒有公認或固定的定義，每個國家或會按需要自行定義，香港則按中國的定義來理解。但他指出，恐怖主義有兩個很基礎的概念，一是會不會造成社會驚恐，令政權或執政者感到恐慌、亂了陣腳，涉事男子弄傷警察後，老百姓並沒有十分驚慌，也沒有要求政府趕快調查、解決問題、擔心會有下一波攻擊，香港社會並沒有出現恐慌現象。
+
+另一個概念是施襲者必須要有政治目的，並不可僅僅只有政治意涵。「不可說攻擊警察就有政治意涵，攻擊任何人都可以有政治意涵，可是最後想達成甚麼目的？推翻香港政權嗎？推翻一國兩制嗎？還是要港獨？還是要五大訴求決一不可？我們根本不知道，如果只是出於本身不滿，不滿並不是政治目的，每人每日都有不滿，只是強烈到要把一個人殺死？還是今天吃不下飯而已？」
+
+<figure>
+<img src="https://web.archive.org/web/20210922092951im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/梁健輝-20210707031549_1daa_large.jpg" alt="">
+<figcaption>涉案男子梁健輝施襲後，疑自插心口，靠牆倒下，身上有血跡，當晚上11時20分證實死亡。黎家威攝</figcaption>
+</figure>
+
+施襲者為何要捅自己一刀，是不小心抑或故意？侍建宇認為警方都需要調查清楚。自殺攻擊跟自殺恐怖攻擊不同，過去研究顯示自殺恐攻只有兩種原因，一是受伊斯蘭主義動員，透過宗教來達到政治目的，但涉事男子並不是穆斯林，不會因伊斯蘭主義而作出自殺恐攻；另外一種通常是殖民地或獨立後，由少數民族發動的攻擊，反抗他們眼中的非法佔領，孟加拉、印度、土耳其、非洲等地至今時有發生，少數民族無力與政權對抗，要用自殺來引起注意，令當地人覺醒，也令另一邊陣營感到害怕。
+
+他質疑，達不到上述最基本原則怎麼會是恐怖襲擊？如果涉事男子精神有異常，根本連意圖謀殺都不成立。至少目前為止，他說看不到一個警員遇襲是孤狼式或自殺式恐怖襲擊，認為官方的指控沒有依據、莫明奇妙。
+
+他認為2019年「7.21元朗事件」則是恐怖襲擊，因為帶來驚嚇效果，也並非針對警察，如果有證據顯示施襲者與警方合作的話，則稱作「國家恐怖主義」，就是政權用非法手段來恐嚇自己的老百姓，政權用不了警察，就用白衣人、黑社會等代理人。不過，有關案件目前仍在調查。
+
+<figure>
+<img src="https://web.archive.org/web/20210922092951im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/元朗白衣人-721白衣人暴動案-20210312212902_17a6_large.png" alt="">
+<figcaption>2019年7月21日，大批白衣人在元朗西鐵站一帶，無差別襲擊市民。港台圖片</figcaption>
+</figure>
+
+### 發牢騷不代表被激化　悼念不代表鼓吹恐怖行為
+
+官方指，涉案男子梁健輝「被極端思想激化」、「自我激化」或「被煽動」，而襲擊警員並自插身亡。警方未有正面交代，但透過消息流出，在梁健輝家中發現遺書、報章、書籍、筆記、反修例運動文宣等，在一個USB手指內，提及不滿警方包庇罪犯不受制衡、質疑「浮屍死因點解無可疑」、國安法實施後無自由。警方初步認為，死者受到一些社會事件的報道影響而自我激化。
+
+根據警方的說法，自我激化指個人接觸極端思想，利用極端暴力手段實踐其目標，通常由互聯網接觸極端主義宣傳，大量和密集的極端資訊深化其理念，相信為實踐目標有所犧牲是理所當然，認同利用任何手段，包括發動恐怖襲擊，以達至其目的。自我激化的人通常充斥不滿及仇恨、敵我分明、建立使命感、鼓吹極端暴力。
+
+侍建宇表明，無法猜測涉事男子的施襲原因，也不知道被激化的實際內容是甚麼，但如果司法公義的話，就必須證明涉事男子如何被激化？有沒有直接證據顯示有關內容與施襲的關係？而非單指一些報道和事物。「很多人每天都發牢騷，我看電視也被激化？這是胡扯。這個訪問是煽動嗎？我們並沒有政治目的，我只是講述過往的情況。」他甚至認為「現在香港連恐怖主義的種子都沒有，大家每天只是對這政權、特定事件不滿而已。」
+
+他亦不認同悼念和獻花的行為等同就是鼓吹恐怖行為。「我覺得很荒謬，我在路邊看到一隻小狗咬人後被一刀捅死，我不可以覺得很悲傷嗎？跟恐怖襲擊有甚麼關係？如果有人覺得這個人值得紀念，甚至稱他為烈士，都是一種移情作用，可能是對於某東西的不滿，投射在這個人身上，但跟鼓吹恐怖主義有甚麼關係？」他反認為港府應該檢討這件事為何會被移情？如果是一宗意圖謀殺案，為甚麼會有移情效果？背後反映民眾對這個政府不滿。
+
+> **攻擊警察為甚麼值得同情？警察可能要思考一下，不是警察做了壞事，就是老百姓瘋了。**
+
+
+**延伸閱讀：**
+
+[怎樣定義恐怖主義？](https://web.archive.org/web/20210922092951/http://www.4sbooks.com/archives/5222.html?fbclid=IwAR2YwnjYj_dYDKF6iX0soNXwogpTh_ZPBbYqvGLEB5ghqboBMJ1nFxybWVU) ｜侍建宇，2018年
+
+[中國的反恐論述與新疆的治理](https://web.archive.org/web/20210922092951/https://www.cuhk.edu.hk/ics/21c/media/articles/c117-201001004.pdf) ｜侍建宇，2010年
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210922092951/https://hkcnews.com/aboutus/#subscribe)

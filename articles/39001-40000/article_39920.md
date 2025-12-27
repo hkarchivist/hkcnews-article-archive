@@ -1,0 +1,56 @@
+---
+title: "民主派「流水式集會」案罪成　集會表達權利自由凍過水"
+date: "2021-04-01"
+last_updated: "2021-04-01 23:36:29"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "818民陣遊行"
+  - "818集會"
+url: "https://web.archive.org/web/20210916095941/https://www.hkcnews.com/article/39920/818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39920/818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-818%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民主派「流水式集會」案罪成　集會表達權利自由凍過水
+
+
+{{< video src="https://web.archive.org/web/20210916095941if_/https://www.youtube.com/embed/leNEMet8jjM" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210916095941/https://bit.ly/2Cj8v4t )
+
+2019年8月18 日
+
+170萬人在傾盤大雨下參加「流水式」集會， 由維園往中環方向離開，在風雨中夾道高呼「香港人加油」、「 五大訴求，缺一不可」、「我有權遊行，毋須警方批准」。 全程無警員維持秩序。
+
+港府深夜發聲明表示「當一切平靜後，政府會與市民展開真誠對話，致力修補撕裂，重建社會和諧」。聲明罕有無譴責市民未經批准遊行，稱集會大致和平，但參與者佔用港島多條主要幹道，對市民造成不便。
+
+2019年9月4日
+
+政府宣佈撤回逃犯條例修訂草案。
+
+2020年4月4日
+
+基本法頒布30週年，特首林鄭月娥在報章撰文說，去年（2019）香港有超過1萬1000次公眾遊行和集會，總數是1997年的10倍，足證市民所享有的自由有增無減。這些公眾遊行和集會只要是和平、合法地進行，特區政府都是尊重，警方也會給予適當協助。
+
+2021年4月1日
+
+當日參與「流水式集會」的民主派一批元老，包括創黨主席李柱銘、黎智英、吳靄儀、何俊仁等 9 人，被控組織及參與未經批准集結兩罪，2人早前認罪，7 人周四（4月1日）被判罪成，下月宣判。
+
+美國駐港總領事史墨客（Hanscom Smith）說，和平示威被定罪令人非常困擾，「香港過去一直享有表達政見、和平表達反對意見的渠道，目前這些都被攻擊及受威脅。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916095941/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210916095941im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

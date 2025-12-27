@@ -1,0 +1,52 @@
+---
+title: "全面強力打壓，迫香港人投降"
+date: "2020-04-18"
+last_updated: "2020-04-21 03:18:11"
+author: "盧子健"
+category: "眾說"
+tags:
+  - "逃犯條例"
+  - "反送中"
+  - "418大搜捕"
+url: "https://web.archive.org/web/20211026024026/https://www.hkcnews.com/article/29095/418%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29099/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29095/418%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29099/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 全面強力打壓，迫香港人投降
+
+先有港澳辦、中聯辦炮轟郭榮鏗和立法會內其他泛民議員，然後是「418」大搜捕，一口氣拘捕十五位資深和知名的民主派領袖。這些打壓舉措當然不是意外，目的是什麼？是迫香港人投降。
+
+<figure>
+<img src="https://web.archive.org/web/20211026024026im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/大搜捕民主派-418大搜捕-20200419012739_2877_large.jpg" alt="">
+<figcaption>2020年4月18日，警方一口氣拘捕十五位資深和知名的民主派領袖。</figcaption>
+</figure>
+
+不少分析把這些打壓舉措與立法會選舉掛鈎，這是低估最新一輪打壓的嚴重性。無疑政權會用一切辦法令泛民不能贏得立法會多數議席，但中共的鬥爭文化通常是先定下宏觀綱領，然後再制訂具體課題的策略，立法會選舉是全局鬥爭的一部分。北京明白，即使是在選舉中成功阻截泛民搶灘，鬥爭並不會結束。當日政權成功DQ了六位立法會泛民議員，或者曾經以為已經成功壓服反對力量，結果是迎來2019年史無前例的大規模抗爭。
+
+最新一輪打壓是瘋狂的，而且針對的都是「和理非」人士，不會幫助政權贏取民心。這點北京不會不明白，但仍然瘋狂打壓，顯示北京已不在意香港人是否歸心，而是意圖用強力壓倒、唬嚇香港人。它要的是香港人投降，不是歸心。
+
+去年七月，北京確定了對當時香港形勢的總方針是「止暴制亂」，首先針對的是「暴徒」，打擊的主要對象是勇武的示威者。去年八月，警隊發言人在向外國傳媒吹風時，曾經信心滿滿的説已經掌握核心勇武示威者的情況，又估計所謂勇武示威者大約二千人左右。言下之意是暴力示威的結束指日可待。
+
+可是，自去年六月至今，警方已拘捕大約八千人，政權所謂暴徒的數目似乎不斷增長。其實原因很簡單，在歷時已經接近一年的抗爭運動中，抗爭者始終維持「不分化、不割席」，和勇一家。激烈抗爭的出現，並非因為有一些天生特定勇武的人搞事，而是因為政權倒行逆施，蔑視市民用和平手法提出的意見。有些「和理非」變成勇武，另外大量「和理非」支持或者理解勇武的抗爭者。
+
+政權對此並非完全無知。去年十一月區議會選舉，親政府候選人大敗，政權應已明白民心向背。選舉後不久，新上任的警務處長鄧炳強便在接受傳媒訪問時説：希望市民攞返個良心出嚟。自此之後，警隊對示威活動的處理手法是盡早驅散，大規模圍捕。「和理非」抗爭者不單不再是爭取對象，甚至變成是打擊對象。政權的策略調整絕非隨意，而是針對抗爭運動的龐大的社會基礎，削弱這個基礎，扼殺抗爭運動的生命力。
+
+令政權失望的是，香港市民前仆後繼參與示威活動，堅持抗爭。面對香港人的靱力，政權耐性愈來愈少。最新一輪的打壓舉措，表面瘋狂，實質是希望產生震攝作用。十五位被捕的民主派領袖都是香港人所熟悉，也是過去幾十年盡量在體制內力拒北京控制的代表性人物。北京想發放給香港人的訊息是：這些有身份地位的「和理非」自身難保，一般香港人聰明的就不要撐下去，放棄可以不受北京控制的幻想。
+
+其實大多數香港人本來都是「聰明人」。所以即使回歸後香港一路出現倒退，大多數時候香港人都逆來順受。但過去一年的經驗令香港人覺得忍氣吞聲亦不一定安全，所以才會義無反顧參與抗爭。抗爭運動不平息，既不是因為勇武者搞事，也不是因為受「和理非」民主派領袖影響。這些領袖被捕是會令香港人更加擔心，但同時會更加憤怒。香港人現在放棄抗爭，不單止不能捍衛自己的權益和生活方式，連人的尊嚴也會丟掉。投降可以是一個選擇嗎？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026024026/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 盧子健](https://web.archive.org/web/20211026024026im_/https://www.hkcnews.com/uploads/avatars/3aef7f14-86a8-426e-8366-41a753233580.png?1762819464)
+
+**博客 | 盧子健**
+
+【盧子健・盧子健專欄】盧子健，專業公共事務顧問。自小對政治社會有濃厚興趣，曾涉足學生運動、壓力團體、政黨、非政府組織、義務公職等。1980年開始業餘時事評論，2014年告別評論界。2019年，面對逃犯條例引發捍衛基本人權自由的全民運動，腦袋無法平靜，希望以再次發聲回報社會。

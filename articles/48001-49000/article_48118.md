@@ -1,0 +1,35 @@
+---
+title: "司法機構加強保安　郵政派件到法院前先檢查　長沙灣郵政截肉狀物信件"
+date: "2021-11-24"
+last_updated: "2021-11-25 11:29:22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "司法機構"
+  - "刑事恐嚇"
+  - "恐嚇"
+url: "https://web.archive.org/web/20220123120441/https://hkcnews.com/article/48118/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48125/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48118/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48125/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 司法機構加強保安　郵政派件到法院前先檢查　長沙灣郵政截肉狀物信件
+
+近日接連發生有恐嚇及可疑信件寄到各級法院法官。司法機構周三（24日）宣佈，因應事件要加強保安措施，包括要求香港郵政協助，在派遞前先檢視寄往各法院的郵件、在法院外設立指定的郵件檢查站，以減少可疑郵件對法庭安全和運作的影響，以及提升法院大樓的警力和保安支援等。
+
+另外，在終審法院大樓、高等法院、家事法庭及小額錢債審裁處各法庭樓層已實施的保安檢查措施，亦將於今年年底推展至西九龍法院。
+
+警方指，同日下午約四時，接獲長沙灣派遞局職員報案，指收到一封可疑信件，內有膠袋裝載肉狀物，但沒有紙條。經爆炸品處理課人員檢查後，認為沒有危險，帶走作進一步檢驗。案件列作刑事恐嚇，交由深水埗警區重案組跟進，暫未有人被捕。
+
+郵政署回覆查詢稱，長沙灣派遞局於11月24日上午發現一封從台灣寄往西九龍裁判法院的可疑郵件並聯絡警方。
+
+就近期多次發現寄往司法機關的可疑郵件，署方稱會提高警覺，如在郵件處理過程中發現可疑郵件，在不會開啟郵件作檢查下，立即通知相關執法部門處理。
+
+<figure>
+<img src="https://web.archive.org/web/20220123120441im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/西九龍裁判法院-司法機構-20210326220311_1e01_large.jpg" alt="">
+</figure>
+
+接連有多名司法人員收到可疑信件，先是本月11日西九龍裁判法院收到附有白色粉末的可疑信件，寄給區院暫委法官張潔宜，五日後，西九龍裁判法院及沙田裁判法院再收到可疑信件，分別寄給張潔宜及裁判官彭亮廷。昨日高等法院及區域法院先後再接獲四封可疑信件，消息指信件寄給暫委高院法官陳仲衡及區域法院法官李慶年，信內藏有疑似肉狀物體及有汁液。
+
+司法機構周三（24日）晚上表示，高度關注法官及司法人員近期接連受到恐嚇的事件，已交由警方處理，又重申任何試圖向法官及司法人員施加不當壓力的行為，均違反法治精神，衝擊司法獨立的原則，應受到嚴厲譴責。
+
+司法機構並指，各法庭樓層的保安檢查措施將於今年年底推展至西九龍法院。而因應近期涉及可疑郵件的事件，司法機構已採取四項保安加強措施，包括要求香港郵政協助，在派遞前先檢視寄往各法院的郵件，以便及早報警處理可疑郵件；在各法院外的適當位置設立指定的郵件檢查站，以減少可疑郵件對法庭安全和運作的影響；提升對各法院大樓的警力和保安支援；以及提醒職員和保安人員須時刻保持警惕，以確保適時應對保安事故。

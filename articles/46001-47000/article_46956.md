@@ -1,0 +1,56 @@
+---
+title: "老伯聲稱被屈強姦含冤46年　受害人：沒有被強姦　湖北法院重啟調查"
+date: "2021-10-27"
+last_updated: "2021-10-28 11:17:09"
+author: "中國組記者廖樂欣"
+category: "眾聞"
+tags:
+  - "湖北省"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211206171013/https://hkcnews.com/article/46956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD46%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD46%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 老伯聲稱被屈強姦含冤46年　受害人：沒有被強姦　湖北法院重啟調查
+
+「我含冤40多年，就一直說我是攔路強姦，人都沒看到，給我扣一個攔路強姦的帽子，我死不暝目。」年過七十的何文福，40多年前因強姦罪被判監10多年，他強調自己是含冤入獄，於獲釋後聯絡當事人及證人為自己申冤，當事人亦澄清根本沒有被強姦。何文福多年來向法院申訴均遭拒，直至最高人民檢察院下令後，湖北荊州市中級人民法院近月才重啟調查。
+
+對於自己近半個世紀前莫名其妙變成強姦犯，何文福至今還是耿耿於懷。他說自己當年是一個燒窰師傅，涉強姦指控後被帶到看守所困了一年半：「看守所關了一年半，下拘留證叫我簽字，我沒簽字，我說我不知道犯了什麼法，他說你不簽字就跪在那裡，一直跪了幾個小時，他說當事人都認了你的，受害人我不認識。」
+
+<figure>
+<img src="https://web.archive.org/web/20211206171013im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/強姦-湖北省-20211027163704_481c_large.jpg" alt="">
+<figcaption>76歲的何文福多年來堅持上訴。上游新聞圖片</figcaption>
+</figure>
+
+何文福說自己連案情都不知道就坐牢10多年，直至1987年獲釋後，律師為他翻閱當年的卷宗才知道具體案情。案情指，何文福於46年前，在湖北鍾祥市石門水庫的樹林強姦一名女人，及搶走對方3元，最終判監15年。何文福反駁自己有不在場證明：「發案的地方離我窰廠，有四、五里路之遠，我親自參與做8個人的飯菜，起碼要一個多小時吧，當場吃飯有8個人，他們都可以作證。」
+
+他又反駁搶劫對方3元的指控：「我一個月拿兩、三百塊是有的，有時候我一個月可拿四、五百塊錢，我強姦以後還搶走她幾塊錢嗎？這事情說得過去嗎？」
+
+### 當事人否認有被強姦  承認受辦案人員唆擺
+
+根據當時令他罪成的證供，公安說受害人卓女士稱何文福有湖北鐘祥的口音，但與身為河南人的何文福明顯不符。堅稱自己無罪的何文福，獲釋後開始走上申訴之路，甚至找到當年證人謝女士為自己辯護，對方否認有指證他。
+
+<figure>
+<img src="https://web.archive.org/web/20211206171013im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/湖北省-20211027164521_e208_large.jpg" alt="">
+<figcaption>卓女士的書面證供。上游新聞圖片</figcaption>
+</figure>
+
+謝女士說：「我沒有簽字，石門水庫叫我去作證，我不知道怎麼回事，一下就給我拖到鍾祥了，我沒看到，我不能作證，我其實沒有看到這回事。」她說當年的武裝部長教她要指證何文福，她雖然沒有按對方意思辦，但是證供上依然有她的簽名。
+
+否認證供的還有「受害人」卓女士，她說自己當年只是被打劫，沒有被強姦，聲稱是受辦案人員唆使指認何文福：「我當時什麼都搞不清楚，我也沒有報過警，我歡迎你們去查，(強姦)不存在，我只是被攔路搶劫了。」
+
+時任石門水庫漁場場長就說相信有人做手腳：「當時我就感覺這個事情很不對，公安辦案子怎麼讓老百姓參加打人呢？把他弄來審，用本地的人用棍子、棒子打。」
+
+### 案件經最高檢介入後重啟調查
+
+即使有了以上人士的書面供詞證明何文福清白，但湖北高級人民法院以及人民檢察院都先後駁回他的申訴，而何文福仍然選擇堅持下去：「我想著只有申訴，再苦再難再沒錢，也只能跑去申訴呀，我有什麼辨法，背負這個冤情，(祖先規定犯法後)進不了祖墳，你說我兒子還怎麼找媳婦，誰願意找我這個老公公是強姦犯的，我說不要錢好吧，不要錢，把我這個冤情搞清楚。」
+
+最高人民檢察院在收到卓女士的書面供詞後介入調查，今年9月底，湖北荊州市中級人民法院就案件召開聽證會，目前案件仍在調查。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211206171013/https://hkcnews.com/aboutus/#subscribe)

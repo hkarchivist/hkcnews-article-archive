@@ -1,0 +1,47 @@
+---
+title: "八達通來搭車船　徹底失敗消費券"
+date: "2021-06-28"
+last_updated: "2021-06-28 19:32:58"
+author: "羅家聰"
+category: "眾說"
+tags:
+  - "八達通"
+  - "8 達通"
+  - "octopus"
+  - "羅家聰"
+  - "消費券"
+url: "https://web.archive.org/web/20210919163605/https://hkcnews.com/article/42864/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42876/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/42864/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42876/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 八達通來搭車船　徹底失敗消費券
+
+<figure>
+<img src="https://web.archive.org/web/20210919163605im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/羅家聰-20210628192901_1b64_large.jpg" alt="">
+</figure>
+
+上週經濟大聞之一，首推公佈消費券的安排。較諸當初宣佈，目前安排的最大之別在於可付車船。這顯然將令當初期望消費券的效果全數一筆勾消。消費券之所以有用，精髓在於時、空限制──在限期內用於限制範圍，更絕的只補貼部分，務求迫用之餘，用者也要自掏腰包。若不限時、不限空、不自掏，結果只是儲蓄多了而沒額外消費。
+
+若無額外消費，政府用不着搞這麼大壇大龍鳳，又要商戶裝機、又要長者學用……擾民兼傷財，直接在稅單減免，不是連那6.1億大元的行政費也省掉？將這數字派錢，每人好歹也多近100元，對赤貧的算不錯了。回說派法：5,000元可用到明年3、4月，平均每週用150元就可以了；以一週五日計即每日30元，若以七日計即每日20元。
+
+實話說，就算每日搭一個地鐵站來回尖嘴、金鐘，都已不只20元。這5,000大元「容乜易」花光？不難想像，這720萬人受惠共360億元，絕大部分將去了公共交通。這些企業固然沒有額外受惠，因為市民不會純因多了5,000元而無聊地額外搭車坐船，但額外消費則不見得了。由於搭車坐船已慣用八達通，故什麼推動電子平台亦徒然。
+
+另一「大事」是通脹掛鈎債券出分配結果，每人兩至三手。每人2或3萬元本金，就當通脹升至2、3%，每年利息才400至900「大元」，每半年派則除二。當今量寬，滿街百萬富翁，對他們說，三幾百元，股價仙位上落也不只此數，食餐好些都見勉強。除掛牌一刻，打後難有交投，遑論搞活債市。資金鎖三年，想拿來消費亦難。
+
+本週本港出外、內貿數字，美、中、港皆有PMI。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919163605/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 羅家聰](https://web.archive.org/web/20210919163605im_/https://hkcnews.com/uploads/avatars/c3ce8859-7e68-4803-9232-df57a4cd24f4.png?835679720)
+
+**博客 | 羅家聰**
+
+【羅家聰・一名經人】香港經濟學家、財經專欄作家，有「香港末日博士」之稱，愛研究歷史經濟數據尋出經濟大趨勢。此欄將每周回顧前瞻，從中分析你最要知的經濟數據及重點。FB專頁：facebook.com/kachung.law.988｜電郵：[email protected]

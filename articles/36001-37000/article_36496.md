@@ -1,0 +1,56 @@
+---
+title: "【戶口至今被凍結】民政局暫停發放酬津　許智峯批無法律基礎：區議員辦事處從未停止"
+date: "2020-12-16"
+last_updated: "2020-12-16 21:25:13"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "許智峯"
+  - "HUI Chi-fung"
+  - "薪酬"
+  - "中西區區議會"
+url: "https://web.archive.org/web/20210920174131/https://hkcnews.com/article/36496/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36499/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/36496/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36499/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【戶口至今被凍結】民政局暫停發放酬津　許智峯批無法律基礎：區議員辦事處從未停止
+
+**流亡英國的立法會前議員許智峯，遭民政事務局暫停發放12月3日後的酬金和津貼。許智峯批評，停止發放酬津完全沒有法律基礎，自離港後，區議員辦事處亦從未停止運作，將與同事商討工作安排，保證員工應有的合法權利及補償。**
+
+**2011年，年僅29歲的許智峯以民主黨年輕一代的姿態，當選中西區中環選區區議員，及後兩度連任成功。2016年7月，他出戰香港島選區，成功晉身立法會。今年因為DQ風波觸發民主派總辭，許智峯在11月12日辭職，告別立法會。一個月後，他宣布流亡並退出民主黨，但目前仍是中西區議員。**
+
+<figure>
+<img src="https://web.archive.org/web/20210920174131im_/https://hkcnews.com/news_新聞/hk-discuss/2020/12/許智峯-20201216204530_3e2c_large.png" alt="">
+<figcaption>許智峯以往常在中環開設流動街站。</figcaption>
+</figure>
+
+### 民政事務局：確保公帑妥善運用
+
+民政事務局今早表示，許智峯在12月3日社交平台上宣布「流亡」及離開香港，考慮有關因素後，認為有需要暫停發放許智峯在12月3日或之後的酬金、津貼和開支償還款額，確保有關安排符合《 [有關香港特別行政區區議會議員酬金、津貼和開支償還款額安排的指引](https://web.archive.org/web/20210920174131/https://www.had.gov.hk/file_manager/tc/dc_term/Remuneration.pdf) 》及公帑得以妥善運用，同時「對許智峯的不負責任行為」深表遺憾。
+
+局方指，民政事務總署制定《有關香港特別行政區區議會議員酬金、津貼和開支償還款額安排的指引》，為區議員提供明確守則，所有區議員均須遵從《指引》，以確保公帑得以善用。區議員使用公帑時，亦須遵守公開、公平和問責的原則。所有申領的開支償還款額必須用以支付執行區議會職務。
+
+根據《指引》，區議員的酬金一般在每月最後一個工作天，存入區議員的個人銀行帳戶。如果區議員的任期不是在每月首天開始，例如補選的區議員，或不是在每月最後一天終止，如因入獄須中止區議員職務，可獲支付的酬金會按比例計算。
+
+至於結束辦事處的開支償還款額，會以實報實銷方式發還，區議員如因不競選連任或不能控制的其他原因，例如去世、病重、重傷或落選，不再擔任區議員，而結束區議員辦事處，則可申領開支償還款額，支付如遣散費等有關開支。區議員必須在離任日期後一個月內，終止聘用職員及支付所需款項，才可獲發還支付遣散費的款項。
+
+根據《區議會條例》，任何民選議員如成為司法人員或訂明公職人員、不論任何罪行在香港或其他地方被定罪判處超過三個月監禁、舞弊、賄賂、為其他地方政府代表、其他地方的立法機關或議會成員、破產、精神無行為能力、連續4個月沒有出席區議會會議、未能符合提名為候選人的條件，即喪失擔任議員的資格。
+
+<figure>
+<img src="https://web.archive.org/web/20210920174131im_/https://hkcnews.com/news_新聞/hk-discuss/2020/01/中西區區議會-20200103012505_13ff_large.jpg" alt="">
+<figcaption>今屆中西區區議員。資料圖片</figcaption>
+</figure>
+
+### 許智峯：戶口至今被凍結　政府聲明多此一舉
+
+許智峯回應時，批評港共政權是「政治打壓凌駕法律及程序」，停止發放酬津完全沒有法律基礎，亦繞過區議會的既定程序，做法破壞政府的行政秩序，進一步顯示政權「氣急敗壞，進退失據」。他說自從流亡離港後，用以接收區議員酬津的滙豐銀行戶口，至今仍然被凍結，故一直未有收取過政權分毫酬津，認為政權停止發放酬津的聲明屬「政治表態」、「多此一舉」。
+
+他認為，議員仍在任時，停止發放酬津嚴重影響議員辦事處服務市民，對政權做法不顧市民利益感到遺憾。他指，自從離港後，區議員辦事處從未停止運作，至今仍開放繼續服務市民，感謝辦事處的同事緊守崗位，服務市民為先。基於酬津安排有變，將與同事商討工作安排，保證他們作為員工應有的合法權利及補償。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920174131/https://hkcnews.com/aboutus/#subscribe)

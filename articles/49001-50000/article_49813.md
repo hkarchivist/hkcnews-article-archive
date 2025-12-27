@@ -1,0 +1,47 @@
+---
+title: "《立場新聞》前署理總編輯林紹桐出院上庭　庭上親友淚眼揮手呼「撐住」"
+date: "2021-12-31"
+last_updated: "2021-12-31 11:49:34"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "立場新聞"
+  - "立場"
+  - "stand news"
+  - "the stand news"
+  - "國安法"
+  - "林紹桐"
+url: "https://web.archive.org/web/20220518035428/https://hkcnews.com/article/49813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49815/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49815/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《立場新聞》前署理總編輯林紹桐出院上庭　庭上親友淚眼揮手呼「撐住」
+
+《立場新聞》前總編輯鍾沛權、前署理總編輯林紹桐及《立場》公司昨被控串謀發布煽動刊物罪，林紹桐因病留醫沒有出庭應訊，他出院後今日（31日）被警方帶到西九龍法院提堂。署理總裁判官羅德泉向林確認他昨日指示律師在他缺席下繼續法庭程序，並指昨日在已聽取辯方律師的保釋陳詞，拒絕其申請，律師亦確認林放棄8天後作保釋覆核。林還柙至明年2月25日再訊。
+
+<figure>
+<img src="https://web.archive.org/web/20220518035428im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/stand%20news-國安處-林紹桐-20211229201203_3041_large.jpg" alt="">
+<figcaption>警方國安處前日搜捕《立場新聞》，前署理總編輯林紹桐被捕。</figcaption>
+</figure>
+
+### 親屬舉起女嬰娃娃   庭內多人泣不成聲
+
+林紹桐出庭後一直望向旁聽聽席，用手做「心」型手勢，並拍拍胸口，打出「ok」手勢。林甫步入法庭，旁聽的《立場》前同事開始落淚，泣不成聲。林的親屬拿著一個恐龍模型及一個女嬰娃娃舉給林看，林一度拭淚。
+
+法庭書記向林紹桐讀出控罪內容，其間林一直望著旁聽的親友們，微微點頭及瞇眼。書記讀完控罪，林說「明白」。
+
+散庭時，旁聽的同事及親友大叫：「加油呀！撐住！保重呀！」林被帶入囚室前揮手，直至囚室通道關門一刻仍在回望。
+
+### 控罪日期由去年7月初起
+
+三被告依序為Best Pencil（Hong Kong）Limited、鍾沛權（52歲）及林紹桐（34歲）。他們被控於去年7月7日至今年12月29日期間，在香港與其他人一同串謀發布或複製煽動刊物，即具以下意圖的刊物：   
+ （a）引起憎恨或藐視中央或香港特區政府或激起對其離叛；   
+ （b）激起香港居民企圖不循合法途徑促致改變其他在香港的依法制定的事項；   
+ （c）引起對香港司法的憎恨、藐視或激起對其離叛；   
+ （d）引起香港市民間的不滿及離叛；   
+ （e）煽惑他人使用暴力；   
+ （f）慫使他人不守法或不服從合法命令。
+
+除鍾沛權和林紹桐外，警方前日亦拘捕《立場》前董事周達智（63歲）、吳靄儀（73歲）、方敏生（63歲）及何韻詩（44歲），四人昨已獲釋。現不在香港的《立場》創辦人兼董事蔡東豪則被通緝。此外，因國安法還柙的《蘋果日報》前副社長、鍾沛權妻子陳沛敏亦在獄中被捕，涉嫌在《立場》撰文。
+
+案件編號：WKCC5281/21

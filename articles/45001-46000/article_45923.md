@@ -1,0 +1,57 @@
+---
+title: "「803基金」申覆核教局決定敗訴　 高院指局方有理由不向無關人士披露失當教師資料"
+date: "2021-09-28"
+last_updated: "2021-09-29 03:19:05"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "leung chun ying"
+  - "梁振英"
+  - "689"
+  - "CY Leung"
+  - "思歪梁"
+  - "狼英"
+  - "梁特"
+  - "梁特首"
+  - "港獨之父"
+  - "司法覆核"
+  - "803基金"
+url: "https://web.archive.org/web/20211128174101/https://www.hkcnews.com/article/45923/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-803%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45954/%EF%BF%BD%EF%BF%BD%EF%BF%BD803%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45923/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-803%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45954/%EF%BF%BD%EF%BF%BD%EF%BF%BD803%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「803基金」申覆核教局決定敗訴　 高院指局方有理由不向無關人士披露失當教師資料
+
+反修例風波期間多名教師被投訴專業失當，由前特首梁振英牽頭成立的803基金入稟法院，要求教育局披露投訴成立的教師資料。案件早前聆訊，高院今駁回司法覆核。基金聲言申請是為求保障家長和學生利益，教師既然失當便要接受喪失名譽。但法官周家明認為，教育局有合理理由不透露資料給803基金此等無關人士，按照資料運用守則，基金指局方犯下的法律錯誤無一成立。
+
+<figure>
+<img src="https://web.archive.org/web/20211128174101im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/教育局-梁振英-楊潤雄-20200930201432_17e8_large.jpg" alt="">
+</figure>
+
+根據判詞，前年6月至去年3月間，教育局收到192宗與反修例事件有關的教師專業失當投訴，39宗成立。去年3月803基金去信教育局，索取成立個案的教師姓名、學校名稱和失當性質。代表基金的資深大律師藍德業質疑，局方以一刀切方式拒絕，未有個別考慮每項資料是否根據法例不應披露。
+
+法官指出，投訴個案的資料是由投訴人、教師和學校提供，按照《公開資料守則》和相關指引，資料均是明確或隱含地不會披露予投訴機制以外的人；否則，他們提供資料的意願就會大受影響。
+
+基金表示索取資料之目的，是幫助公眾和家長判斷應否讓子女就讀某學校。法官認為，局部披露三項資料，例如只交代個案所涉學校或違規性質，對學校全體師生不公平，或者根本無助家長判斷，是無謂之舉。
+
+### 官：基金收集資料目的與局方不同
+
+另一方面，基金指教育局收集投訴資料，用途是監察教學質素，與基金的目的相符；犯下專業失當的教師不能期望身份保密，他們應預計會喪失名譽。法官則說，局方收集資料目的是調查投訴，基金的目的明顯不同，而教師是否要預計名聲敗壞並不相干。
+
+判詞指局方拒絕披露資料完全合理，不認同基金指局方考慮不周全。藍德業稱教育局忽視了「司法公開原則」，沒在判決中交代涉事各方。法官指正他混淆了法律程序和紀律程序，後者並無向公眾公開的原則；按本案情況， 局方有理由不透露資料給基金此等無關人士。
+
+### 早前覆核毛孟靜僭建案敗訴
+
+法官雖然駁回覆核，但認為理據屬可合理爭辯，通過覆核許可的門檻，加上基金並非為私利興訟，表面上是為了公眾利益，因此不下令基金向政府支付訟費。
+
+本案並非803基金首次申請司法覆核，基金早前申請覆核屋宇署不對前立法會議員毛孟靜住宅僭建執法，結果未能取得覆核許可。
+
+案件編號：HCAL1969/20
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128174101/https://www.hkcnews.com/aboutus/#subscribe)

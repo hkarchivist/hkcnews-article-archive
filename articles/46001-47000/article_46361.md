@@ -1,0 +1,59 @@
+---
+title: "刑事案擬分階段引入遙距聆訊　不設公眾諮詢　律師會促維持現狀"
+date: "2021-10-11"
+last_updated: "2021-10-11 16:51:20"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "司法機構"
+  - "遙距聆訊"
+url: "https://web.archive.org/web/20211204043104/https://www.hkcnews.com/article/46361/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46384/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46361/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46384/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 刑事案擬分階段引入遙距聆訊　不設公眾諮詢　律師會促維持現狀
+
+司法機構早前就刑事程序引入遙距聆訊的選項諮詢法律界，雖然律師會罕有要求在刑事審訊方面維持現狀，司法機構回覆查詢時表示，充分理解持份者對遙距聆訊用於刑事司法程序的關注，「因此會考慮分階段實施遙距聆訊的可能性」，讓法院及使用者在「有限類別」的法律程序上熟習新程序。根據律師會早前轉述諮詢文件，法庭在刑事案件考慮改用遙距聆訊的因素中，並不包括被告的意願。
+
+根據政府在施政報告一併公布的立法議程，遙距聆訊的立法建議列入給下屆立法會的40項建議之一，但未被列入9項須公眾諮詢的立法建議中，意味不會進行公眾諮詢。政府行政署在立法會文件中引述司法機構稱，會在向立法會提交草案前再諮詢持份者。
+
+<figure>
+<img src="https://web.archive.org/web/20211204043104im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/西九龍裁判法院-20211011030923_66fb_large.jpg" alt="">
+<figcaption>目前刑事審訊仍需要與訟各方親身到庭。圖為西九龍裁判法院。司法機構圖片</figcaption>
+</figure>
+
+本港在去年疫情肆虐期間，法院去年4月起已陸續容許在民事案件中使用視像會議及電話，至今已經超過1000宗遙距聆訊；而終審法院多名海外法官也先後以視像方式參與聆訊。終審法院首席法官張舉能今年1月在法律年度開啟典禮表示，遙距聆訊預期將成為法律制度、尤其是民事案件的常設選項，至於刑事案件適用遙距聆訊，則有待修改現行法例，原先目標是今年第二季將草案提交立法會。
+
+英國及美國在疫情前先後通過法律，容許部份刑事程序可透過視像方式遙距審訊，例如美國國會去年3月通過的法例，容許初步提訊、傳訊及少部分案件答辯程序透過視像方式進行，但國會立法時保留法庭必須考慮被告本人的意願。英國政府目前建議連陪審團審訊都可透過視像進行，但引起法律界強烈批評，最高法院前法官岑耀信稱刑事審訊應恢復親身審訊。有關建議目前仍在上議院審議。
+
+司法機構未公開2月發出的首輪諮詢文件，司法機構回覆查詢時稱，首輪諮詢文件未必反映司法機構的最新政策建議，為免引起公眾及持份者混淆，所以現階段不宜公開首輪諮詢文件。
+
+根據香港律師會轉述司法機構的首輪諮詢文件，刑事審訊仍預設被告、法律代表及證人等親身到庭，除非法庭基於公平及公正原則另作指示。根據文件，刑事案件的遙距聆訊被定性為案件管理，法官考慮一籃子因素決定，但律師會建議要加入考慮被告本人的意願才決定是否改為遙距聆訊。文件又稱，並非所有刑事程序都可遙距聆訊，部分刑事程序只能在特殊情況下改用。
+
+構思中的遙距聆訊一般在法院大樓範圍內進行，公眾及傳媒等可以繼續旁聽；在特殊情況下，基於司法公開原則，建議提出繼續容許公眾實時遙距旁聽聆訊，但會引入罰則防止偷錄聆訊程序，根據建議，一經定罪可判監6個月及罰款5萬元。
+
+司法機構回覆查詢時，引述首輪諮詢的持份者普遍支持引入遙距聆訊，至於刑事程序方面引入遙距聆訊，司法機構形容收到意見認為須在主體法例、附屬法例以至行政安排方面提供足夠保障，確保被告在《基本法》和《人權法案》保障下的公平和公開審訊權利不受損害。
+
+司法機構稱，正仔細考慮意見並調整有關的政策方向，由於持份者對刑事程序引入遙距聆訊的關注，會考慮分階段實施遙距聆訊的可能性。
+
+大律師公會主席夏博義今（11日）在立法會司法及法律事務委員會上表示，原則上支持在刑事案中引入遙距聆訊安排。他接受眾新聞查詢時強調，公會立場只是支持證人或保釋透過遙距聆訊處理，如果刑事案的正式審訊全面引入遙距聆訊，公會將會反對。
+
+夏博義舉例說，英國在疫情前，已經容許證人透過視像作供（香港在部分性侵案也容許受害者這樣做），例如在戰爭罪行案，有被告在英國落網，被迫害阿富汗平民在英國駐阿富汗領事館透過視像作供。在保釋聆訊方面，已羈押的被告經過搜身及運送過程，英國經驗顯示在囚者保釋聆訊幾乎全部都是遙距進行，也節省資源。
+
+他預計，香港在刑事案件引入遙距聆訊將涵蓋類似兩方面；但如果涉及被告出庭，不論是提堂或正審，公會立場則要確保被告可親自出庭。
+
+律師會罕有對司法機構建議表達強烈保留，在3月份的意見書中，律師會表明歡迎民事案件採用遙距聆訊，但「刑事審訊並不適合用遙距聆訊」。
+
+律師會稱，被告獲公開審訊是公平審訊的重要元素，受《公民權利及政治權利國際公約》保障，也有憲法保障權利獲法律代表出庭、當面質詢證人，及在保密情況下與法律代表溝通。「如果被告只能透過視像方式參與遙距聆訊，他／她只能以碎片化的方式見到法庭程序。同時，他不能有效地與法律代表、法官、陪審團、證人、翻譯員及同案被告互動。這可能潛在影響被告充分參與審訊能力，而在程序公義中至為重要。」
+
+除了涉及律師及客戶保密溝通及實際安排，律師會在意見書中說，遙距聆訊可能令刑事審訊失去尊重及尊嚴，觀感上公眾認為只是虛擬方式審訊，被告也可能有感無法律代表或不公平對待，最終影響刑事審訊的信心。
+
+假設法庭最終要推行遙距聆訊，律師會說，司法機構應考慮什麼類型的刑事案件適合遙距審訊，同時要加入考慮被告的意願。假設如果被告已還柙，懲教署則必須確保適合設施確保被告與法律代表在安全及保密情況下溝通。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204043104/https://www.hkcnews.com/aboutus/#subscribe)

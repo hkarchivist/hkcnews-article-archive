@@ -1,0 +1,58 @@
+---
+title: "笑得出來，就不被擊倒，具幽默感，就不被俘虜"
+date: "2021-03-01"
+last_updated: "2021-03-01 12:00:12"
+author: "江丕盛"
+category: "眾說"
+tags:
+  - "猶太人"
+  - "初選大起訴"
+  - "幽默感"
+url: "https://web.archive.org/web/20210920204629/https://www.hkcnews.com/article/38650/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38653/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38650/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38653/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 笑得出來，就不被擊倒，具幽默感，就不被俘虜
+
+大前天（2月26日）是猶太人的 [普珥節](https://web.archive.org/web/20210920204629/https://zh.wikipedia.org/zh-hk/普珥節) （Purim），是最神聖的猶太節日之一。節日的背景是公元前五世紀波斯帝國亞哈隨魯王（相傳是 Xerxes I）的猶太籍王后以斯帖，她憑藉智勇和美貌拯救了猶太人免於滅族之災。普珥節和逾越節有共同的主題，都是猶太人在外族（埃及和波斯）統治的逼害中獲得神蹟式的拯救，但兩者也有極其重要的不同點。帶領以色列人出埃及的是偉大的先知摩西，拯救猶太人免於滅族屠殺的則是一個身不由己的猶太女子以斯帖；出埃及有家傳戶曉的十災和紅海淹沒追兵的上帝大能的神蹟，《以斯帖記》則完全不提上帝的名字和作為，上帝在其中似乎全然隱逝。
+
+<figure>
+<img src="https://web.archive.org/web/20210920204629im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/幽默感-猶太人-20210301112907_aa26_large.jpg" alt="">
+<figcaption>網絡照片</figcaption>
+</figure>
+
+還有，以色列人出了埃及後不再是奴隸，但獲以斯帖拯救的猶太人仍然還是被擄在異鄉。正因如此，普珥節對猶太人有一個極其重要的現實意義，提醒猶太人必須牢記自己民族的脆弱性，滅族之災的危機是真實的，他們絕不是安全、自由的，殘酷逼害的反猶歷史隨時隨地都可能會再重演。普珥（purim, פורים）的意思是籤，因為仇視猶太人的哈曼（Haman）以抽籤方式決定何月何日消滅猶太全族，藉此嘲笑猶太人的命運毫無意義，猶太命運既是無常，其滅亡日就由抽籤來隨機決定吧，因此，猶太人在普珥節吃有甜餡料的哈曼餅（hamantaschen, אוזני המן）。有人把猶太人的歷史總結為三句話：
+
+> **他們試圖摧毀我們。我們生存了下來。來吧，我們繼續吃喝。**
+
+
+在殘酷逼害的歷史陰影下，令人深感意外的是，普珥節卻是猶太人最為歡樂，甚至是狂歡的節日，普珥節有各種的化妝和面具，帶著濃厚的「隱藏」象徵意義，意即儘管上帝似乎全然隱逝，但一切仍掌管在祂的手中，至微至細以及看似不能預測的事仍在祂的眼中。猶太人以幽默和歡樂克服恐懼，這正是普珥節的重心，儘管在人看來，猶太人這種對逼害和創傷的反應似乎違反直覺和非同尋常。剛逝世的前英國首席大拉比 [Rabbi Lord Jonathan Sacks](https://web.archive.org/web/20210920204629/https://en.wikipedia.org/wiki/Jonathan_Sacks,_Baron_Sacks) （薩克斯拉比）解釋，正因為逼害如是嚴峻，猶太人才拒絕這麼嚴肅。或者說，拒絕就是我們確實在做的一件非常嚴肅的事，我們拒絕因恐懼而瓦解，積極否定敵人的勝利，反倒莊嚴地宣稱，我們不會降服，不會被嚇倒。即便摧殘我們的時刻臨近，我們卻聚焦於生命自身的喜樂，以歡樂戰勝恐懼，以集體歡慶擊退恐怖。幽默因此是猶太人克服敵意和仇視的方法，人不會被自己所嘲笑的拘禁，笑得出來，就不被擊倒，具幽默感，就不被俘虜。 **[1]**
+
+薩克斯拉比曾寫了一本振奮人心的書，Celebrating Life，深受大屠殺倖存者所喜愛。 **[2]** 在書中，他評論意大利導演 Roberto Benigni 執導的一部有關大屠殺的喜劇電影 Life is Beautiful （香港：《一個快樂的傳說》，大陸和台灣：《美麗人生》），儘管同意導演的論點，幽默感確實可以使人保持神智清醒，但卻認為這在奧斯威辛集中營並不足以令人生存。然而有一天，有一位大屠殺倖存者對他直言：「就這一點，你錯了。」他向薩克斯拉比講述了自己在集中營的親身經歷。他被送到奧斯威辛集中營後很快就意識到，如果不振作起來就會死亡。因此，他和另一個年輕人達成一個協議，每一天，他們都會注意發生在身邊的事，刻意發掘他們認為有趣的事。到了晚上，他們都會互相講述自己的故事，然後一起大笑一場。他說：「就是這幽默感拯救了我的生命。」薩克斯拉比坦承：「他是對的，我承認我的錯誤。」
+
+
+{{< video src="https://web.archive.org/web/20210920204629if_/https://www.youtube.com/embed/-K6v1aZLAq8" >}}
+
+
+面對今天可能會被落案起訴「串謀顛覆國家政權」罪，35+ 案的涉案者相信都會感到荒謬和憤怒，也難免有恐懼的負面情緒。然而，職工盟主席吳敏兒前天在臉書上卻呼籲來探望她的人「一定要準備一個笑話先至可以來呀！」。她說：「我這一輩子都是一個充滿正能量的人，我不希望因為我有機會入獄而讓大家扁了。大家仍然要提起精神來！來探我的人一定要準備一個笑話先至可以來呀！！⋯⋯真的很感恩和幸福，今天仍然有時間好好來喝他們的咖啡和吃意大利粉！感謝天父一直給我考驗和鍛練，成就了我不一樣的人生。」
+
+衷心祝福每一個為義受逼迫、失去自由的朋友，不但心中平安，而且擁有豐富的幽默感。就這樣為他們每一天禱告吧！
+
+[1] [Jonathan Sacks, “Joy is the Jewish way of defeating hate,”](https://web.archive.org/web/20210920204629/https://www.spectator.co.uk/article/jonathan-sacks-joy-is-the-jewish-way-of-defeating-hate) The Spectator, 4 March 2020.   
+ [2] Jonathan Sacks, [Celebrating Life: Finding Happiness in Unexpected Places](https://web.archive.org/web/20210920204629/https://www.amazon.com/Celebrating-Life-Finding-Happiness-Unexpected/dp/1472974360) , London: HarperCollins, 2000.
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920204629/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 江丕盛](https://web.archive.org/web/20210920204629im_/https://www.hkcnews.com/uploads/avatars/052952ae-2feb-4cad-b6a9-574b4305e24c.png?1333261278)
+
+**博客 | 江丕盛**
+
+【江丕盛・信 @公共】Quest Institute主席，前香港浸會大學系主任、教授；前中國神學研究院副院長、教授。88年10月從新加坡到香港任教，一晃逾卅載。古人以30年為一世，我在這塊土地上竟生活了一世。情未變，依然深愛香港，只是萬分感慨，她不再是我所認識的香港。不是沒有機會，但從未曾考慮過離開香港，我已屬於這地，不會離開她。

@@ -1,0 +1,70 @@
+---
+title: "教科書作歷史文獻閱讀"
+date: "2021-03-14"
+last_updated: "2021-03-15 22:08:25"
+author: "楊穎宇"
+category: "眾說"
+tags:
+  - "教科書"
+  - "歷史科"
+  - "亞洲史教科書"
+url: "https://web.archive.org/web/20210920192029/https://www.hkcnews.com/article/39224/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39302/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39224/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39302/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教科書作歷史文獻閱讀
+
+除了教科書商外，似乎沒有什麼人會喜愛教科書。有人說教科書最優美的是它的粉紙，也有人說教科書是最沉悶的書。資料時有不確、資訊量低、質素與價格不成比例；從考評角度看，教科書是學生的必讀教材，公開試出題需參考其內容，若教科書就某些課題涵蓋過少、過淺，便會影響公開試擬題，最終累及考試的整體水平。
+
+以上所述，僅為教科書的教育功能。使用者由於各有所圖，往往未能對教科書一窺全豹。若抽離現場，將之當成文獻去看，當有另一番景緻。以下略舉二例，拋磚引玉。   
+ 筆者中學會考時選修歷史科，學校使用的亞洲史教科書是經典的「東撞西」。「東撞西」是花名，原名是East Meets West。書名言簡意駭，描述亞洲史是東西方的相遇。學生若能參透當中深意，已明亞洲史之泰半。當時只知作者叫A.C. Morales，以為是西人。「以為」，是因為教科書商有時會給作者冠上歐西名字，以獲「外國月亮份外圓」之經濟效益。
+
+<figure>
+<img src="https://web.archive.org/web/20210920192029im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/East%20Meets%20West-A.C.%20Morales-亞洲史教科書-20210314054508_e262_large.png" alt="">
+<figcaption>網絡照片</figcaption>
+</figure>
+
+後來，筆者從事歷史研究和教育，對很多事情抽絲剝繭，發現Morales原來是菲律賓人。他的first name是Alberto，畢業於菲律賓University of San Carlos，曾任教菲律賓大學。他於1958年與香港結緣，當年獲獎學金遠赴香港大學修讀東南亞史碩士課程，肆業後加入高主教書院，1968年晉升校長，至1995年榮休。學生暱稱他為Dad。
+
+他在香港撰寫的第一本歷史教科書由麥美倫出版社於1972年出版，當時已取East Meets West書名，其後因應課程多次改版，仍保留該書名。直至2005年最後一屆舊會考，「東撞西」都是亞洲史皇牌著作。
+
+這案例有兩點值得注意。第一，Morales的著作風行三十多年，歷久不衰，在香港中學歷史教科書歷史上無出其右。一直少人提及，部分原因是人們將焦點放在課程與考評，教科書較少人關注。將來研究香港歷史教育，他的著作（包括其他如初中教材和補充練習）應予以正視。第二，他的身份，反映出香港的東南亞聯繫。除了中、英、港三個維度外，東南亞一直是香港歷史重要的一環，淵源很深，相關史例不勝枚舉。菲律賓國父黎剎是眼科醫生，曾在香港執業；香港那時是自由之地，黎剎經常在報章撰文，批評西班牙對菲管治的種種不公。
+
+<figure>
+<img src="https://web.archive.org/web/20210920192029im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/菲律賓國父-黎剎-20210315144134_2c19_large.jpg" alt="">
+<figcaption>設置於港島摩理臣山道遊樂場的紀念牌匾，於1999年1月31日揭幕，以配合菲律賓獨立一百周年紀念活動。</figcaption>
+</figure>
+
+有趣的是，香港大學成立後，為南洋（當時「東南亞」的另一稱謂）培育大量醫生，有些留在香港，例如1952年出任香港醫務衛生署長的楊國璋，便是出生於馬來亞。直到今天，不少在港企業都是東南亞華商投資而成：信和集團、嘉里建設、卜蜂國際、力寶，等等。由於香港與東南亞關係密切，大學歷史系的東南亞史曾是顯學，收生人數眾多。在此等背景下，由一位菲律賓人穩據香港中學歷史教科書市場卅載，便不令人意外。
+
+另一例是另一本會考歷史教科書，此例子最近才想記，原因是早前在眾新聞發表 [〈香港史學界與支那〉](https://web.archive.org/web/20210920192029/https://bit.ly/37Lfphd) 一文後，朋友傳來一段別人的WhatsApp評論，說我「甘作奴者，為奴去吧」，核心一句是「如果把此文的冒犯性詞語（支那）改為納粹符號，同樣從歷史角度為此符號作解脫、漂白，能在歐洲發表嗎？」我因此馬上想起這本歐洲史教科書。該書講到納粹主義時，第一時間解釋了納粹符號swastika （「萬字」符號，「卐」或「卍」）的起源和發展，說它是印度各宗教的重要符號，swastika這字也是當時學的，所以記憶尤深。左派朋友假設歷史教育會因為「民族傷痕」左閃右避，誰不知就算中學歷史教科書也可以這麼光明磊落。
+
+#### 這案例引申出一個重點。歷史教科書在現實中有兩個截然不同的社會功能：第一是教育的，記述史實，承傳歷史和回憶；第二是政治的，因應當下意識形態需要，對史實重新演釋，左閃右避，甚至予以篡改，以符「政治正確」。後者讓教科書成為極能反映時代價值觀與政治氣候的文本。這一點解釋了最近幾年傳媒極留意教科書，將改版的內容和方向視為一種政治寒暑表。
+
+<figure>
+<img src="https://web.archive.org/web/20210920192029im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/Paulo%20Freire-巴西-20210314055655_131f_large.jpg" alt="">
+<figcaption>巴西教育家Paulo Freire。照片來源：globaleduca.hypotheses.org</figcaption>
+</figure>
+
+被譽為「二十世紀盧梭」的巴西教育家 [Paulo Freire](https://web.archive.org/web/20210920192029/https://en.wikipedia.org/wiki/Paulo_Freire) 認為，教育過程沒有「中立」，裏面充滿政治，教師應該扮演「批判的文化工作者」（critical cultural worker），讓學生積極與文本進行溝通而非被動接受當中的信息。若將教科書當成一種文獻看待，而教師又能將文本演變至今的因緣娓娓道來，學生得到的啟發反而更大。
+
+最後，恭錄Morales一語作結，與諸君共勉：
+
+> **We must carry on with our mission of educating the young, the future leaders of our community.**
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920192029/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 楊穎宇](https://web.archive.org/web/20210920192029im_/https://www.hkcnews.com/uploads/avatars/338117ee-b0a5-43f6-8d65-8f63f1ff1e2e.png?187544535)
+
+**博客 | 楊穎宇**
+
+【楊穎宇．談史論道】1970年出生於香港。香港大學歷史系文學士、哲學博士。曾任教於本地中學、大學。2005-2020年全職為歷史科考評挺胸打拼。人生格言是「有一分史料說一分話」。相信凡事都有廣闊的討論空間。

@@ -1,0 +1,83 @@
+---
+title: "拜登政府視北京成頭號威脅　核心要員曾否定冷戰思維"
+date: "2021-01-22"
+last_updated: "2021-01-22 13:55:31"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "中美關係"
+  - "拜登"
+url: "https://web.archive.org/web/20210728045950/https://www.hkcnews.com/article/37430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 拜登政府視北京成頭號威脅　核心要員曾否定冷戰思維
+
+美國新任總統拜登周四清晨宣誓就職中，主要針對美國大選及衝擊國會事件後的政治對立，對內不對外，呼籲團結及宣告民主勝利（雖然中國外交部發言人華春瑩借來反過來向美國示好），外交及中國政策上，拜登不點名對外喊話說，會修補與盟友關係及重新世界接觸，並以行動實踐重拾美國在國際上的領導地位。
+
+拜登班子及國家安全顧問的對華政策基本論調，包括聯合盟友抗衡及圍堵中國，也是國會跨黨派共識，經濟、科技、人權等議題預計與中國正面對撼。
+
+<figure>
+<img src="https://web.archive.org/web/20210728045950im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/外交事務雜誌-中美關係-20210122110224_234d_large.png" alt="">
+</figure>
+
+美國在前總統尼克遜1972年訪華關係破冰後，即使經歷六四屠城，五十多年來的假設都是希望中國接觸由內改變，擺脫一窮二白後走向開放及民主道路，包括美國曾支持中國加入世界貿易組織，但近十年軌跡顯示對內政治及公民空間收窄，當初預計路徑並無發生。跨黨派國會議員支持對華強硬，反而批評總統特朗普為貿易談判對中國及香港問題太遲，直至前國務卿蓬佩奧 [去年宣布](https://web.archive.org/web/20210728045950/https://www.hkcnews.com/article/32249/%E8%93%AC%E4%BD%A9%E5%A5%A7-%E4%B8%AD%E7%BE%8E%E9%97%9C%E4%BF%82-%E7%BF%92%E8%BF%91%E5%B9%B3-32249/%E8%93%AC%E4%BD%A9%E5%A5%A7%E3%80%8C%E6%96%B0%E9%90%B5%E5%B9%95%E6%BC%94%E8%AA%AA%E3%80%8D%EF%BC%9A%E7%B1%B2%E8%87%AA%E7%94%B1%E4%B8%96%E7%95%8C%E8%81%AF%E6%89%8B%E5%B0%8D%E6%8A%97%E4%B8%AD%E5%85%B1-%E6%8E%A1%E3%80%8C%E4%B8%8D%E4%BF%A1%E4%BB%BB%E4%B8%A6%E6%9F%A5%E8%AD%89%E3%80%8D%E6%94%BF%E7%AD%96?fbclid=IwAR0fhQk-12ZMeGmZF3sWMV4KYDFtv2TtB9i4YbqU2eVyjgj3PMN_j92R6nU) 昔日對華接觸政策失敗。
+
+翻查本周參議院外交事務委員會會議片段，獲提名擔任國務卿的布林肯坦言過去美國國內認為中國經濟自由化後、政治也會開放的共識並無發生，「毫無疑問，中國是任何國家中對美國構成最大挑戰的一國。」他強調，要在科技應用上聯合其他民主國家，重塑使用科技的常態、規則，及傾向美國一方的價值。
+
+值得留意的是，布林肯雖然肯定中國帶來的最大「挑戰」（challenge），但基本上無直接用「威脅」形容中國。拜登去年10月底競選期間，曾接受 [《60分鐘時事雜誌》訪問](https://web.archive.org/web/20210728045950/https://www.cbsnews.com/news/joe-biden-democratic-presidential-candidate-kamala-harris-60-mintues-interview-norah-odonnell-2020-10-25/) 時說俄羅斯是安全及破壞盟友的最大威脅，中國則是最大「競爭對手」。
+
+獲提名國防部長的奧斯丁（Lloyd Austin）在另一場參議院聽證會表明，中國未來對美國的頭號威脅（threat），「因為中國正崛起，俄羅斯都是一個威脅，但正衰落」。這說法與國防部在特朗普任期後期研判一致，奧斯丁也用了國防部在特朗普任內「進迫的威脅」（pacing threat）形容中國。
+
+  
+ 特朗普任內，曾任國防部長埃斯珀（Mark Esper）將 [中國列為頭號威脅](https://web.archive.org/web/20210728045950/https://www.defense.gov/Explore/News/Article/Article/2326863/esper-discusses-moves-needed-to-counter-chinas-malign-strategy/) 。美國國防大學中，已有一半課程內容是有關中國。   
+   
+ 布林肯及奧斯丁都提及，中國崛起是希望超越美國，必須採取行動阻止中國野心或擴張。
+
+
+{{< video src="https://web.archive.org/web/20210728045950if_/https://www.youtube.com/embed/MgOcMePVlU8?start=12088" >}}
+
+
+例如，有國會議員問及中國想在本世紀中建立現代化軍隊與美國相約甚至超越美國，奧斯丁說如果上任，將確保美國競爭優勢，令中國目標落空。他形容，目前美國在具作戰體軍力上領先北京，但當中距離大幅收窄，未來是擴大領先優勢。
+
+奧斯丁承認，中國議題非常複雜，需要整個政府協調處理，包括中國競爭的經濟、科技、太空等領域。他又說，美國會繼續支持台灣，確保台灣有能力保衛自身。
+
+布林肯另外提到一點，則是美國要再次發揮領導角色，團結盟友在科技及經濟等議題上抗衡中國，並證明民主制度亦解決人民問題。他舉例說，如果美國單槍匹馬，只佔全世界25%經濟總值，但如果聯合盟友，所佔全球GDP可能達到五成甚至流程，叫價力更大。與此同時，美國也要聯合印度，包括確保區內不會有人挑戰印度主權。
+
+總結來說，布林肯提倡就是改變中國標準處理價值觀及行事方式，改用美國設定標準及常態（setting norms and standard）。
+
+他在國會聽證會上說：「中國的路徑模式仍有非常明顯弱點，他們嘗試隱藏，但在無更好替代方式下，他們的表現可能比我們想像中好。所以我認為我們有責任展示我們的願景，我們追求的政策及實際執行，對我們及全球人民都更加有效，我們的模式才是更佔上風的（carries the day）。」
+
+
+{{< video src="https://web.archive.org/web/20210728045950if_/https://www.youtube.com/embed/fJ9mv-PVWtg" >}}
+
+
+類似反思美國對話政策是美國政界跨黨派共識，同樣見於拜登班子成員。將擔任俗稱「亞洲沙皇」、新設白宮印太地區協調官的前東亞及太平洋事務助理國務卿坎貝爾（Kurt Campbell）及國家安全顧問蘇利文（Jake Sullivan）2019年9月在 [《外交事務》期刊](https://web.archive.org/web/20210728045950/https://fam.ag/392ucW2) 撰文說美國過去接觸中國的外交政策已經驟然告終（come to an unceremonious close），問題是下一步怎樣做。
+
+**兩人在超過5000字的長文中，提出圍繞軍事、經濟、政治及全球管治建立有利美國條款。兩人當中提出四個主要觀點：**
+
+### 一、不能指望中國崩盤：
+
+要準備中美兩國可能要與對方共存，在傾向美方定義關係及確保美國利益前提下，避免互相激化矛盾，繼續與中國競爭；目前與中國局面不是冷戰，也不沿用冷戰思維，因為緊是今日的中國較諸蘇聯，經濟及外交上比蘇聯更強、與全球和美國經濟更緊密關聯，加上科技監控下，國內群眾較難行動要求改革甚至革命。如果說當時美國圍堵蘇聯是預期蘇聯自行崩潰，今日不能再假設中國最終倒台下，再用新圍堵政策。在氣候變化、經濟危機、核擴散及全球疫症（當時未爆發武漢肺炎）等都需要某程度合作。
+
+「中國大可能面對嚴重的內部問題，但預期中國倒台不可能用作一個審慎策略。只是中國的確倒台，這可能是內部作用多於美國壓力。」
+
+### 二、軍事上保持溝通：
+
+即使冷戰期間，美國與蘇聯都有設立軍事熱線，以避免擦槍走火，或者導致核戰。中美之間目前並無類似條款，需要更多溝通渠道及機制避免衝突，及澄清另一方的意圖，雙方軍方高層要更頻密溝通，尤其是在南海。同時，美國在印太地區可採取「震懾而無需支配」（deterrence without dominace）。
+
+### 三、建立貿易新標準：
+
+面對中國不公平的貿易壁壘及對美國公司在華限制，華盛頓要確保美國本身在科技上的領導地位，吸納外來人才，並與盟友推動目前世界貿易組織未處理的科技貿易標準，令中國必須跟從新標準、停止「搭順風車」。雖然未必排除單方面對中國採取行動，兩人在文章指出在華為5G事件中，本來可與盟友協調及跨國補貼華為競爭對手，令其他國家考慮新的供應商；
+
+### 五、不以反華爭取他國支持：
+
+與其與中國在海外每個港口、大橋和鐵路鬥生鬥死，對其他國家而言，美國與盟友要向他國正向說明為他國好才推動民主開放價值，而非在中美競爭下如何得分，並透過與盟友推動跨國撥款，推動良好管治、支持公民社會及獨立傳媒等價值，防止他過民主倒退的風險。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210728045950/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,58 @@
+---
+title: "【DQ前奏】曾國衛指反國安法候選人非擁護《基本法》　馮驊：不會向選舉主任發指引"
+date: "2020-06-18"
+last_updated: "2020-06-18 22:03:48"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "曾國衛"
+  - "DQ立法會議員"
+  - "馮驊"
+url: "https://web.archive.org/web/20211207190537/https://www.hkcnews.com/article/31146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31147/%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31147/%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【DQ前奏】曾國衛指反國安法候選人非擁護《基本法》　馮驊：不會向選舉主任發指引
+
+距離立法會選舉餘下不到3個月，政制及內地事務局局長曾國衛接受報章訪問指，若參選人完全否定或反對國安法立法，令人質疑其是否維護《基本法》及效忠香港特區。曾國衛的言論再掀DQ（取消資格）之虞，選舉管理委員會（選管會）主席馮驊今日下午見傳媒，被再三問及對曾國衛言論的回應。馮驊表示，現行選舉法例，由選舉主任裁決（1）候選人提名是否有效；（2）選票是否有效。所以，不由選管會決定，並指不會向選舉主任發指引，認為選舉主任應按照其認知行事，有疑問可索取法律意見。候選人或公眾不滿，可以提選舉呈請。
+
+選舉主任一般由各區民政事務專員（DO）出任，屬政務主任系統的公務員。近日有報道指，各區DO或將換人，令人關注是否與DQ有關。
+
+<figure>
+<img src="https://web.archive.org/web/20211207190537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/曾國衛-2020立法會選舉-馮驊-20200618212334_cd0e_large.jpg" alt="">
+<figcaption>（左）政制及內地事務局局長曾國衛、（右）選舉管理委員會主席馮驊。港台圖片</figcaption>
+</figure>
+
+馮驊見傳媒時，開場白指選舉最基本原則是公平、平等，並言沒有政治考慮、不受政治影響。他續仔細解釋不設「關愛隊」但有櫈仔提供、選民登記冊劃線、點票站容納人數等措施或安排。
+
+建制派及政府力推的「關愛隊」建議，即讓長者、孕婦等有需要人士優先投票，不獲選管會接納。馮驊透露，諮詢期內收到7.5萬份相關意見，其中5萬份支持有特別安排、2.5萬份支持選舉公平，但馮續指，不會只看數字，也會看內容，畢竟現時許多「動員範本」（有人動員提交一式一樣的意見），並重申公平原則及操作上不可行（詳見 [另稿](https://web.archive.org/web/20211207190537/https://www.hkcnews.com/article/31135/2020%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-%E9%81%B8%E7%AE%A1%E6%9C%83-%E6%B0%91%E5%BB%BA%E8%81%AF-31135/%E7%AB%8B%E6%9C%83%E9%81%B8%E8%88%89%E4%B8%8D%E8%A8%AD%E3%80%8C%E9%97%9C%E6%84%9B%E9%9A%8A%E3%80%8D-%E9%81%B8%E7%AE%A1%E6%9C%83%E4%B8%BB%E5%B8%AD%E9%A6%AE%E9%A9%8A%EF%BC%9A%E5%85%AC%E5%B9%B3%E5%8E%9F%E5%89%87%E3%80%81%E6%93%8D%E4%BD%9C%E4%B8%8D%E5%8F%AF%E8%A1%8C-%E6%B0%91%E5%BB%BA%E8%81%AF%E3%80%8C%E5%9A%B4%E6%AD%A3%E8%AD%B4%E8%B2%AC%E3%80%8D) ）。被問到曾國衛開腔會否對選管會構成政治壓力，馮表示：「各方面意見都聽，你知表達意見有好多方式。」
+
+建制派指打算就「關愛隊」約見選管會，馮驊形容現擬措施「有信心係比較公平的做法」。在回應建制派約見時，他說以往做法是少見、但不是不見，會視乎需要，以及一般先書面交流。
+
+馮驊並指，8月6日會為候選人舉行有關講解選舉安排的簡介會，將首度改以視像形式進行。馮直言，因為近年都有人在簡介會上擾亂秩序，甚至簡介會被取消。他指，簡介會不應被用作個人宣傳，再次之是疫情之故。但馮表示，會設有問答環節，候選人可以在網上發問，公眾可在網上觀看簡介會。
+
+過往簡介會曾發生一些插曲，例如2016年立法會換屆選舉的候選人簡介會，時任本土民主前線發言人、被裁定提名無效的梁天琦，在簡介會上向馮驊舉中指，並罵道：「馮驊，食屎啦！」、「X你老母呀馮驊！」2019年區議會選舉的簡介會上，社民連等民主派人士示威，高呼口號及舉標語，會議一度暫停，最終開會僅約半個鐘就被腰斬。
+
+<figure>
+<img src="https://web.archive.org/web/20211207190537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/馮驊-立法會選舉-梁天琦-20200618212843_1197_large.jpg" alt="">
+<figcaption>時任本土民主前線發言人、被裁定提名無效的梁天琦，在簡介會上向馮驊舉中指。鄭錦滿Facebook直播截圖</figcaption>
+</figure>
+
+社會並關注民主派參選人會被大舉DQ，加上曾國衛質疑反對港版國安法者並非擁護《基本法》及效忠香港特區，再添DQ疑雲。而今日公布的選舉指引，又首度列明：所有候選人必須在提名表格作出一項聲明，示明擁護《基本法》、保證效忠香港特別行政區。馮驊被問到為何今次在選舉指引特別列明，他指過往都有這個要求，只是「提醒番」，「因為有好多相關司法案例環繞（這個議題）」，而且法庭已經作出判決，既然沒有爭議就寫入指引。
+
+至於反對國安法是否影響提名有效性，馮驊指是選舉主任的裁決，在現行選舉法例下，選舉主任負責裁定提名是否有效、選票是否有效，而這是不可轉讓的權力。他並指，選管會沒有權力，也不會向選舉主任發出指引。再被追問時，馮驊表示不知道國安法詳情，認為選舉主任可以根據其認知作裁決，如有疑問可索取法律意見。候選人或儲夠10位選民，也可以提選舉呈請。
+
+上屆立法會6人被DQ，補選引發多宗選舉呈請，周庭、劉穎匡、劉小麗先後呈請得直，區諾軒、范國威、陳凱欣被裁定「非妥為當選」。不過，DQ候選人的選舉主任似乎沒有後果，馮驊指是法庭決定，涉及對法律的詮釋，除非選舉主任有不誠實行為。
+
+<figure>
+<img src="https://web.archive.org/web/20211207190537im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/2020立法會選舉-20200618215823_fb4f_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211207190537/https://www.hkcnews.com/aboutus/#subscribe)

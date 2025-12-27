@@ -1,0 +1,96 @@
+---
+title: "功能界別鍾國斌、張華峰墮馬　狄志遠擊敗建制贏社福界：支持泛民的人不投票令我們詫異"
+date: "2021-12-20"
+last_updated: "2021-12-20 19:05:04"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "立法會選舉"
+  - "社福界選委"
+  - "狄志遠"
+url: "https://web.archive.org/web/20220518025240/https://hkcnews.com/article/49354/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49380/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49354/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49380/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 功能界別鍾國斌、張華峰墮馬　狄志遠擊敗建制贏社福界：支持泛民的人不投票令我們詫異
+
+**立法會選舉最後的功能界別結果出爐，至少13名建制派連任。新思維主席狄志遠勝出立法會社福界，成為議會唯一「自稱非建制派」。他說，社福界投票率暴跌令人失望，「支持泛民的人不出來投票，令我們詫異」，又指不覺得在立法會卑微，因世界上很多領袖都是一個人孤軍作戰。**
+
+**金融服務界經民聯張華峰連任失敗，自由黨黨魁鍾國斌在紡織及製衣界不敵工業總會副主席陳祖恒，亦未能連任。張華峰及鍾國斌沒有到會展新聞中心上台聽取選舉結果。被問到自由黨鍾國斌曾提議撤回逃犯條例，今次選舉結果是否對鍾的懲罰，鍾國賦認為自己落敗乃歸咎於選舉制度問題，選民基礎大跌，又稱無中央支持自由黨其他黨員不會勝，但再問他本人就說：「你當我無中央支持」。**
+
+<figure>
+<img src="https://web.archive.org/web/20220518025240im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/狄志遠-20211220114202_2e84_large.jpg" alt="">
+<figcaption>新思維主席狄志遠以1400票，勝出立法會社福界，為外界形容為唯一「非建制派」。黎家威攝</figcaption>
+</figure>
+
+### 狄志遠：世上很多領袖都是孤軍作戰
+
+新思維主席狄志遠以1400票，勝出立法會社福界，為議會唯一「非建制派」。雖然他曾是民主黨成員，自稱非建制，但早前與第三路線湯家驊的民主思路結盟參選，所以外界都視他為「非傳統建制派」入閘。
+
+一向是泛民票倉的社福界，上屆此界別投票率約有83%，今次投票率暴跌至低於兩成。狄志遠說結果「令人失望」，支持泛民的人不出來投票「令我們詫異」，議會「不算五光十色」。有記者問到未來立法會只剩下一名「非建制派」，可以發揮甚麼作用？他稱，不會覺得在立法會中卑微「1對89」，「唔好睇死我們只有一把聲音」，又指世界上很多領袖都是一個人孤軍作戰。
+
+狄志遠指，社福界受了很多苦，他會盡力解決整筆過撥款款積存的問題，在立法會平台中「做啲事，堅持爭取民主」。他認為選舉結果說明，新思維路線有一定支持及認受，被問到會否與建制合作，他表明不排除在民生、社會發展上與建制合作，在其他問題上都要「借力」。
+
+<figure>
+<img src="https://web.archive.org/web/20220518025240im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/李惟宏-20211220114321_8a9f_large.jpg" alt="">
+<figcaption>李惟宏擊敗張華峰，指業界「有好大求變的聲音」。</figcaption>
+</figure>
+
+爭取連任金融服務界的張華峰僅得169票，敗給奪得314票的香港證券業協會主席李惟宏。李當選後指，業界「有好大求變的聲音」，目前最重要的工作是團結業界，無論過去如何，現時都要向前看。李指，希望業界未來發展更多元化，尤其要協助中小型企業轉型，提升專業水平，以融合大灣區發展，未來四年會帶領業界融入十四五規劃，前海發展及國家大局，聚焦創新科技。張華峰今早沒有到會展新聞中心上台聽取選舉結果，午後的經民聯記者會亦缺席。經民聯的盧偉國解釋，張華峰乃性情中人，「結果唔係咁理想，咁都有一定情緒」，但表示「唔擔心肥老闆」，認為張安然面對結果。被問及張華峰落敗原因，盧指選舉落敗「有唔同因素」，但他並非所屬界別，沒法評論。
+
+<figure>
+<img src="https://web.archive.org/web/20220518025240im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/陳祖恒-20211220114252_b21c_large.jpg" alt="">
+<figcaption>陳祖恒擊敗鍾國斌，指自己與中央有辦法好好地溝通。</figcaption>
+</figure>
+
+### 陳祖恒：與中央有辦法好好地溝通 鍾國斌：你當我無中央支持
+
+自由黨黨魁鍾國斌在紡織及製衣界不敵工業總會副主席陳祖恒，未能連任。陳祖恒第一次參選紡織及製衣界，就打敗競逐連任的鍾國斌；他是福建人，選前獲福建社團表明支持，被問到勝出是否由於福建社團協助催票，他說要多謝福建選民，與業界見面時對方都支持自己政綱，認為「最重要」的原因，是贏得選民支持。陳祖恒指，重複選舉結果與自己政綱有關。他稱，要多謝選民及與他在選舉中競選的鍾國斌，「大家在新選制下，有一場好有建設性，良好競爭。」他認為自己勝出的原因是自身背景，在創科上較強、與中央有辦法好好地溝通，希望建立新的方法帶領業界。
+
+<figure>
+<img src="https://web.archive.org/web/20220518025240im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/鍾國斌-20211220161503_1765_large.jpg" alt="">
+</figure>
+
+在2019年，自由黨鍾國斌曾向行政長官提議撤回逃犯條例，被問到今次選舉結果，是否對鍾的懲罰。鍾國斌回應指，落敗並非因逃犯條例，解釋當時內地業界曾對條例感擔憂，故當時提議乃為業界提出，反而可令他爭取更多支持，而落敗的主因乃在於選舉制度問題，選民基礎跌8成，自己未曾預計結果相差這麼遠，不過自己並沒有不開心、不甘心，會選擇尊重選舉結果和跟從遊戲規則。被問及自由黨落敗是否因缺乏中央支持，他稱，如果沒中央支持，在場的候選人均會落敗，但自己而言，他則指「你當我無中央支持」。
+
+<figure>
+<img src="https://web.archive.org/web/20220518025240im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/立法會主席-20211220114213_115e_large.jpg" alt="">
+<figcaption>梁君彥指，投票率不高不代表選舉無認受性。何家達攝</figcaption>
+</figure>
+
+### 梁君彥：你都見唔到有幕後黑手喺度
+
+在工業界（一）連任的現任立法會主席梁君彥指，如取得足夠支持，會考慮競逐連任主席。他稱投票率不高不代表選舉無認受性，最重要是選舉公平公正，「你都見唔到有幕後黑手喺度」。梁君彥又舉例指美國等「自命民主嘅國家都唔夠我哋個選舉咁好」，形容今次選舉過程理想，效果已經很好，「唔好樣樣嘢都要完美」。
+
+他未有承認是次選舉投票率低，認為投票率可受很多原因影響，「有啲人覺得（候選人）都幾好丫，唔使去揀啦，佢哋自己搞啦。」
+
+### 功能界別結果
+
+鄉議局：經民聯劉業強連任（119票），擊敗莫錦貴（119票）   
+ 漁農界：民建聯何俊賢連任（117票），擊敗楊上進（53票）   
+ 保險界：陳健波連任（65票），擊敗陳照男（24票）   
+ 航運交通界：自由黨易志明連任（147票），擊敗中港通董事總經理陳宗彝（56票）   
+ 教育界：教聯會朱國強勝出（10,641票），擊敗另外4名對手   
+ 法律界：前香港律師會會長林新強勝出（1,637票），擊敗法學交流基金會秘書長陳曉鋒（674票）   
+ 會計界：民建聯黃俊碩勝出（3,175票），擊敗另外3名對手   
+ 醫療衞生界：反對罷工、聯署撐警的林哲玄當選（5,511票），擊敗另外4名對手   
+ 工程界：經民聯盧偉國連任（3,849票），贏黃偉信（1,243票）   
+ 建築、測量、都市規劃及園境界：謝偉銓連任（2,266票），前建築署助理署長陳澤斌（1,063票）   
+ 勞工界：工聯會郭偉强、工聯會梁子穎、勞聯周小松勝出   
+ 社會福利界：新思維狄志遠勝出（1,400票），擊敗民建聯朱麗玲（872票）、香港復康力量會長葉湛溪（196票）   
+ 地產及建造界：地產建設商會秘書長龍漢標勝出（242票），擊敗趙式浩（138票）   
+ 旅遊界：創建力量姚柏良勝出（160票），擊敗九龍社團聯會馬軼超（13票）   
+ 商界（第一）：經民聯林健鋒連任（628票），擊敗姚逸明（101票）   
+ 商界（第二）：廖長江連任（176票），擊敗葉永成（71票）   
+ 商界（第三）招商局港口董事總經理嚴剛（174票），擊敗中國海外地產董事總經理游偉光（110票）   
+ 工業界（第一）：經民聯梁君彥連任（235票），擊敗經民聯梁日昌（67票）   
+ 工業界（第二）：經民聯吳永嘉連任（306票），擊敗羅程剛（65票）   
+ 金融界：陳振英連任（51票），擊敗陳志輝（17票）   
+ 金融服務界：香港中華總商會會董李惟宏勝出（314票），擊敗經民聯張華峰（169票）   
+ 體育、演藝、文化及出版界：港協暨奧委會副會長霍啟剛勝出（195票），擊敗明報出版社總經理蘇惠良（29票）   
+ 進出口界：港區全國政協黃英豪勝出（108票），擊敗中華出入口商會副秘書長李志峰（48票）   
+ 紡織及製衣界：工業總會副主席陳祖恒勝出（172票），擊敗自由黨鍾國斌（82票）   
+ 批發及零售界：自由黨邵家輝連任（1,116票），擊敗廣東省政協林至頴（112票）   
+ 科技創新界：數碼港董事邱達根勝出（59票），擊敗吳池力（12票）   
+ 飲食界：自由黨張宇人連任（101票），擊敗徐汶緯（27票）   
+ 港區人大政協及有關全國性團體代表界：民建聯陳勇勝出（432票），擊敗西九新動力謝曉虹（177票）

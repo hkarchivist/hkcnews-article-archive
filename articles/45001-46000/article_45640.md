@@ -1,0 +1,68 @@
+---
+title: "5排球會被DQ正式會員資格　排總聲明回應：上屆董事局審批欠客觀"
+date: "2021-09-20"
+last_updated: "2021-09-20 23:54:38"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港排球總會"
+  - "力臻排球隊"
+  - "仁濟排球會"
+  - "葵青女子排球隊"
+url: "https://web.archive.org/web/20211023012431/https://hkcnews.com/article/45640/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45649/5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45640/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45649/5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 5排球會被DQ正式會員資格　排總聲明回應：上屆董事局審批欠客觀
+
+5個本港排球會去年底獲香港排球總會（排總）通過成為正式會員，惟至今年5月突然被解除有關資格。該5球會部分日前(18日)分別在其社交媒體專頁發文控訴，指排總現屆董事局無理作有關決定，並要求排總董事局公開交代事情。直至今日下午，香港排球總會發聲明回應事件，指早於上屆董事局已有會員投訴並請求推翻有關決定，但不獲受理，遂由今屆董事局續理，並稱上屆董事局決定未符客觀標準，故認為早前其他會員的投訴成立。
+
+該5個突然被DQ正式會員資格的球會，分別為力臻排球隊、仁濟排球會、葵青女子排球隊、ALPS SPORTS ASSOCIATION和青龍排球會，部分在Facebook專頁發文當中附以排總發給通知解除正式會員身份的信函，並指有關信函內容未有提及排總是基於那項細則條款來作有關決定，亦未有詳細說明該5會是否有違反任何正式會員程序。5球會續指，他們是於今年5月11日接獲通知，排總董事局已於4月通過解除他們的正式會員資格，即他們由去年12月初獲批成為正式會員後，僅「享有」4個多月有關資格便被DQ。 就排總的聲明，眾新聞向力臻排球隊查詢，惟至截稿前未有回覆。
+
+<figure>
+<img src="https://web.archive.org/web/20211023012431im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/DQ-香港排球總會-20210920214505_3737_large.png" alt="">
+</figure>
+
+排總今日於聲明中表示，上一屆董事局在去年底換屆選舉投票日前不足兩星期內，通過5間球會由準會員申請成為正式會員，令5間球會得以於短時間內成為正式會員並享有投票權。聲明中並指，上屆董事局作有關決定後，便收到其他會員投訴並請求推翻有關決定，但不獲時任董事局接納。
+
+<figure>
+<img src="https://web.archive.org/web/20211023012431im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/DQ-香港排球總會-20210920202556_251f_large.png" alt="">
+<figcaption>香港排球總會在其Facebook專頁發聲明回應5間球會被解除正式會員資格事件。</figcaption>
+</figure>
+
+直至現屆董事局於去年12月18日上任後，便立即就上屆董事局「在未有任何公開、清晰及客觀準則及程序下通過五名準會員成為享有投票權之正式會員之合理性及合法性作出討論及研究」，並聘請律師就上屆通過該5名正式會員的程序及法律理據作出審視。最後得出的大律師意見報告中指出，當董事局審視會員申請資格及作出批核決定時，必須要有清晰的標準及準則，故認為上屆董事局審批沒有一套由準會員成為正式會員之客觀準則作為批核基礎，因此現有會員「對於缺乏一個公開透明的入會政策及條件的投訴」成立。
+
+聲明中也提及排總於過去兩年，未有就準會員申請的時間和條件作出建議、討論及決議，直指「準會員甚至所有本會屬會無從得知任何由準會員成為正式會員的條件」。另外，排總又強調，球會作為準會員期間，連續三年不符合「準則」，會被取消準會員資格；惟聲明中卻無解釋有關準則為何。聲明中同時表示，「董事局需定期對準會員身份作出評核」，但因5個球會成為正式會員未及三年，並未有任何評核。
+
+<figure>
+<img src="https://web.archive.org/web/20211023012431im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/香港排球總會-力臻排球隊-20210920202455_d81a_large.jpg" alt="">
+<figcaption>力臻男子排球隊 Aspiring Volleyball Team facebook圖片</figcaption>
+</figure>
+
+力臻排球會昨日（19日）於社交平台發重要聲明，指上屆董事局依排總《組織章程大綱》審批「力臻」的資格，確認「力臻」近年於推動香港排球運動發展的貢獻，決議通過力臻成為正式會員的申請。惟「力臻」於今年5月11日卻收到排總現屆董事局透過秘書處來信，通知已決議解除該會正式會員資格。力臻在該聲明中引述排球總會在信中指，有其他會員就力臻成為正式會員一事提出質疑及投訴，並於本年4月20日決議通過解除該會正式會員資格，但信中未有清晰說明董事局解除力臻資格的合理理由，及解釋是依《組織章程大綱》中何章何節解除其會員資格。
+
+力臻是劇集《男排女將》中力圖排球隊的原型，曾由甲一唯一女教練葉鳳儀帶領。除了力臻排球隊外，多個同於去年獲認許總會正式會員資格的組織，包括仁濟排球會、葵青女子排球隊、ALPS 沙灘排球會和青龍排球會，均表示接獲通知遭解除正式會員資格。
+
+<figure>
+<img src="https://web.archive.org/web/20211023012431im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/仁濟排球會-香港排球總會-20210920231631_abbd_large.jpg" alt="">
+<figcaption>仁濟排球隊認為排總有關決定，並不符合「組織章程細則」規定。仁濟排球隊Facebook圖片</figcaption>
+</figure>
+
+曾在2016年及2017年奪得甲一冠軍的仁濟排球隊亦發聲明指，多年來總會未有容許任何新的球會加入成為屬會會員，在總會制定任何的重要政策的程序中，他們從未有任何機會正式參與及擁有話語權。聲明中指，仁濟排球隊在2016年獲得首次全港冠軍後，正式申請成為屬會會員，並於2019年獲通知成為準會員，去年底獲時任董事局通過，成為排總成立以來首批申請成功的正式會員。仁濟排球隊續指，新一屆董事局以有數個舊有會員投訴為由，在今年5月11日通知解除仁濟隊正式會員身分，轉回準會員，他們認為有關決定不符合「組織章程細則」規定，並數次致函董事局表示強烈反對及抗議，但未能得到排總的正面回應。
+
+而現為女子甲一球隊的葵青女子排球隊則表示，排總從來沒有提及過是基於那項細則條款來解除其正式會員的身份，亦未有說明5間被解除正式會員資格的排球隊，是否有違反任何正式會員程序。
+
+<figure>
+<img src="https://web.archive.org/web/20211023012431im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/葵青女子排球隊-香港排球總會-20210920231544_3009_large.jpg" alt="">
+<figcaption>葵青女子排球隊質疑排總從未提及5支球隊是否有違任何程序。葵青女子排球隊Facebook圖片</figcaption>
+</figure>
+
+5間球會當中，唯一一支沙灘排球會ALPS SPORTS ASSOCIATION，在2019年正式獲批核成準會員，去年底成為正式會員，今年2月得悉排總即將解除其正式會員身份。該會批評，香港排球總會作為排球界之元首，應以推動排球運動作為首要之任務。ALPS SPORTS ASSOCIATION亦表示，自2003年成立至今一直致力推廣沙灘排球運動，培養優秀球員為宗旨，所以正式會員的身份可算是他們多年來努力的成果，但他們被無故取消正式會員資格，令人質疑總會對於審批球隊成為正式會員的程序的可信性及公平性。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211023012431/https://hkcnews.com/aboutus/#subscribe)

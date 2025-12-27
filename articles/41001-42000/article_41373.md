@@ -1,0 +1,57 @@
+---
+title: "【梁凌杰死因研訊】消防氣墊太大未能放正下方　梁凌杰跌在氣墊旁　總隊目稱已「做到最盡」"
+date: "2021-05-14"
+last_updated: "2021-05-15 00:15:22"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "梁凌杰"
+  - "高偉雄"
+  - "梁凌杰死因研訊"
+url: "https://web.archive.org/web/20210921020327/https://hkcnews.com/article/41373/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41375/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41373/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41375/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【梁凌杰死因研訊】消防氣墊太大未能放正下方　梁凌杰跌在氣墊旁　總隊目稱已「做到最盡」
+
+梁凌杰前年6月15日從太古廣場墮下，位置跌在安全氣墊旁邊的行人路，其死因研訊踏入第5天，庭內關注消防氣墊未有貼近建築外牆的情況。負責設置的消防總隊目作供指，行人路旁有欄杆阻礙，當時已盡可能放近，唯有希望平台上的救援人員成功勸服或拉回事主。
+
+證供指，消防處只提供一種尺寸的氣墊，而就著氣墊面積過大、未能放進約1米闊的行人路，研訊主任提出多個替代方案，如即場拆除欄杆、將氣墊斜著放、氣墊上再疊氣墊、以其他物品取代氣墊等，惟消防總隊目認為全部建議都不可行，甚至會將消防員暴露於危險之中。
+
+<figure>
+<img src="https://web.archive.org/web/20210921020327im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰-梁凌杰死因研訊-20210514235338_ce4c_large.png" alt="">
+</figure>
+
+研訊傳召已退休的時任消防總隊目陳志堅出庭，他在事發當天負責設置安全氣墊，消防處當時只有一種尺寸的氣墊，即長7.5米、闊5.5米、高2.5米。
+
+當日下午約4時50分，消防員在金鐘道將氣墊充氣，但因太古廣場對出行人路設有欄杆，氣墊只能放在行車路，而非貼近大廈外牆、梁凌杰的正下方。不幸的是，梁凌杰最後正是垂直墮下，跌在氣墊未能覆蓋之處。
+
+<figure>
+<img src="https://web.archive.org/web/20210921020327im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-梁凌杰-20210514231806_25c2_large.png" alt="">
+<figcaption>因太古廣場對出行人路設有欄杆，消防氣墊只能放在行車路，而非貼近大廈外牆、梁凌杰的正下方。不幸的是，梁凌杰最後正是垂直墮下，跌在氣墊未能覆蓋之處。蘋果日報圖片</figcaption>
+</figure>
+
+陳志堅承認設置氣墊時，已經意會到事主可能跌在氣墊之外，但以當時環境已「做到最盡」。他曾考慮拆除欄杆，但因行人路有石屎及金屬造的「圍街」（以防高空建築物料意外擊傷途人），路面只餘約1米的狹窄通道，在事主可能隨時墮下的狀況下，若消防員正在下方拆除欄杆，根本沒有足夠時間躲避，情況危險。陳再仔描解釋，拆除一個欄杆預計要5分鐘，最少拆10個才有足夠空間放置氣墊，代表消防員有長達50分鐘時間暴露在危險之中，做法並不可取。
+
+研訊主任、外聘大律師葉志康於是建議其他方法，但都被陳志堅一一反駁。他解釋，若將氣墊打斜放在欄杆上，那並不是一個安全表面，事主可能會被彈到其他方向，甚至撞到石屎「圍街」；紙皮箱或床墊等物料的保護性亦未被確認，也不是用作減低衝擊力的標準物品；若用一個氣墊疊著另一氣墊，填補未被覆蓋的行人路，理論上或者可行，但氣墊本身設計是要放在固定物上，放在另一氣墊上並不穩固。
+
+至於消防處以往用來接著高處墮下人士、俗稱「糯米雞」的布帳，陳志堅表示這種「歷史咁耐」的做法早已淘汰，因布帳要靠8名消防員用力拉起，事主從高空墮下的衝力會傷及消防員的頸椎，舊時只因沒有替代品才「焗住用」。
+
+<figure>
+<img src="https://web.archive.org/web/20210921020327im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰-梁凌杰死因研訊-20210514230956_df7d_large.jpg" alt="">
+<figcaption>已退休的時任消防總隊目陳志堅。邢穎琦攝</figcaption>
+</figure>
+
+死因裁判官高偉雄關注消防處只有一款大型氣墊的情況，指不少企跳事件都在狹窄環境發生，譬如是大廈外的後巷，而外國亦有尺寸較小的氣墊選擇。陳志堅表示不了解消防的採購工作，但以他經驗，一般只能將氣墊放在最近位置，「希望（事主）跳出啲，跳中氣墊」。他又補充，氣墊在營救層面只是防衛性質，主要還是以游說事主返回安全地方，甚至是在適當時機用少許武力拉回事主。
+
+研訊下周一繼續，預計傳召4名消防員，包括當日嘗試拉回梁凌杰不果的消防員。
+
+【案件編號：CCDI481/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921020327/https://hkcnews.com/aboutus/#subscribe)

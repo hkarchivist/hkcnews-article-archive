@@ -1,0 +1,50 @@
+---
+title: "康城影展放映《時代革命》　紀錄反送中如水精神警察軍事化　周冠威：港人保持堅強"
+date: "2021-07-16"
+last_updated: "2021-07-16 05:56:50"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "周冠威"
+  - "時代革命"
+  - "康城影展"
+url: "https://web.archive.org/web/20210920173407/https://hkcnews.com/article/43405/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43406/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43405/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43406/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 康城影展放映《時代革命》　紀錄反送中如水精神警察軍事化　周冠威：港人保持堅強
+
+法國康城影展接近尾聲之際，未有預先披露下突然放映香港反送中運動紀錄片 [《時代革命》（REVOLUTION OF OUR TIMES）](https://web.archive.org/web/20210920173407/https://www.festival-cannes.com/en/festival/films/revolution-of-our-times) ，該片由香港金像獎最佳電影《十年》的導演之一周冠威製作。他坦言，香港失去的遠遠超出任何一個人的預期，這次放映的好消息，對很多活在恐懼的香港人來說，將會是一個安慰。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173407im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/時代革命-20210716040026_2716_large.png" alt="">
+<figcaption>《時代革命》電影海報，標明是香港人作品（A Film by Hongkongers）.</figcaption>
+</figure>
+
+根據外媒報道，《時代革命》詳細記錄2019年香港持續多月的衝突，包括七一立法會風暴、警察涉嫌與黑社會勾結、抗議者自殺、警察軍事化，以及抗爭運動不斷改變形態的「如水」精神。影片跟進拍攝不同持分者，包括哨兵、家長車、網媒記者、守護孩子成員、義務急救的高中生、大學生、抗爭少年、前線抗爭者的組爸、逃往台灣的人。部分受訪者目前已經失聯、流亡或服刑。外媒形容《時代革命》或是至今最詳細記錄反送中運動及警察鎮壓的紀錄片。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173407im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/時代革命-20210716032714_8135_large.jpg" alt="">
+<figcaption>法國康城影展刊登的《時代革命》劇照。</figcaption>
+</figure>
+
+今屆康城影展大部分作品以氣候變化、非洲危機、多元、和平為主題，但罕有出現一套牽涉西方自由主義與中國共產極權主義意識形態衝突的影片。部分外媒獲安排率先閉門觀看影片後指出，中國本應給予香港50年高度自治，並按一國兩制原則運行，但近年卻實行了「全面管轄」，並以毫不妥協的方式強制執行，當香港人在2019年再次湧現反對聲音時，遭到鐵腕打壓。
+
+外媒形容《時代革命》可能是繼挪威導演Anders Hammer執導、入圍奧斯卡最佳紀錄短片的《不割席》後，至今最詳細記錄香港反送中運動及警察殘酷鎮壓的紀錄片。片中以歷史場景為開端，80年代英國和中國就香港前途問題談判達成共識，鏡頭再轉向2019年7月的衝突。外媒形容，港府提議在特區和中國大陸之間引入引渡法案，看似無害的立法，卻有效消除兩個互不相容的法律體系和法律障礙，令在中國大陸管轄範圍以外生活和經營的市民和企業，暴露在共產黨的立法和司法裁決之下，因而惹來民眾反對，當港府愈明顯被北京逼使採取行動時，抗議活動亦變得暴力。
+
+<figure>
+<img src="https://web.archive.org/web/20210920173407im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/時代革命-20210716032706_2452_large.jpg" alt="">
+<figcaption>法國康城影展刊登的《時代革命》劇照。</figcaption>
+</figure>
+
+周冠威在一封電郵聲明表示，衷心感謝康城影展，很榮幸《時代革命》可在康城全球首映，這是一部記錄香港人抗爭的電影。他坦言，香港失去的遠遠超出任何一個人的預期，《時代革命》在康城首映這個好消息對於許多活在恐懼的香港人來說，將會是一個安慰，「全世界為正義和自由而戰的人，都與我們同在，香港人保持堅強！」導演向外媒解釋，由於政府嚴密審查，相信《時代革命》不能在香港公開放映，受訪者大多戴面罩和匿名，即使是製作人員同樣也匿名。
+
+外媒形容，康城影展今次的舉動如同一場外交賭博，有可能會遭到中國大陸和香港當局外交投訴。中國電影學院早前已對《不割席》入圍奧斯卡表示憤怒，中國取消直播頒獎典禮，也勒令媒體淡化事件。康城影展大會或已經預料到負面反應，因此選擇在電影節結束時才公布和放映《時代革命》，這時影展中的中國大陸電影已經放映，無法被撤回。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920173407/https://hkcnews.com/aboutus/#subscribe)

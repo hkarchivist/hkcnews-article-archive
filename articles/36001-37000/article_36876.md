@@ -1,0 +1,43 @@
+---
+title: "鬥長命"
+date: "2020-12-31"
+last_updated: "2021-01-01 13:20:12"
+author: "假才子"
+category: "眾說"
+tags:
+  - "李偲嫣"
+  - "梁頌恆"
+  - "Baggio Leung"
+url: "https://web.archive.org/web/20210805041947/https://www.hkcnews.com/article/36876/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36890/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36876/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36890/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鬥長命
+
+<figure>
+<img src="https://web.archive.org/web/20210805041947im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/Baggio%20Leung-李偲嫣-20210101003539_2c93_large.png" alt="">
+</figure>
+
+2020年，成為香港，甚至可能世界，歷史改變的一年。經歷一年示威浪潮和區議會大敗，中共辣手使出國安法，美國亦以連串制裁回應，香港竟成結束冷戰後三十年國際秩序的契機，相信一年前全世界都始料不及。當然，身近的問題是港人面臨港共政府多方打壓，看不到前路光明。 對此我只能說，就算很多事情做不到，都不要讓心中那團火熄滅，要保存實力跟對方鬥長命，放棄的那一刻你就輸了。
+
+從國安法的機制和條文內容已經可見，中共會藉國安法讓港府無限擴權，不但打壓檯面上的民主派人士，和示威浪潮期間活躍的團體，甚至專業界別、傳媒、教育、公務員等方方面面都會來，以確保港人無反抗能力，甚至無反抗的心。這不像能在短時間內結束，但不要忘了蘇聯和很多獨裁政權都是忽然之間倒台，民主運動突然遍地開花，跟獨裁政權搏鬥從來都是無法預知前路，長期化的。
+
+香港人可能慣了速食文化，甚麼都要很快見效，於是看不到能立即成功就說失敗和放棄，街頭路線又冇用放棄，議會路線又冇用放棄，國際路線又冇用放棄......其實可否不要這麼功利？街頭示威現在的確很難，但不代表社區上無事可做，議會有民主派至少可提供社區服務，和作一個抗衡親中派的表態，國際線有成功和挫折也很平常，至少香港這一年獲得的關注已經遠超想像。但放棄就永遠不會成功。
+
+所以要保存實力鬥長命。一日還有命在，誰會笑到最後都好難講，誰知道對家會否突然發生甚麼冬瓜豆腐呢？開版圖就是最佳例子。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805041947/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 假才子](https://web.archive.org/web/20210805041947im_/https://www.hkcnews.com/uploads/avatars/058f1c51-5648-439a-bd56-51fde2c9899c.png?1475201573)
+
+**博客 | 假才子**
+
+【假才子・假分析】筆者是比較政治碩士學歷，現為傳媒工作者。取名「假才子」是因為現在流行才子才女，但又沒人敢承認自己是假大空才子才女，故先行澄清。文章寫得不好還請見諒，畢竟我不是真才子。

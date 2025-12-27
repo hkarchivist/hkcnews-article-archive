@@ -1,0 +1,89 @@
+---
+title: "父生日爽約涉殺妻兒韓商監房用床單纏頸亡　陪審員裁「死於自殺」　官令遺書交囚友許金山"
+date: "2021-12-20"
+last_updated: "2021-12-20 17:42:36"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "死因庭"
+  - "韓國"
+  - "大韓民國"
+  - "南韓"
+  - "謀殺"
+url: "https://web.archive.org/web/20220703182810/https://www.hkcnews.com/article/49359/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49378/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49359/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49378/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 父生日爽約涉殺妻兒韓商監房用床單纏頸亡　陪審員裁「死於自殺」　官令遺書交囚友許金山
+
+韓籍男商人2018年涉在香港酒店殺害妻兒，事後一度被診斷有自殘風險，幸期間得到囚友關懷，後來得知父親願來港探他，以為家人已原諒了他，他滿心期待生日那天父親來訪，怎料對方最終爽約，最終他選擇在監房用床單布條纏頸自殺。經過三日死因聆訊，陪審團今（20日）考慮約三小時後，一致裁定死者「死於自殺」。死因裁判官周慧珠散庭前主動要求警方將死者的信件，轉交囚友許金山及呂永業。
+
+許金山及呂永業早前上庭作供，稱在2018年在荔枝角收柙所認識被告。許為前中大醫學院副教授，於2015年以一氧化碳注入瑜伽球毒殺妻女，兩項謀殺罪成囚終身。而呂永業則於2016年在停車場內販運市值約1億港元的毒品，罪成判監34年。
+
+<figure>
+<img src="https://web.archive.org/web/20220703182810im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/死因庭-20211216184526_2e51_large.png" alt="">
+<figcaption>死者與妻兒生活照。資料圖片</figcaption>
+</figure>
+
+死者為經營朱古力生意的韓籍男商人Kim Minho，終年43歲。三男兩女組成的陪審團裁定死者於2018年4月16日約凌晨4至5時，在荔枝角收柙所G座3樓1號囚室內以布條勒死自己，裁定他「死於自殺」。
+
+陪審團對懲教署作出三項建議，包括 :
+
+1. 小欖精神病治療中心的精神科醫生服務應基於不同個案增加會面次數，如語言不通、控罪嚴重或家人離世等，提供至少每一個月一次會面。
+
+1. 賦予精神科醫生就不同個案情況的權限，向警方主動申請索取更多資料，例如對疑犯精神健康評估有幫助的紀錄。
+
+1. 署方亦可加強對前線懲教人員有關了解精神健康的培訓，有助及早識別及對有需要的人士作出跟進。
+
+至於警務處，陪審員建議警方可在合理規範下盡可能向精神科醫生提供有助判定精神健康的資料，如疑犯曾向警方透露自殺的念頭。
+
+周官在散庭前特別關注到，列 證據的拍子簿中有寫給死者朋友的信，警方是否可影印後交予友人。研訊主任稱，會將信件副本轉交懲教處，再交給許金山及呂永業。
+
+### 死者父母因韓「面子文化」不願來港
+
+死者父親最終沒有來港探望兒子，或成死者尋死的導火線。據了解，死者在港殺妻兒的事件在韓國國內引起極大迴響，韓媒大肆報導事件。港警事後透過南韓駐港領事館尋找死者父母來港認屍及調查，但因韓國社會的「面子文化」，死者父母認為死者的作為令家人蒙羞，加上死者妻的父母給壓力，力勸兩人不要來港處理事件、不要理會死者。
+
+最終，父親亦沒有來港，只派十年沒有見過死者的表哥陪同死者母親來港認屍及領取遺物。而父親原訂來港探望死者的日期為2018年4月3日，當日原來是死者生辰。   
+   
+ 而死者在港謀殺妻女的案件亦因死者自殺而結案。據悉，行凶後醉酒的死者致電在韓的友人，友人接報後在韓報警，韓警向韓國駐港總領事館求助，酒店職員接到消息後先到房門拍門了解，但沒有人應門，職員其後以後備房咭開門，大驚報警。
+
+### 還柙小欖時院方認為死者有自殘風險
+
+周官今早總結證供時指，死者於2018年1月6日與妻兒來港旅行，警方在同月14日接報到一間酒店，發現死者酒醉、妻兒則已死亡。兩日後死者被控謀殺提堂，還柙在小欖精神病治療中心，當時診斷他情緒低落，問他有否自殘念頭時迴避，故認為他有自殘風險，將他還柙在24小時監控的保護囚室。4日後院認為其自殺風險減低，將他轉回普通囚室。
+
+在1月30日謀殺案件再上庭後，死者就被安排還柙荔枝角收押所，他一度回到小欖覆診，醫生認為死者沒有自殺傾向，而死者亦要求回到荔枝角，因為有所員可用英文與他溝通，精神科醫生在3月1日最後一次與死者會診。
+
+### 許金山曾發現死者面色變黑左頸有膿瘡
+
+死者認識了當時亦是甲級囚犯的許金山，兩人因可以英語溝通關係較好。許認為死者情緒穩定、十分掛念妻兒。死者父親出錢為他請律師，並稱會在4月3日來探望他。死者對此十分期待，認為這代表家人支持、原諒他，故在4月初原訂探訪的日子梳好頭等待，但父親沒有出現令他失望。許稱5日後留意到死者面色變黑、左頸有膿瘡，許相信是他企圖自殺造成的傷痕。
+
+許安排其女友及兒女探望及帶些日常用品給死者，但是在一次探訪中死者卻稱不需要任何東西，亦在4月15日將食物派發給其他人，當日特別靜坐在一邊。
+
+另一囚友呂永業稱，死者對於父親來港既緊張又期待，對父親最終沒有出現耿耿於懷；但出事前一日仍然開心，情緒沒有不同。
+
+### 懲教員：首聞以「打橫勒頸」方法自殺
+
+至4月16日，懲教人員在早上7時開倉後發現死者不省人事，多名懲教員人員稱，是第一次見有人以「打橫勒頸」的方法自殺。法醫稱死者眼球出血及舌頭伸出的情況吻合勒斃，同意死者送院前幾小時已死亡，死者雖然有嚴重冠心病，但與死亡無關。
+
+<figure>
+<img src="https://web.archive.org/web/20220703182810im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/Kim%20Minho-死因庭-20211218014509_a641_large.jpg" alt="">
+<figcaption>死者與妻兒生活照。資料圖片</figcaption>
+</figure>
+
+周官今早提出，陪審團可裁定「死於自殺」及「死因疑存」。周官指，因過往「自殺」為刑事罪行，故以前裁定「自殺」時需用上「毫無合理疑點」標準，即陪審團需要肯定死者有意圖了結性命。
+
+### 不難作出「死於自殺」結論
+
+但其後一個英國案例中，認為死因聆訊中可使用較低的「相對可能性標準」，而自殺已不再是刑事罪行，加上現時社會自殺情況日增，家屬比較容易接受「自殺」的裁決，認為陪審員可以「相對可能性標準」裁定結果。不過周官認為，在此案即使用上最高標準，陪審員亦不難作出死者「死於自殺」的結論。
+
+如陪審員不接納筆記中的遺書是死者所寫、不接納懲教及法醫的證供，亦不接納是死者撕開床單勒死自己，唯一的結論就是「死因存疑」。
+
+周官強調，陪審團考慮建議時需使用自己的社會經驗來提出實際可行的建議，例如現時懲教署在晚間已15分鐘巡邏一次，若建議要安排一名職員長期駐守「企喺度」，則是不可行。
+
+### 死者曾向警透露「想死」 官質疑精神科醫生會面時是否知悉
+
+周官稱，會見死者的精神科醫生稱被告面對案件及在韓家人的壓力，情緒反覆，可以出現自殺念頭，但最終認為死者沒有自殺傾向。但他在警方的錄影會面中，已承認殺死妻兒，因妻兒已離開，故他自己都想死。
+
+周官質疑，精神科醫生為死者評估時是知悉警方的調查內容？精神科醫生是否應持有更多、更詳細的調查資料，尤其曾向警方表露自殺念頭，「呢個諗法唔會因為過咗一兩個月而冇咗，而係會愈來愈大」，認為陪審團可循此方向考慮建議。
+
+案件編號：CCDI269/2018

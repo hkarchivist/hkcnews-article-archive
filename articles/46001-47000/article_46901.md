@@ -1,0 +1,46 @@
+---
+title: "武漢村支書遇害致5死1傷　疑兇逃走時再殺2人後跳江　警方：正追尋其下落"
+date: "2021-10-26"
+last_updated: "2021-10-26 18:27:51"
+author: "中國組記者廖樂欣"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "村支書"
+url: "https://web.archive.org/web/20211128183535/https://www.hkcnews.com/article/46901/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46905/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46901/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46905/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 武漢村支書遇害致5死1傷　疑兇逃走時再殺2人後跳江　警方：正追尋其下落
+
+**武漢蔡甸區消泗鄉昨日(25日)凌晨發生的村支書一家五口命案，加上疑兇逃走時再造成2死，總共導致7死1傷。警方說疑兇其後跳橋，正全力搜尋他的下落。**
+
+被殺害的除了村支書張啟紅及他的另一半外，媳婦跟兩個孫子同樣遇害，另一個小朋友倖存受傷。住在鄰近的死者弟弟說案發時不察覺有異樣：「他進去我都看見了，聽見了，反正是個小車子，他喊他，說張書記我找你有點事，進了他屋，以為是談事，搞了個工作台，他連作案都只有20分鐘，他走的時候我也曉得。(響聲)是肯定沒有，如果我聽到了我不就起床了。」
+
+<figure>
+<img src="https://web.archive.org/web/20211128183535im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/武漢-村支書-20211026134655_20de_large.jpg" alt="">
+<figcaption>被殺害的武漢蔡甸區消泗鄉村支書張啟紅。《蔡甸新聞》圖片</figcaption>
+</figure>
+
+家人之後找張啟紅時才揭發命案：「每天晚上我們喊他幫忙拖魚，門一推，看到他在哭，兩個孩子在2樓，小媳婦和小孫子在樓梯口拐彎，她肯定在家裡聽到什麼響動了，把孩子抱下來了。」死者兒子一度表示對兇手身份毫無頭緒：「現在連兇手都不知道是誰，現在他們連什麼結果都沒有，我現在腦袋一片空白。」
+
+有村民說張啟紅負責防汛工作十多年，去年因為職位空缺才被臨時推選做代理書記，今年亦即將退休，認為他受人愛戴，不知道他與誰結怨：「他之前是村組長，其實他人很好，不是那種很拐(壞)的人，因為他是我們一個組長，有時候有什麼事我們都找他，他很好，有說有笑，蠻好，誰這麼狠心下這個狠手。」
+
+<figure>
+<img src="https://web.archive.org/web/20211128183535im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/武漢-村支書-20211026134640_2ee4_large.jpg" alt="">
+<figcaption>疑兇在逃走時造成另外兩人死亡。《齊魯觀社會頻道》圖片</figcaption>
+</figure>
+
+根據警方通報，一名39歲男子昨日凌晨一時許持刀行兇，期間導致7死1傷，警方接報後追捕他，直至清晨6時許，疑兇逃至長江大橋後跳橋，目前警方正全力搜尋。
+
+死者家屬其後接受紅星新聞時補充：「警方(給我們)的通報就是說，是我們村裡的，但是年輕的時候坐了十幾年牢，出來了之後就沒回來過。警方說案發當天(疑兇)從外地回來，回來就埋伏在書記家附近，(他)經濟有壓力呀，他上門找張書記，也是第一次。」
+
+內地澎湃新聞報道，疑犯在開車逃走期間撞斃一名過馬路的女人，再在搶劫另一架的士時，導致一個30多歲的士司機死亡。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128183535/https://www.hkcnews.com/aboutus/#subscribe)

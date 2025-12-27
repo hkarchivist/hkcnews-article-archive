@@ -1,0 +1,43 @@
+---
+title: "只是一份正常的試卷"
+date: "2020-05-15"
+author: "不無"
+category: "眾說"
+tags:
+  - "DSE考試"
+  - "歷史科"
+  - "中日關係"
+url: "https://web.archive.org/web/20220809120339/https://hkcnews.com/article/29922/dse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29922/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/29922/dse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29922/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 只是一份正常的試卷
+
+**編者按：今天（15日）最新發展──教育局局長楊潤雄舉行記者會，明令要考評局取消這條試題的評分。**
+
+一份DSE試卷，資料大篇幅介紹日本為中國改革做的努力，輕輕帶過日本同期對中國的經濟侵略。問題是：日本對中國利多於弊，同意嗎？然後被國家批鬥。
+
+同為選修中史的中學生，當然知道有試題資料會多著墨考生不熟知（教科書少談）的論見，幫助考生配合已有知識從不同角度作答。這種出題方式並不少見，本就不足為怪，再加上問題溫和地允許考生自由選擇作答立場——引導之說更是無從談起。但這實在不是重點。毛澤東說過什麼也不重要。重點是，退一步，就算撰題者有心刻意引導考生往利多於弊的立場，那也無可厚非。
+
+<figure>
+<img src="https://web.archive.org/web/20220809120339im_/https://hkcnews.com/news_新聞/hk-discuss/2020/05/中日關係-DSE考試-歷史科-20200515161924_7713_large.jpg" alt="">
+<figcaption>引起爭議的DSE歷史科試題。</figcaption>
+</figure>
+
+歷史本來就是一家之言，沒有標準答案。馬克思史觀認為，辛亥革命因脫離群眾和無產階級註定失敗，國民黨史觀自然無階級觀念，但誰也不能分對錯，誰也不應企圖消滅對立的觀點。歷史課是社會科學，不同科學，沒有真理，只有辯論場上的百家爭辯，在不斷的思辨過程中不斷靠近真相。誰也不能保證哪個觀點更貼近真實，所以排斥小眾之見以得出一致的結論本就不是我們應該追求的目標——尊重小眾之見，才是歷史的天職。正是因此，筆者的歷史課本不時介紹學者對主流觀點提出的異見，只有如此才能使學生在健康的歷史環境中學習思辨，而非盲目地緊抱主流而不顧小眾。
+
+所以即使撰題者有意引導考生，那又何罪之有？難道日本在那段時期對中國弊多於利是不可挑戰的？難道這觀點是「正確」的，而對立的觀點必然「錯誤」？何以引導學生至主流觀點就可以接受，而引導至小眾觀點就要譴責？
+
+#### 外交部或者會答：這不是小眾觀點的錯，而是傷害國民感情。國民感情不少都是從歷史得來，了解國家的歷史才對國家有感情。但國民感情從來不是建立在對歷史敵人的恨意，而是建立在立體多面的歷史。一個健康的民族歡迎對歷史的補足，因為他們熱愛民族的全部過去，而不會追著自己在歷史中受害的角色自憐。如果僅僅為歷史提出不同的可能性便已足以傷害國民感情，如果國民感情完全建立於對日本的負面評價，那這種膚淺脆弱的感情不要也罷。如果真要追求這樣的感情，別到歷史書上找，找不到的。到天安門的水晶棺前去吧，如果你看不到毛主席對千萬生命的責任。
+
+至於國民教育應有之義，不正是培養學生對國家歷史的立體認識嗎？如果國民教育必須放大在歷史上受害者的角色，而避談侵略者的貢獻，先不說這種教育的意義，不如先想想我們要放棄的是什麼吧。
+
+為了異樣的國民教育，教育局連中學生的歷史卷子都容不下。剛上完通識網課，提起這件事，老師頗為痛心，說：讀書之餘，你們還要想想讀書的自由剩下多少。
+
+---
+
+![博客 | 不無](https://web.archive.org/web/20220809120339im_/https://hkcnews.com/uploads/avatars/5a5f196f-c406-4495-8d66-980547058bda.png?55074706)
+
+**博客 | 不無**
+
+【不無・即使徒勞】大學生，愛讀中史，先是發現歷史改變不了現實的怪誕，然後發現香港的現實或者容不下歷史的全部。即使最後徒勞，也希望永遠不要無動於衷。有力無力，總是有很多大膽的話，希望來得及慢慢說。

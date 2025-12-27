@@ -1,0 +1,48 @@
+---
+title: "香港眾志黃之鋒周庭今晨被捕　陳浩天被指涉參與暴動及襲警昨晚出境時被捕"
+date: "2019-08-30"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "黃之鋒"
+  - "Joshua Wong"
+  - "陳浩天"
+  - "周庭"
+url: "https://web.archive.org/web/20210712032137/https://www.hkcnews.com/article/23213/%E9%BB%83%E4%B9%8B%E9%8B%92-%E5%91%A8%E5%BA%AD-%E9%99%B3%E6%B5%A9%E5%A4%A9-23213/%E9%A6%99%E6%B8%AF%E7%9C%BE%E5%BF%97%E9%BB%83%E4%B9%8B%E9%8B%92%E5%91%A8%E5%BA%AD%E4%BB%8A%E6%99%A8%E8%A2%AB%E6%8D%95-%E9%99%B3%E6%B5%A9%E5%A4%A9%E8%A2%AB%E6%8C%87%E6%B6%89%E5%8F%83%E8%88%87%E6%9A%B4%E5%8B%95%E5%8F%8A%E8%A5%B2%E8%AD%A6%E6%98%A8%E6%99%9A%E5%87%BA%E5%A2%83%E6%99%82%E8%A2%AB%E6%8D%95"
+original_url: "https://www.hkcnews.com/article/23213/%E9%BB%83%E4%B9%8B%E9%8B%92-%E5%91%A8%E5%BA%AD-%E9%99%B3%E6%B5%A9%E5%A4%A9-23213/%E9%A6%99%E6%B8%AF%E7%9C%BE%E5%BF%97%E9%BB%83%E4%B9%8B%E9%8B%92%E5%91%A8%E5%BA%AD%E4%BB%8A%E6%99%A8%E8%A2%AB%E6%8D%95-%E9%99%B3%E6%B5%A9%E5%A4%A9%E8%A2%AB%E6%8C%87%E6%B6%89%E5%8F%83%E8%88%87%E6%9A%B4%E5%8B%95%E5%8F%8A%E8%A5%B2%E8%AD%A6%E6%98%A8%E6%99%9A%E5%87%BA%E5%A2%83%E6%99%82%E8%A2%AB%E6%8D%95"
+---
+
+# 香港眾志黃之鋒周庭今晨被捕　陳浩天被指涉參與暴動及襲警昨晚出境時被捕
+
+<figure>
+<img src="https://web.archive.org/web/20210712032137im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/黃之鋒-警方拘捕-周庭-20190830102049_12f2_large.png" alt="">
+<figcaption>香港眾志在社交媒體表示，黃之鋒及周庭被捕。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712032137im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/Joshua%20Wong-被捕-周庭-20190830103059_817a_large.jpg" alt="">
+<figcaption>照片來源：香港眾志Facebook</figcaption>
+</figure>
+
+警方今晨拘捕香港眾志成員黃之鋒及周庭。前香港民族黨召集人陳浩天昨晚在機場預備出境時被捕。
+
+香港眾志在表示，秘書長黃之鋒今天早上約7時30分前往海怡半島地鐵站途中，在街上突然被推上私家車被捕，黃之鋒被押往灣仔警察總部。此外，另一成員周庭亦在家中被捕，同樣被押往警察總部。香港眾志表示，目前未知兩人的確實罪名，已安排律師處理二人被捕事宜。
+
+《蘋果日報》的報道引述警方稱，就6月21日示威者包圍警察總部，黃之鋒（22歲）涉嫌「煽惑他人參與未經批准的集結」、「組織未經批准的集結」及「明知而參與未經批准的集結」被捕。至於周庭（22歲）則涉嫌「煽惑他人參與未經批准的集結」及「明知而參與未經批准的集結」被捕，兩人現正被扣留調查。
+
+<figure>
+<img src="https://web.archive.org/web/20210712032137im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/09/陳浩天-香港民族黨-20180924185307_a9be_large.jpg" alt="">
+<figcaption>陳浩天周四晚在機場預備出境時被捕。資料圖片</figcaption>
+</figure>
+
+此外，已經被取締的香港民族黨召集人陳浩天昨晚在社交網站稱，在機場預備出境時被扣留。香港電台報道，警方表示，有組織罪案及三合會調查科昨晚於機場拘捕一名29歲姓陳的男子，涉嫌「參與暴動」及「襲警」，正被扣留調查。
+
+警方月初在火炭拘捕7男1女，指涉嫌藏有攻擊性武器及無牌管有爆炸品，被捕人士包括陳浩天。他當時被扣留約43小時後獲准保釋，保釋條件沒有限制出境。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712032137/https://www.hkcnews.com/aboutus/#subscribe)

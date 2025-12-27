@@ -1,0 +1,67 @@
+---
+title: "林鄭葉劉推反制BNO　兩「癲姐」爭逐最佳女角"
+date: "2021-01-12"
+last_updated: "2021-01-13 02:35:27"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "葉劉淑儀"
+  - "葉劉"
+  - "Regina IP"
+  - "葉太"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "BNO"
+  - "bno passport"
+  - "bno 護照"
+url: "https://web.archive.org/web/20210916181917/https://www.hkcnews.com/article/37207/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-37211/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDbno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37207/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-37211/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDbno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭葉劉推反制BNO　兩「癲姐」爭逐最佳女角
+
+
+{{< video src="https://web.archive.org/web/20210916181917if_/https://www.youtube.com/embed/GZZcibZu6X8" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210916181917/https://bit.ly/2Cj8v4t)
+
+英國國民（海外）護照，英文是British National（Overseas），簡稱BNO，在1987年推出。中英兩國在1984年已正式簽署中英聯合聲明，香港大局已定，但出現信心危機、移民潮，英國政府恐怕有大量港人湧入，北京希望穩定人心，英國以BNO關門，持有人並不擁有居留權，中英雙方的所謂共識，是令大部份當時沒有條件移民美國、加拿大和澳洲等西方國家的港人，在無可選擇下接受一國兩制。 BNO被形容為British No，即英國對港人say no，關上大門。
+
+2019年爆發反修例運動，中央全面收緊對港政策，全面介入，直接訂立港區國安法，警方國安處大搜捕民主派人士，港人人權自由大倒退，英國政府放寬持BNO港人移民規定，但並非直接可入籍，British No並非變成British Yes，有一系列條件，但已觸動中央及本地「愛國者」神經，認為英違反中英就BNO地位的備忘錄，中方聲言有「反制」措施，暫未公佈，行會成員兼立法會議員 [葉劉淑儀日前在《南華早報》撰文](https://web.archive.org/web/20210916181917/https://www.scmp.com/comment/opinion/article/3116906/hongkongers-who-decide-leave-its-time-they-had-choose-foreign) ，建議應禁止港人擁有雙重國籍。
+
+她認為中央是時候結束對港人的特別待遇，嚴格執行《中國國籍法》 禁止雙重國籍，持外國籍的港人須放棄香港的居留權和投票權。葉劉淑儀在文中指中央因歷史因素，長期對持雙重國籍的港人「 隻眼開、隻眼閉」，但形容BNO移民政策有如在推行港區國安法的中央臉上「打了一巴」，建議中央可就《中國國籍法》釋法， 提出一個設於未來的「截止日期」（cut-off date），之後獲取外國籍的港人會被視為自願放棄中國籍。
+
+中央吃了「一巴掌」，要懲罰港人，甚麼道理？
+
+接近540萬合資格香港居民，本月31日起可申請英國國民（海外）護照（BNO）簽證移民英國。中央未動，葉劉先拋出禁止雙重國籍，猶如「七傷拳」，但恐怕對英國影響有限，香港和內地更傷。
+
+97前後，不少港人取得外國居留權後回流，中央「隻眼開、 隻眼閉」，相安無事，一旦改變，他們被逼抉擇，將掀起「 第二次移民」，反修例風暴後，港區國安法生效，移民潮再起，葉劉建議除了自我感覺為中央「出一口氣」外，對香港和中央有害無利，有意移民的加快申請，未考慮的開始憂慮， 香港「愈來愈顛」，為了下一代，可能也心動。
+
+特首林鄭月娥今日（12日）說政府沒有提出如何處理BNO問題，行政會議並無討論有關問題，但又說，當國家及特區受外國不合理制裁，無理由甚麼也不做，特區政府會配合中央政府採取需要的反制措施。
+
+
+{{< video src="https://web.archive.org/web/20210916181917if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F390448395388368%2F&show_text=false&width=560" >}}
+
+
+BNO移民計劃，性質與包括香港的不少地方，吸引外來人口的計劃分別不大，在林鄭口中卻變成「不合理制裁」，莫明其妙！港人97前後，均享有出入、移民自由，97前，中央務實，也有信心，只要香港繼續繁榮安定，走了的也會回流。
+
+2019年一場社會運動，中央加強控制香港，香港變得「內地化」，英國及部份西方國家稍開啟移民小門，北京視為國際反華鬥爭，警告有反制措施，反制是「你做初一，我做十五」，潮語是「攬炒」 。葉劉、林鄭盲目附和，「師姐」甚至提出禁止港人擁有雙重國籍，兩位「癲姐」、姊妹花，爭逐最佳「攬炒」女主角。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916181917/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210916181917im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

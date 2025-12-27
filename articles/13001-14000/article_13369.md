@@ -1,0 +1,74 @@
+---
+title: "死刑執行前的等待，才是真正懲罰"
+date: "2018-07-06"
+last_updated: "2018-07-06 19:15:49"
+author: "夏水"
+category: "眾說"
+tags:
+  - "死刑"
+  - "東京地鐵沙林事件"
+  - "麻原彰晃"
+url: "https://web.archive.org/web/20220120023928/https://hkcnews.com/article/13369/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/13369/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 死刑執行前的等待，才是真正懲罰
+
+<figure>
+<img src="https://web.archive.org/web/20220120023928im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/死刑-東京地鐵沙林事件-麻原彰晃-20180706184108_47b6_large.jpg" alt="">
+<figcaption>日本報紙今早以號外方式，報道奧姆真理教元教主麻原彰晃伏法。美聯社</figcaption>
+</figure>
+
+23年過去，日本東京沙林毒氣事件元凶、奧姆真理教元教主松本智津夫（麻原彰晃）及其餘6名幹部，終於今日早上（7月6日）先後伏法。媒體引述法務省知情人士指，一口氣快手處刑是因來年春天天皇明仁退位，新天皇誕生的一片喜慶中，不宜重提舊日傷疤並置新屠刀，「平成年間發生的事，就在平成年終結前解決。」
+
+「麻原彰晃」四字再現，友人反應多數是：「咦？不是早就死了嗎？」事實是麻原自1995年遭逮捕並於翌年開審後一直堅持無罪，至04年2月東京地方法院一審始判決死刑，06年定讞。之後，就是長達11年10個月的漫長等待。
+
+有說法是，麻原彰晃的死刑遲遲未有執行原因在於，有關奧姆真理教的所有訴訟至今年3月才悉數完成──最後一名高橋克於2012年被捕後6年才完成審判。但若翻查日本過去執行死刑的紀錄，就能發現「等待死刑」已是日本常態：07至17年間，日本國內等待執行死刑的平均時間為5年。
+
+<figure>
+<img src="https://web.archive.org/web/20220120023928im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/麻原彰晃-死刑-東京地鐵沙林事件-20180706183605_1619_large.jpg" alt="">
+<figcaption>麻原彰晃1995年資料照片。美聯社</figcaption>
+</figure>
+
+雖然日本《刑事訴訟法》第475條2項清楚寫明，犯人判處死刑當日計起6個月內必須完成刑求，然而參照法務省紀錄，過去10年「等死」犯人中，最少也需要等1年零4個月才行刑，相對最長者則等了18年5個月才告伏法，而更重要的是，有人等了超過20年至今仍未走上刑台，所以才未打破最長「紀錄」。
+
+誰人造成了這麼漫長的「等死期」？法務大臣不願簽下法令是一大理由，當中自然牽涉各種政治計算與壓力。如本身反對執行死刑的前法務大臣千葉景子，在2010年在政治壓力下發佈2項死刑執行法令，但她隨即向傳媒公開刑場內部環境，並於法務省成立「死刑研究會」，希望促發坊間討論思考，推動廢除死刑制度。
+
+千葉景子的決定不能說不成功──繼任的4位法務大臣之後再無簽署任何死刑法令。直至2012年確定死囚數達到新高的132人，而政府安排支持死刑的小川敏夫出任法務大臣後，死刑判決才再度簽署執行。
+
+另一個影響法務大臣是否簽署法令的因素在於犯人是否申請上訴或再審。拖延死刑是為了避免出現冤罪或因判決改變而發生的「誤殺」，而日本法律漫長的上訴程序及空間，難免會令「等死」的過程變得更漫長。
+
+1966年發生的「袴田事件」可說是經典例子，味噌製造公司員工袴田巖懷疑刺殺公司專務董事一家四口並放火燒屋，1968年9月靜岡地方裁判所判袴田死刑，袴田上訴至東京高等裁判所，1976年遭駁回；他自然再上訴至最高裁判所，4年後又被駁回並定讞死刑。
+
+<figure>
+<img src="https://web.archive.org/web/20220120023928im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/死刑-縱火-袴田事件-20180706185825_1035_large.jpg" alt="">
+<figcaption>2014年，靜岡地方裁判所裁定「袴田事件」再審開始。現在的袴田已經是八十多歲的老人。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220120023928im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/死刑-縱火-袴田事件-20180706185845_2990_large.png" alt="">
+<figcaption>現在的袴田已經是八十多歲的老人。</figcaption>
+</figure>
+
+事情橫跨14年還未結束：81年他與律師申請再審，雙方陷入申請、駁回再上訴的輪回之中，結果時間來到2014年──案發後48年後，靜岡地方裁判所裁定再審開始，但同時裁定因身體及精神狀況理由，停止袴田之死刑執行。今年6月，東京高等裁判所又宣佈，取消靜岡地方裁判所再審的決定，但袴田這82歲老人是否有罪也好，也不用再面對死刑。
+
+相較一瞬間的升天，漫長的「等死期」可能才是重犯們的無間地獄：在壓抑的監禁環境中，等候突然出現的死亡宣告──為防止犯人情緒激動，監獄方事先不會通知犯人及家屬行刑時間，只有執行死刑當天早上一小時前，獄警才會將犯人直接帶到地下的死刑執行室。
+
+這種不知生也不知死的壓力，不但教犯人難以承受甚至精神崩潰，對其家屬也造成殘忍的傷害。聯合國禁止酷刑委員會就曾評擊日本這種做法是一種「心理酷刑與壓力」，但至今仍未見有何改善之法，而坊間有論者則指出，政府這種不知是有意還是無意的「懲罰」，可能才是面對十惡不赦惡人最好的方法。
+
+<figure>
+<img src="https://web.archive.org/web/20220120023928im_/https://hkcnews.com/news_新聞/hk-discuss/2018/07/麻原彰晃-死刑-20180706133401_27a9_large.jpg" alt="">
+<figcaption>東京拘留所是設有死刑執行設施的監獄。美聯社</figcaption>
+</figure>
+
+作為七大工業國中唯二執行死刑的國家，日本不少法律界人士近年積極要求法務省取消死刑，但2014年一項調查中，逾8成受訪民眾支持執行死刑，可見日本國民仍然信奉傳統上罪必伏法的信念，由是觀之，如法務程序依舊不改革，漫長的「等死期」依然將是犯人最可怕的懲罰。
+
+無論如何，對沙林事件的的死傷者家屬來說，結束無了期的等待，也是從惡夢的回憶中解脫，但願受害者能堅強的從傷疤陰影中走出去，走下去。
+
+---
+
+![博客 | 夏水](https://web.archive.org/web/20220120023928im_/https://hkcnews.com/uploads/avatars/33274733-1060-4657-aa56-930f36609c67.png?1483491535)
+
+**博客 | 夏水**
+
+【夏水・港日對倒】八十後人夫，(太太稱)中二病，腹黑毒舌，窮得只剩文字。時而嘻笑時而真心；有時看我城，有時望東瀛；做過傳媒現職公關，不欲恐懼愧疚誤判，在白色恐佈文字獄降臨前想到便寫。

@@ -1,0 +1,91 @@
+---
+title: "【迷你倉死因研訊】救出死者後才正式宣布啟動救援程序　行動總指揮同意已失重要性"
+date: "2021-10-26"
+last_updated: "2021-10-26 19:46:46"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "消防處"
+  - "死因庭"
+  - "時昌迷你倉"
+url: "https://web.archive.org/web/20220127092540/https://www.hkcnews.com/article/46917/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46925/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46917/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46925/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【迷你倉死因研訊】救出死者後才正式宣布啟動救援程序　行動總指揮同意已失重要性
+
+【研訊第34天】
+
+2016年九龍灣淘大工業村時昌迷你倉第一座大火導致兩名消防員殉職，死因研訊今續。行動總指揮官翁錦雄不同意搜救行動沒有系統，強調已立即派員入火場搜索；惟他同意及早宣布啟動「mayday」救援程序，可讓指揮中心盡快增調支援，而當日殉職消防隊目張耀升被救出後才正式啟動「mayday」，已然失去其重要性。此外，當日在現場監察行動的時任助理處長則供稱，他入行36年間，從未經歷過「mayday」。
+
+<figure>
+<img src="https://web.archive.org/web/20220127092540im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/時昌迷你倉-死因庭-消防處-20211025163845_af45_large.jpg" alt="">
+<figcaption>行動總指揮、時任九龍中區指揮官翁錦雄</figcaption>
+</figure>
+
+### 總指揮：不需澄清處長指令，我最清楚現場情況
+
+現任副消防總長、時任九龍中區指揮官翁憶錦雄供稱，2016年6月21日起火當天，他是火警現場總指揮官。死者張耀升家屬的代表大狀曾藹琪指出，下午約4時，時任消防處處長黎文軒親自下令技術救援隊（TR）到場進行外牆爆破。
+
+惟翁表示，當日TR長官僅表示到場「支援」，沒表明只是做「外牆爆破」，故按照他的理解，TR可以進行爆破及滅火工作。被問到有否嘗試澄清處長指令，翁直言不需要，因他自己最清楚現場情況。
+
+### 大狀質疑下屬不需報告　總指揮：個個同事都好專業！
+
+**問：傍晚有消防員入火場不足1分鐘，便因皮膚灼熱要撤退，你是否知情？**
+
+翁：不知情，煙火特遣隊（CFS）指揮官余家銳會因應情況，派員入火場評估是否適合繼續工作，如認為不適合才向他報告。
+
+**問：CFS可自行判斷狀況及決定行動？**
+
+翁：是。
+
+**問：傍晚近7時，有消防員發現火場內有五顏六色的火焰，你是否知情？**
+
+翁：不知情；但同意不可掉以輕心，而且「如果我知係會好啲」。
+
+**問：有否明確要求下屬需要向你報告甚麼事項？**
+
+翁：沒有，因為「我哋行內知有咩要講、有咩唔洗講」，所有分組指揮官均具有豐富經驗，不會懷疑各人的專業能力。
+
+**問：你是否「放手」讓分組指揮官指派同袍入火場？**
+
+翁：不同意，語帶激動地強調：「希望你唔好覺得我求其俾啲同事入去！個個同事都好專業，個個都經過專業訓練！」
+
+### 憑多年經驗判斷   堅持派死者入火場「揸喉」是正確決定
+
+翁又表示，當日下午約5時半，CFS指揮官余家銳表示CFS隊員已精疲力竭，他遂指示余與行動組指揮官林有榮溝通，安排行動組接手救火工作，讓CFS隊員休息。他堅持說，入火場「揸喉」控制火勢是相對簡單的工作，所有消防員均可勝任。
+
+因此翁認為，余考慮到隸屬TR的坍塌拯救專隊（USAR）距火場較近、較易調派，故最終派遣同屬USAR的死者張耀升及其拍檔入場「揸喉」，這是一個合理決定，「我唔會懷疑佢(余)嘅決定，因為佢一定最清楚（現場情況）囉！」
+
+翁指，雖然當日他沒入過火場，但若果他是余，也會做出同樣決定。曾大狀問他憑何甚麼作出此判斷，他回應稱：「我多年嘅經驗囉！我嘅專業囉！」
+
+翁又表示，事發後他沒向三樓火場入口指揮官霍永鴻索取TR隊員入火場的紀錄，因為消防處已成立專責小組調查事件；他也沒偕余、霍「特別坐埋一齊傾返件事」。
+
+### 稱2012年消防處已宣布全面更換對講機
+
+對於TR在火場內使用俗稱「黑機」的舊款對講機，翁重申不知情，並坦言「我理解唔到」，因為消防處早於2012年便發出文件宣布「黑機」已被俗稱「紅機」的新款對講機全面取代。死因裁判官黃偉雄認為此事重要，要求處方在午休期間尋找該份文件，惟處方人員最終表示找不到。
+
+翁不同意曾大狀所指，搜救行動沒有系統，亦不同意他或消防控制中心沒宣布啟動「mayday」搜救程序，便代表沒有啟動該程序。他強調，一開始派員搜救便等同啟動了「mayday」，「點樣通知啲人（同袍）行呢個程序只係個『方法』」。
+
+惟翁同意宣布啟動「mayday」很重要，可讓指揮車盡快調派支援車輛。曾大狀指出，當日張被送上救護車後，才正式啟動「mayday」，已失去其重要性；翁同意。
+
+翁在消防處代表大狀伍健民的查問下，稱當日約有100名消防員在起火大樓各處工作，當中大部分隸屬行動組，故他認為即使沒通知電台啟動「mayday」，現場的搜救支援也足夠。
+
+### 助理處長：入行36年從未經歷過「mayday」
+
+現已退休的時任助理處長李亮明供稱，他當日趕抵現場，就滅火策略向翁提出建議，但翁有最終決定權。直至張耀升於傍晚7時許失聯後，李接替翁擔任行動總指揮，宣布升為四級火警。
+
+<figure>
+<img src="https://web.archive.org/web/20220127092540im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/證人-時昌迷你倉-死因庭-20211026164833_7949_large.jpg" alt="">
+<figcaption>時任助理處長李亮明</figcaption>
+</figure>
+
+李自言1980年加入消防處至案發36年間，從沒經歷過「mayday」。當日他得知有同袍失聯後，因專注現場拯救，故沒考慮到要正式宣布啟動「mayday」。
+
+惟他認為，除了沒宣布外，其他現場搜救程序均跟從指引，惟同意「有做（宣布）一定好過冇做」，因控制中心會調派更多資源到場協助。
+
+研訊主任指出，啟動「mayday」的指引不涵蓋今次情況，即失聯的張耀升及其拍檔均無法啟動自行程序，問是否應修訂指引以涵蓋更多情況，或者要求前線自行變通。李直言「指引冇可能包括晒所有情況」，而「『變通』即係冇指引」。
+
+研訊明續，將會展開另一名死者許志傑的案情，料會傳召許的上級及拍檔出庭作供。
+
+案件編號：CCDI333-334/16

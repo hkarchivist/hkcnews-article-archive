@@ -1,0 +1,54 @@
+---
+title: "鄧炳強發炮　「石牆花」倒下　批記協違專業　歪曲事實為何事？"
+date: "2021-09-14"
+last_updated: "2021-09-14 23:30:51"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "記協"
+  - "香港記者協會"
+  - "鄧炳強"
+  - "石牆花"
+url: "https://web.archive.org/web/20211026235608/https://hkcnews.com/article/45435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45437/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45435/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45437/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鄧炳強發炮　「石牆花」倒下　批記協違專業　歪曲事實為何事？
+
+
+{{< video src="https://web.archive.org/web/20211026235608if_/https://www.youtube.com/embed/8v-miCey4hk" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211026235608/https://bit.ly/2Cj8v4t)
+
+香港過去曾出現移民潮。反修例風暴後，中央出手「撥亂反正」，港區國安法實施，全面落實愛國者治港，港人愛自由，以萬計家庭移居外地，移民潮再現。新一浪移民潮與過去的有重要分別，有人形容為「逃亡潮」。關注在囚人士權益組織「石牆花」今日宣布解散。創辦人邵家臻以「花開花落有時盡，相逢相聚本無意」作總結，指香港人「保住條命最緊要，最緊要人無事。」回歸24年，有港人感到面臨生死存亡境況，對「撥亂反正」感到迷惘，很悲哀。
+
+中國憲法和香港基本法都有條文保障人權自由，包括結社自由。保安局局長鄧炳強日前不點名批評有組織協助在囚人士建立特權和影響力，散播危害國安種子，劍指「石牆花」。「石牆花」成立僅9個月，今日在社交平台表示，世界上沒有無緣無故的結業，邵家臻說已「無力走下去」。
+
+鄧炳強不點名，「石牆花」倒下。他今日接受《大公報》專訪，點名批評成立53年的記協，頭版標題引述他說「記協違專業，哄學生入會」，「協會執行委員會來來去去集中幾個媒體，有好多學生喺入面，令人質疑記協嘅代表性。」《大公報》記者問，是否已偏離工會註冊要求？鄧炳強說： 「記協公信力，同佢註冊是兩件事，只要任何組織、團體違反法例包括國安法都要負責。」鄧炳強點名「唬」記協，記協主席陳朗昇接受商台訪問時表示會繼續運作。（申報： 本文作者為2017-2021年度記協主席。）
+
+特首林鄭月娥近日常掛在口中的一句說話是「香港要融入國家發展大局」，國安法加上愛國者治港下，香港已全面走向內地的一套制度，公民結社自由都寫在憲法和基本法，但政權只准支持政府市民結社、發聲，不許持不同意見市民聚集、組織起來和發聲，兩地已急速融合。
+
+過去周末，選舉委員會委員落區擺街站宣傳愛國者治港，未見警員查問、提醒限聚令規定。假如有市民設街站，反對新選舉制度，警員會干涉嗎？這邊廂，教協通過解散，那邊廂，親中團體教聯宣佈成立香港教育工作者工會。憲法保障的結社、集會表達自由，不再是人人平等享有，像小說家歐威爾（George Orwell）名著《動物農莊》內所說「有些動物比其他動物更平等」。
+
+根據懲教署網站，他們的「任務」（英文是mission，相信是指使命），是致力確保羈管環境穩妥、安全、人道、合適和健康、與各界持份者攜手創造更生機會、通過社區教育提倡守法和共融觀念。
+
+「石牆花」和一些協助在囚和釋囚人士團體的工作，與懲教署的「任務」並無衝突，甚至可說是相輔相承。鄧炳強將有組織協助在囚人工作上綱上線至國家安全層面，與懲教署的「任務」不符；他以虛假訊息、扭曲事實手法抹黑記協，抹殺記協使命和工作，令人懷疑是為取締持不意見的記協、扶助「自己友」聯會鋪路。
+
+鄧炳強口說專業，新聞工作者信守的一個原則，是英國名報人C. P. Scott 的一句話「事實不可歪曲，意見大可自由」（Comment is free, but facts are sacred）。鄧炳強在訪問中作出不少失實指控，例如記協「執委會」內「來來去去集中幾個媒體」、「有好多學生喺入面」，根據記協網頁，11名執委來自9家傳媒機構，只有1位是正在大學修讀新聞的學生，1個等於「好多」？鄧炳強「屈得就屈」，沒有做基本fact check，專業嗎？記協指沒有接獲《大公報》要求回應，鄧炳強說記協「違專業」，有冇搞錯？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026235608/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211026235608im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

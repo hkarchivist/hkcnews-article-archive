@@ -1,0 +1,80 @@
+---
+title: "男子疑說一句「你哋玩哂啦」即被撲低後被控襲警　辯方指被告以為警長想施襲　警長：我係當值緊，係著緊制服嘅警察"
+date: "2021-12-06"
+last_updated: "2021-12-06 22:20:25"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "旺角"
+  - "襲警"
+url: "https://web.archive.org/web/20220123122711/https://hkcnews.com/article/48635/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48635/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 男子疑說一句「你哋玩哂啦」即被撲低後被控襲警　辯方指被告以為警長想施襲　警長：我係當值緊，係著緊制服嘅警察
+
+今年2月28日賢學思政在旺角擺街站呼籲杯葛「安心出行」，警方以防疫為由設封鎖線。警方與一名女子理論期間，29歲男子行經現場，疑似說了一句「你哋玩哂啦」，隨即被一名警長衝上前拉扯制服，糾纏中警長聲稱其胸口被「批肘」。男子被控襲警罪，案件今（6日）在西九龍法院開審。辯方盤問聲稱受襲的警長時指，警長作出一連串急促行動， 或會令被告以為有警察想施襲，警長回應：「我唔同意， 因為我係當值緊、係著緊制服嘅警察。」辯方稱被告只想保護自己，用合理武力掙脫箝制。
+
+<figure>
+<img src="https://web.archive.org/web/20220123122711im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/賢學思政-襲警-20211206174743_300b_large.jpg" alt="">
+<figcaption>聲稱受襲警長7990林少安。眾新聞記者攝。</figcaption>
+</figure>
+
+被告鄧浩然（29歲）否認於2021年2月28日在豉油街西洋菜街交界，襲擊在正當執行職務的警長7990林少安。案件由裁判官鄭念慈審理。
+
+庭上播放三段案發時的影片。由警員拍攝的影片顯示，警方在豉油街及西洋菜街交界，以橙帶設立防線包圍賢學思政的街站，並以咪高峰呼籲市民不要進行4人以上的聚集。
+
+### 被告在人群後方經過　駐足數秒後被制服
+
+其間一名黃色口罩女士在橙帶外手持手機拍攝，有警員向該女士稱「我叫你唔離開就要票控你」。與警方理論期間，被告在該女士右後方出現駐足，觀看約數秒後，其間有把男聲說：「你哋玩哂啦。」封鎖區內的警長7990林少安向該女子說「你唔係記者」，並突然指著被告稱：「影埋呢個。你入嚟吖！」
+
+警長隨即越過橙帶衝前欲捉住被告，兩人雙雙跌向街邊的寛頻攤檔，一堆警員緊隨將被告壓低，情況一度混亂。網媒《全民記者》及《怪獸電台》均以不同角度拍攝到同一事件。
+
+<figure>
+<img src="https://web.archive.org/web/20220123122711im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/襲警-賢學思政-20211206175428_2ac2_large.png" alt="">
+<figcaption>當日警長7990林少安手指向被告就越過橙帶欲捉住被告。網媒《全民記者》影片擷圖。</figcaption>
+</figure>
+
+### 憑口罩郁動斷定是被告發言
+
+警長林少安是唯一控方證人，他現時駐守旺角區特別職務隊，案發時駐守機動部隊B連。林供稱，當日街站有傳媒採訪，亦有觀眾圍觀，故警方作出人群控制的戒備。因警方要調查在場人士，故用橙帶分隔開街站與其他人，外圍絕大部份都是傳媒。唯獨有名黃色口罩女士手持手提電話貼近封鎖線拍攝，但身上沒有證件。警方認為她並非傳媒，上前查問，該女士只重覆「點解我唔可以影」等說話。
+
+警方於是指令她不要逗留聚集，否則有機會違反限聚令。此時在她身後兩米，有數名男子出現，其中有人發出聲音稱：「你哋玩哂啦。」林稱看見被告的口罩有移動，「就好似我依家講緊嘢，個口罩會郁動咁樣」，故判斷說出「你哋玩哂啦」的就是被告。林當時隨即叫隊員拍攝情況，並指著被告要求他到封鎖區內接受調查。
+
+### 指現場已有人質疑警方工作　須阻被告鼓動在場市民
+
+林補充，因為警方須確保該區不會有人作出破壞社會安寧的行為，「已經有名女子質疑我哋警方嘅工作，呢名男子再用說話干預緊我哋，我哋要避免佢鼓動到在場市民，令場面失控」。
+
+林隨即越過橙帶，本來欲帶被告進入限制區，但被告卻轉身想走，故急步向前用右手捉住被告右手，惟被告揮手鬆開；警長隨即雙手從後環抱被告，並指當時被告作出激烈反抗，「佢身型好健碩、好大力，我成個人被搖移動咗，期間我見到佢右手手肘撞咗落我心口度一下。」
+
+<figure>
+<img src="https://web.archive.org/web/20220123122711im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/襲警-賢學思政-20211206175941_2e93_large.png" alt="">
+<figcaption>警長7990林少安從後環抱被告，被告被指用手肘批警長的心口。網媒《全民記者》影片擷圖。</figcaption>
+</figure>
+
+### 聲稱胸觸痛膝頭手指擦損　不用留醫享4日病假
+
+雙方糾纏之下雙雙跌在地上，林指被告一度掙脫其控制逃走，他於是用身體撲前並壓制著被告，其他同袍上前為被告鎖上手扣及宣佈拘捕。
+
+事件後，林指他心口有觸痛及呼吸不暢順，右腳膝頭及右手手指有擦損，而他的制服右邊膝蓋位置穿洞，相信是糾纏其間磨擦導致，林強調傷勢「一定唔係我自己整傷，係控制（被告）時整傷」。林不用留醫，事後享4日病假。
+
+辯方盤問時指，當林叫被告「你入嚟吖」時，從沒說要拘捕他；林越過橙帶前見被告已打算離開，亦沒叫被告「唔好走」。林同意。
+
+### 辯方：途人見你咁激動，為免糾紛離開都好正常？
+
+辯方又指，林當時高聲說話、表現激動，並用手指指住市民，律師問林：「一個途人見到你咁激動，為咗避免糾紛，離開都好正常？」林不同意表現激動，「我係向佢作出明確清晰嘅指示，佢點諗係佢個人嘅諗法」。
+
+辯方再向林指，林作出一連串急促的行動，「會唔會令人以為你想襲擊佢」。林不同意，「因為我係當值緊，係著緊制服嘅警察」。辯方隨即指：「當值緊嘅警察，都可以襲擊人㗎你同意嘛？」林稱不同意。
+
+<figure>
+<img src="https://web.archive.org/web/20220123122711im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/襲警-賢學思政-20211206174756_280d_large.jpg" alt="">
+<figcaption>被告鄧浩然（藍衫者）。眾新聞記者攝。</figcaption>
+</figure>
+
+### 警壓住被告仍兩次按下其頭　警長：避免被告掙扎傷害我們
+
+片段顯示，被告遭最少三名警員五體投地式制服在地上。辯方質疑為何林仍要按著被告的後腦，推其額頭到地下兩次。林重申警方並不會刻意作出額外的武力行為，「如果你講嘅嘢有發生，就係佢仍不斷掙扎，咁做係避免佢傷害我哋。」
+
+辯方指出，被告與其他人當時均戴著口罩，林根本不能肯定聲音來源是被告，被告一直都是想避開林對他的攻擊，故撥開林向後退，是想保護自己、免受襲擊的動作。辯方指雙方的碰撞，是被告使用合理武力掙脫對林的箝制，被告沒有任何意圖想襲擊警方，沒有作出任何攻擊動作。林一槪不認同。審訊明繼續。
+
+案件編號：WKCC2241/21

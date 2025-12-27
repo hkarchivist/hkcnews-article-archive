@@ -1,0 +1,52 @@
+---
+title: "【金馬獎58】《濁水漂流》12中1奪最佳改編劇本「多謝香港」　《時代革命》拿最佳紀錄片全場動容"
+date: "2021-11-28"
+last_updated: "2021-11-28 04:04:52"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "金馬獎"
+  - "李駿碩"
+  - "周冠威"
+  - "濁水漂流"
+  - "時代革命"
+url: "https://web.archive.org/web/20220125195758/https://hkcnews.com/article/48246/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48255/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48246/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48255/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD58%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD1%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【金馬獎58】《濁水漂流》12中1奪最佳改編劇本「多謝香港」　《時代革命》拿最佳紀錄片全場動容
+
+第58屆金馬影展27日舉行頒獎典禮，入圍12個獎項的《濁水漂流》，最後僅拿到最佳改編劇本獎，導演兼編劇李駿碩致詞時特別說：「多謝香港，香港加油」；最佳紀錄片則在頒獎人陳湘琪哽咽聲中，頒給《時代革命》，現場響起熱烈掌聲，導演周冠威更哽咽將這個獎獻給每一個曾為香港流過眼淚的香港人，令全場動容；移居澳洲的羅卓瑤，以《花果飄零》極具詩意風格，描寫導演自身一段追尋自身記憶的歷程，串起香港、澳門百年離散史，勇奪最佳導演獎。
+
+<figure>
+<img src="https://web.archive.org/web/20220125195758im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/濁水漂流-李駿碩-金馬獎-20211128010255_8c25_large.jpg" alt="">
+<figcaption>《濁水漂流》入圍12項，最後奪得最佳改編劇本，導演兼編劇李駿碩並以廣東話說「多謝香港，香港加油」。取自金馬執委會，眾新聞製圖</figcaption>
+</figure>
+
+《濁水漂流》入圍12個獎項，導演李駿碩改編自己的報導文學作品，描寫露宿者尋求公義的遭遇，奪下最佳改編劇本；他領獎致謝詞時忍不住落淚，台下出席的演員及團隊也紛紛紅了眼眶。李駿碩說，現在還有一班無家者提控政府，縱然很多人的人生有缺憾，但他們都是善良而正直，希望大家關注他們。最後並說「多謝香港，香港加油」，觀眾也報以如雷掌聲。
+
+本屆金馬獎頒獎最動容的時刻，是在揭曉最佳紀錄片得主時，當頒獎人、金馬獎影后陳湘琪唸出《時代革命》得獎後，現場響起熱烈掌聲，更有人高喊「香港加油」。當陳湘琪甫說出「製作團隊無法出席」時已然哽咽，觀眾也再次報以掌聲打氣。
+
+該片導演周冠威透過影片發表得獎感言，他說，《時代革命》屬於每一個有良知、有公義，為香港流過眼淚的香港人；他難掩激動情緒，哽咽說：「仍然留在香港的，包括我，很多流亡海外的，或者現在在監獄裡面的朋友，縱使你們沒有機會看得到，但我很希望，我祈求天父，單單是這部電影的存在，都可以給予一份安慰，一份擁抱，謝謝。」
+
+《時代革命》得獎，在片中的受訪者「阿爸」人在台灣，他接受眾新聞訪問表示，聽到得獎消息，五味雜陳，說不出話來，但這是「替香港打氣的一劑最好強心針」；他哽咽著說，「沒有想到香港這個小島，可以讓世界看見」。他現在最希望的，就是留在香港的導演能夠一切安好。
+
+得獎消息公布後，《時代革命》Facebook湧入超過6千個心情、近2千個分享，因這部電影目前無法在香港公映，有台灣觀眾留言說：「很感動獲獎，我在金馬看過這部，真的很感動；我想告訴你們還有香港的手足，我們有幫你們好好看這部電影！恭喜！」
+
+<figure>
+<img src="https://web.archive.org/web/20220125195758im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/金馬獎-周冠威-時代革命-20211127203450_189a_large.png" alt="">
+<figcaption>周冠威目前人在香港，已在台灣的《時代革命》受訪者「阿爸」最擔心他現在的安全。金馬頒獎禮直播截圖</figcaption>
+</figure>
+
+香港電影此次共有7部影片、獲21項提名，除了《濁水漂流》、《時代革命》外，包括在2021年台北金馬影展放映期間獲得觀眾熱烈迴響的《少年》，最後輸給描寫自身成長故事的《美國女孩》導演阮鳳儀；任俠與林森除了在最佳新導演空手而回，與代號L2入圍最佳攝影，最後也未能順利得獎。
+
+<figure>
+<img src="https://web.archive.org/web/20220125195758im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/金馬獎-任俠-少年-20211127211649_3088_large.jpg" alt="">
+<figcaption>任俠（左一）率《少年》演員李珮怡及孫君陶出席紅毯，最後並未在最佳新導演與最佳剪輯拿獎。金馬執委會提供</figcaption>
+</figure>
+
+本屆金馬獎最佳電影由《瀑布》奪得，此片是鍾孟宏繼去年的《陽光普照》後，「冧莊」奪得最佳影片大獎；本片同時獲得最佳女主角、最佳原創電影音樂及最佳原著劇本四項大獎，是本屆金馬影展最大贏家。
+
+以《瀑布》獲得最佳女主角獎的賈靜雯，從影30年，首次入圍金馬影后就順利奪獎；以《緝魂》拿下最佳男主角獎的張震，同樣也是從影30年，入圍4次，亦是首次得獎。最佳男、女配角則分別由《詭扯》劉冠廷及《該死的阿修羅》王渝萱拿下。
+
+本屆金馬影展是自2019年中國國家電影局下令暫停中國影片與影人參加隔年的第三屆金馬獎，今年報名影片總共573部，比去年的465部多逾百部。本屆也是李安擔任金馬執委會主席的最後一年，下屆將交棒給攝影名師李屏賓。

@@ -1,0 +1,76 @@
+---
+title: "《頭條新聞》被通訊局裁違規　港台工會記協提司法覆核部份勝訴　辱警投訴維持成立"
+date: "2021-11-25"
+last_updated: "2021-11-25 22:43:51"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "周家明"
+  - "通訊事務管理局"
+url: "https://web.archive.org/web/20220117034530/https://www.hkcnews.com/article/48160/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48184/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48160/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48184/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《頭條新聞》被通訊局裁違規　港台工會記協提司法覆核部份勝訴　辱警投訴維持成立
+
+現已停播的港台節目《頭條新聞》去年諷刺警隊，遭到投訴，通訊事務管理局裁定其中一集包括侮辱警隊等三項投訴成立，向港台發警告。記協與港台工會提出司法覆核，質疑通訊局錯誤應用守則，忽略《頭條》諷刺時弊的性質，要求推翻通訊局的決定。高院今頒下判詞，維持辱警投訴成立的裁定，但認為節目有欠持平和資料不準確的部份裁定不妥。獲判部份勝訴的港台工會與記協表示尊重裁決，認為還港台製作團隊一些公道，遺憾現時已沒有了《頭條新聞》。
+
+<figure>
+<img src="https://web.archive.org/web/20220117034530im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/警察公共關係科-香港電台-頭條新聞-20200219140203_1b43_large.jpg" alt="">
+<figcaption>《頭條新聞》現已停播。(資料圖片)</figcaption>
+</figure>
+
+### 《頭條》非傳統個人意見節目　仍須遵守電視守則
+
+記協與港台工會的理據指，《頭條新聞》是諷刺時弊節目，與個人意見節目有基礎上的分別；該節目不是讓主持發表個人意見，而旨在娛樂、引起他人批判及思考。惟通訊局認為，應考慮負責製作節目內容的港台員工，有否將其針對政治及社會議題的主觀意見帶入節目；從2001年12月至2020年4月，港台幾乎將所有《頭條新聞》集數歸類為個人意見節目。
+
+法官周家明認為，《頭條新聞》不是傳統的個人意見節目，而是透過諷刺及誇張方式表達節目製作人對時政議題的己見，通訊局指《頭條新聞》屬於「個人意見節目」並無不妥。因此，即使節目以諷刺性質為主，亦須遵守《電視通用業務守則》（下稱《守則》）有關個人意見節目的規定。
+
+### 警察可歸類「社會地位」　辱警裁定非不合理
+
+對於侮辱警員的指控，記協與港台工會指，若通訊局錯誤將警方歸類為被歧視的「社會地位」，或違反公職人員不應免受批評的原則。周官認為警務人員可被歸類為「社會地位」，同時表明公職人員應對批評持開放態度，強調《守則》沒有禁止大眾批評。
+
+周官另不接納記協及港台工會方指，節目對警方地位的批評是源於其行為。周官指，節目中王喜身穿警察制服、雙手及頸部包著垃圾膠袋在垃圾桶中冒出，此部分明顯與警方職務或公眾對警察專業的不滿無關，反而只是單純批判警察的身份。
+
+<figure>
+<img src="https://web.archive.org/web/20220117034530im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/頭條新聞-王喜-RTHK-20200520135704_a31d_large.jpg" alt="">
+<figcaption>王喜在節目中身穿警察服裝從垃圾桶冒出，被指辱警。(資料圖片)</figcaption>
+</figure>
+
+周官認為，即使節目能用諷刺形式表達，公職人員亦理應接受不同批評，也不代表用煽動仇恨、散播恐懼或侮辱等方式諷刺公職人員是理所當然。局方有權裁定是次被投訴的節目內容構成侮辱警員，裁定並非不合理。
+
+### 「驚方訊息」關於警方取消巡邏內容失實
+
+除接納辱警裁定外，周官認為港台在「驚方訊息」環節中指「依家仲取消徒步巡邏，唔使行咇，將當值空氣暴露喺空氣中嘅機會，減到近乎零呀」，此為內容失實，因當時警方只在某些地區取消徒步巡邏，惟港台未有指出。
+
+### 未能證「無品芝麻官」資料不真確
+
+不過，另一項失實裁定則不妥當。通訊局指港台在節目「無品芝麻官」環節中，「醫生呀，你唔夠口罩就早啲出聲吖嘛，衙差就大把有得剩」的內容，暗示警察有多餘口罩存貨，但港台提供的證據不足以證明涉案內容真實無誤，反映其缺乏證據基礎。
+
+惟周官認為，即使港台所引用的證據不足以支持節目內容，也不等於該些證據是失實，局方的推論並不合理。同時，通訊局亦未有足夠事實證據證明內容失實，判詞表明為免產生任何疑惑，法庭對此部份內容的真確性不作評論。
+
+### 港台曾邀警方回應不果　惟被通訊局忽略
+
+通訊局另批評，即使《頭條新聞》作為諷刺時弊節目，立場傾向比個人意見節目較為明顯，仍須反映不同觀點，惟節目批判警方應對疫情不力的同時，並沒充分地呈現其他觀點。
+
+周官認為，《頭條新聞》曾兩次邀請警方回應有關節目內容，警方卻拒絕及忽視邀請。這是局方裁決港台是否違規時必須考慮的因素，但局方沒有考慮，便認定港台沒有呈現事件的不同角度，實屬不合理。法庭據此已可裁定局方批評站不住腳，毋需考慮記協與港台工會的其他理據，包括諷刺類節目呈現的觀點需否平衡、港台是否一直只呈現警方負面形象等等。
+
+### 「節目」及「機構」不享法定言論自由
+
+記協與港台工會另指， 港台作為公營機構及公共廣播機構，具有雙重角色，理應享有表達及言論自由，否則無法向公眾提供一個無畏地討論政府政策的平台，通訊局的決定違反《基本法》及《香港人權法案》中保障表達及言論自由的條文。惟周官指出，言論自由條文僅適用於香港居民或是個人，港台作為一家公營機構、《頭條》作為一個節目，並不享有法定權利。通訊局的決定只針對港台，而非製作人員或港台員工。
+
+周官下令撤銷不妥的通訊局裁定；鑑於《頭條新聞》已停播，亦沒跡象會復播，故不會發還局方重新考慮，局方可自行決定是否重新考慮。
+
+案件編號：HCAL 1685/2020
+
+<figure>
+<img src="https://web.archive.org/web/20220117034530im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/周家明-高等法院-20201120114936_26eb_large.png" alt="">
+<figcaption>法官周家明</figcaption>
+</figure>

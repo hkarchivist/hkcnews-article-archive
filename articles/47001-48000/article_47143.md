@@ -1,0 +1,47 @@
+---
+title: "鍾翰林擬認分裂國家及洗黑錢罪　專頁昨刊獄中信：未準備好咁快走返出嚟"
+date: "2021-11-02"
+last_updated: "2021-11-02 13:27:32"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "鍾翰林"
+  - "洗黑錢"
+  - "煽動刊物罪"
+  - "分裂國家"
+url: "https://web.archive.org/web/20220127092924/https://www.hkcnews.com/article/47143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47157/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47157/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鍾翰林擬認分裂國家及洗黑錢罪　專頁昨刊獄中信：未準備好咁快走返出嚟
+
+已解散組織「學生動源」前召集人鍾翰林被控分裂國家案，原排期今日在區域法院開審。署理助理刑事檢控專員張卓勤透露，控辯雙方初步達成認罪協商，若辯方同意案情，鍾將會承認分裂國家罪及一項洗黑錢罪，另一項洗黑錢罪和串謀發佈煽動性刊物罪則留在法庭存檔，不予起訴。若協商成事，本案將是第二宗《國安法》認罪案件。
+
+由於控方案情長達六十多頁，辯方需時詳閱及向鍾翰林解釋，押後至明日正式答辯。鍾繼續還柙。
+
+<figure>
+<img src="https://web.archive.org/web/20220127092924im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/鍾翰林-學生動源-20180723183425_13b9_large.jpg" alt="">
+<figcaption>鍾翰林</figcaption>
+</figure>
+
+### 由國安法指定法官陳廣池審理
+
+現年20歲的鍾翰林被控四罪，控罪時段在2018年1月2日至去年10月27日之間，涉案款項合共71.6萬元。分裂國家控罪指，鍾於去年7月1日至10月27日，在香港積極組織、策劃、實施或者參與實施旨在分裂國家，破壞國家統一行為，即將香港特別行政區從中華人民共和國分離出去，或非法改變香港特別行政區的法律地位。
+
+兩項洗黑錢罪則指鍾於2018年1月19日至去年7月29日，分別在Paypal及滙豐銀行的帳戶內，持有兩筆約13萬及56萬的款項，而該些款項屬從可公訴罪行的得益。他另被指於2018年11月30日至去年6月9日串謀發佈煽動性刊物，激起香港居民企圖不循合法途徑改變依法制定的事項。
+
+本案由國安法指定法官陳廣池處理，鍾由資深大律師蔡維邦代表。若控辯雙方達成認罪協商，鍾將會承認分裂國家及利用PayPal洗黑錢。
+
+### 鍾：未準備好咁快出嚟，從容面對一切
+
+鍾翰林昨透過友人，在其Facebook專頁刊出他上月3日撰寫的信件，坦言還柙至今不申請保釋，原因之一是「想逃避一下出面嘅事」，慨嘆：「如果畀我保釋到，之後困係香港依個地方，日日睇住所有事發生，而我無能為力，再加上其他嘢，我覺得我真係仲未準備好咁快走返出嚟，從容地面對依一切，所以喺度抖下都唔係一件壞事嘅。」
+
+信中亦解釋，他近月較少發表評論，是因為有感許多事情非自己所能控制，說甚麼都無法改變任何事；並自覺在很多事件中沒有位置作評論，「始終我唔係局內人，冇辦法明白人哋做每一個抉擇嘅心態，唔想好似咩都唔知嘅情況下去批評人哋。」
+
+<figure>
+<img src="https://web.archive.org/web/20220127092924im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/分裂國家-鍾翰林-20211102110310_212f_large.jpg" alt="">
+<figcaption>鍾翰林facebook專頁昨刊登獄中信。</figcaption>
+</figure>
+
+案件編號：DCCC27/2021

@@ -1,0 +1,71 @@
+---
+title: "與田北俊合作生產口罩為選舉鋪路？中科潘焯鴻否認有關　僅稱「積極考慮參選」"
+date: "2020-03-05"
+last_updated: "2020-03-05 04:18:42"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "田北俊"
+  - "立法會選舉"
+  - "潘焯鴻"
+url: "https://web.archive.org/web/20210928173103/https://www.hkcnews.com/article/27544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27554/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/27544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27554/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 與田北俊合作生產口罩為選舉鋪路？中科潘焯鴻否認有關　僅稱「積極考慮參選」
+
+口罩供應短缺，港府被指不作為，港人唯有自救。2018年年中揭發沙中線紅磡站剪短鋼筋的吹哨者、中科興業董事總經理潘焯鴻2月23日在facebook發帖文宣佈，與土耳其商家合資設廠生產口罩，帖文一出引起網民熱議，紛紛留言表達感謝。但是，原本做工程的潘焯鴻為何撈多瓣？是因為口罩生意有利可圖？工程生意大跌？還是密謀為參選鋪路？
+
+潘焯鴻接受眾新聞訪問時坦言，自去年五月中科在本港已沒有任何工程生意，如今生意全部在中國大陸、澳門和海外，經歷過沙中線事件、反送中運動、再到「口罩荒」，潘焯鴻自言政治取向「黃咗啲」，但他否認設口罩廠是為了選舉鋪路，僅表示會積極考慮參選，「為選舉我唔洗做呢啲嘢，點解我攞錢出來做呢啲嘢？」
+
+潘焯鴻承認自由黨榮譽主席田北俊有份投資設口罩廠，而田北俊今年1月中接受傳媒訪問時曾表示，不排除組政黨，提拔有質素的人士參選立法會。當中兩者是否有關連，潘焯鴻是否其中一位獲支持的人選？潘沒有否認，僅表示「唔少人同我傾過，但我都要諗好多嘢。」
+
+相關新聞： [田北俊打本　中科潘焯鴻土耳其設口罩廠　90多萬元投資料半年回本　香港由黃店發售](https://web.archive.org/web/20210928173103/https://bit.ly/2TleU6R)
+
+<figure>
+<img src="https://web.archive.org/web/20210928173103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/立法會選舉-田北俊-20200304213239_28d7_large.jpg" alt="">
+<figcaption>中科興業與土耳其商家合資設廠生產口罩，當中自由黨榮譽主席田北俊有份投資，圖中的口罩並非土耳其廠的產品。田北俊facebook</figcaption>
+</figure>
+
+自2018年5月，「剪短鋼筋」、「追溯日期文件」、「RISC form文件缺失」一連串沙中線工程醜聞被揭發，當中的吹哨者就是紮鐵分判商老闆潘焯鴻，他 [去年接受眾新聞訪問](https://web.archive.org/web/20210928173103/https://www.hkcnews.com/article/20387/%E6%BD%98%E7%84%AF%E9%B4%BB-%E4%B8%AD%E7%A7%91%E8%88%88%E6%A5%AD-%E6%B2%99%E4%B8%AD%E7%B7%9A-20387/%E6%B2%99%E4%B8%AD%E7%B7%9A%E4%B8%BB%E8%A7%92%E6%BD%98%E7%84%AF%E9%B4%BB%EF%BC%9A%E4%B8%AD%E7%A7%91%E7%94%9F%E6%84%8F%E5%8E%BB%E5%B9%B4%E8%B7%8C%E9%80%BE%E4%B8%83%E6%88%90-%E6%89%8B%E6%8F%A1%E8%B3%87%E6%96%99%E6%88%96%E5%86%8D%E3%80%8C%E5%90%B9%E5%93%A8%E3%80%8D) 時形容，因被港鐵打壓，生意後來大跌七成，今天再談到中科生意，潘焯鴻稱，在本港的工程生意已經跌至零，去年5月做最後一宗生意，之後便解僱所有香港工人，現時只剩下項目管理人員。
+
+他記得中科試過多次被政府刁難，「舊年勞工處搵返一年前的一次地盤巡查，因為一個吊勾的安全扣扭彎咗，咁嘅事一般都唔告，都係警告，個吊勾仲要唔係我哋公司，有理無理告咗我哋十條告票」、「上個月無端端勞工處有人上來話要check我哋勞工保險，我俾咗個certificate佢，佢話唔得，佢要我俾保單佢睇，不斷騷擾住我哋。」他不期望可以在林鄭政府的管治下，中科可以投到任何工程。
+
+中科目前主要在內地、澳門和海外均有生意，而在疫情期間，生意則暫時較少受到影響，「影響唔係無，都有，我都去唔到（當地），相對香港的impact對我無咁大。」但他指出，外地生意卻賺得更多，「香港人工好貴，海外人工成本好低，香港可能佔七成，佢哋只係佔三成，變咗人事管理容易啲，就喺施工方法定輸贏。好做過香港，亦都無咁多古靈精怪嘢。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928173103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/口罩短缺-潘焯鴻-20200304211334_1be8_large.jpg" alt="">
+<figcaption>潘焯鴻稱，中科在本港的工程生意已經跌至零，去年5月是最後一項工程，之後便解僱所有香港工人，現時只剩下項目管理人員。周滿鏗攝</figcaption>
+</figure>
+
+既然工程生意並沒有失利，為何貿然去生產外科口罩？潘焯鴻解釋指，年初時因眼見政府在疫情期間不作為，並故意製造口罩荒，唯有想出港人自救的方法，包括搜購東南亞、歐洲的口罩回港免費派發。他說，至今已「快閃式」派發了數萬個口罩，亦沒有刻意拍照記錄，期間獲得好友田北俊的注意，表示希望一同參與派發行動，並向他提議不如投資設口罩生產線，避免助長市場的炒賣，潘焯鴻負責擔任買手，最終在土耳其物色到廠房，並與當地商家合資設廠，投資成本約190萬，平均出資約90多萬，田北俊佔大部分（未有透露確實金額）。工廠將會負責代理生產一款土耳其口罩，現時月產約300至400萬個口罩。
+
+潘焯鴻形容，政府故意製造口罩荒，並提出本地口罩生產資助計劃，目的是為了讓建制派得利，有助9月的立法會選舉，因此他希望透過免費派發口罩、呼籲更多富商多管齊下，以阻截政府的「陰謀」。過去一年，潘焯然經歷了生意大跌、反送中運動和今次武漢肺炎疫情下的香港，他直言自己的政治取向「黃咗啲」，去年曾參與幾次遊行，而潘是理工大學舊生，他亦曾到理大支援。
+
+<figure>
+<img src="https://web.archive.org/web/20210928173103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/口罩短缺-田北俊-20200304224201_ea8e_large.jpg" alt="">
+<figcaption>田北俊（右一）、自由黨黨魁鍾國斌（左二）和上水區鄉事委員會主席侯志強，上月在上水地鐵站外快閃派口罩。田北俊facebook</figcaption>
+</figure>
+
+那麼，今次口罩設廠是為了選舉鋪路嗎？潘斷言否認，「為選舉我唔洗做呢啲嘢，點解我攞錢出來做呢啲嘢？」、「9月先選舉，而家先2、3月，而家做會唔會蠢咗啲？」雖然如此，潘透露他和田北俊的朋友關係，而田北俊有份投資中科在土耳其的口罩廠，加上田今年1月接受傳媒訪問時，提到不排除與另外兩名自由黨榮譽主席周梁淑怡及劉健儀、以及前財政司司長曾俊華合組政黨，並提拔有質素的人士參選立法會。
+
+被問到他和眾人之間有否關連，潘焯鴻回應，「我哋有食飯，少不免有討論政治，坦白講，大家唔同看法，我相信佢哋組黨的形式係唔實際，係唔應該，反而用另一個模式，佢哋覺得邊一個有為，去支持嗰個人，可能係理想的方法，唔係綁住佢要佢跟黨走，反而是佢覺得個人有特質，對香港有利，佢選出來係有自由的議政、投票權，咁反而係可行啲。」那麼，潘焯鴻會是其中一個人選嗎？潘焯鴻聽畢，只笑笑，沒有否認，他之後表示會積極考慮參選，「唔少人同我傾過，但我都要諗好多嘢。」
+
+潘焯鴻說，在反送中運動上，他見到香港人有中科的影子，猶如當時他形容的「大衛」挑戰「歌利亞」，「係沙中線上面，我係付出，做夠啦，甚至係有啲冤獄，話我為錢為乜為乜」、「本來見到政府咁腐敗，社會咁沉淪，其實中科的人見得最清楚」、「去到反送中運動，我見到出去做前線的做前線，遊行就遊行，和理非的做和理非，大家唔單止醒覺，其實同中科一樣都願意付出，為香港做啲嘢，有無成果呢？其實未有。」「我應唔應該積極啲再去諗一啲方法可以投入啲，除咗中科監察住建築界，唔一定參選，但我仲諗緊。」
+
+早前有專業人士聯署呼籲香港人積極登記成為選民，尤其鼓勵功能組別選民積極參與立法會功能組別投票，潘焯鴻亦有份聯署，但據他了解，工程界有兩名年輕工程師有意參選，故若他最終決定參選的話，挑戰功能組別的意欲不大。
+
+<figure>
+<img src="https://web.archive.org/web/20210928173103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/地鐵-中科興業-20200304224709_6605_large.jpg" alt="">
+<figcaption>潘焯鴻近日在facebook繼續大鬧港鐵管理層。中科監察facebook</figcaption>
+</figure>
+
+如今中科在香港或不能再投標做生意，會打算逐步撤走香港的公司總部嗎？潘焯鴻稱不會，反而日後會加強監察本港建築工程界的運作，包括計劃入稟司法覆核沙中線調查委員會即將提交的中期報告，潘焯鴻說：「你邊個大佬做錯嘢都好，我就搞死你，最終大家唔好做錯嘢囉」、「因為政府、港鐵同禮頓想我死啊嘛，話俾你聽，我更加唔會死，我用幾多成本包林鄭月娥同陳帆死先，禮頓港鐵死先。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928173103/https://www.hkcnews.com/aboutus/#subscribe)

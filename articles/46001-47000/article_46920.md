@@ -1,0 +1,45 @@
+---
+title: "渤海銀行疑挪用28億存款用作貸款擔保　威脅存戶再質押5億否則凍結資產"
+date: "2021-10-26"
+last_updated: "2021-10-26 20:12:23"
+author: "中國組記者徐文傑"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "渤海銀行"
+  - "挪用存款"
+url: "https://web.archive.org/web/20211128184606/https://www.hkcnews.com/article/46920/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD28%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46920/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD28%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 渤海銀行疑挪用28億存款用作貸款擔保　威脅存戶再質押5億否則凍結資產
+
+<figure>
+<img src="https://web.archive.org/web/20211128184606im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/渤海銀行-20211026191446_4d6a_large.jpg" alt="">
+</figure>
+
+**內地企業28億的存款被挪用做另一間公司的擔保，事件發生在香港上市、總部在天津的渤海銀行。內地藥企濟民可信指旗下兩間子公司的存款，在不知情下被銀行多次質押予與自己毫無關係的華業石化南京有限公司，作為票據融資擔保。**
+
+紙包不住火源於一通查詢電話，今年8月19日，渤海銀行南京分行營業部工作人員致電濟民可信子公司山禾藥業的法人代表於江華，指有人在櫃枱將山禾藥業的電子存款轉為紙質存單，並且用作他人貸款的擔保，詢問是真有其事？當時於江華向母公司報告，濟民可信向渤海銀行強調，未准許任何人辦理存款質押事宜，並多次要求銀行立即報警：「請貴行要保障我們『新易存』的產品的存款安全和可自由支取的權利，請貴行核實冒我司之名來辦理這個『新易存』產品，轉成存單進行辦質押的人到底是誰？」濟民可信的代表律師在8月24日要求銀行交代詳情。
+
+但渤海銀行竟然要求山禾藥業將另外5億存款，繼續為華業化工提供質押，處理事件的渤海銀行南京分行營利部總經理助理管鵬程語帶威脅：「既然這個事發生了，遇到問題、解決問題。前提是您這邊配合、您配合，希望這一筆就是上周星期來的(存款)繼續給它做質押。你這邊如果一旦不給它去做，還不了就逾期，逾期幹嘛？我們銀行代付，我們銀行代付第一時間，就會拿你們存單我說的你懂嗎？一到(划扣)存單，行，您那邊報警，那整個存單28億，存單全部查全部凍結。」
+
+交涉的過程，濟民可信的一方終於見到，素未謀面、借錢的華業化工的代表──資金部總監董女士，她交代貸款的過程：「我們的有些合作銀行關係比較好，它做存款我貸款，然後他們說他們手上也有那個資金方，他們每次都聯繫我說(濟民可信)進了款以後他會聯繫我說哪天可以辦業務。」
+
+董女士又說辦理貸款當日，銀行要求她再帶多一個經辦人過來，「就在銀行的附近，他就把材料給我們，後來我們第一筆業務就這麼做了，後面的這麼業務我們就正常往下做。為什麼我們一直沒企業沒跟你們這邊直接對過？有些事情我們去跟你們談，你們是肯定不會跟我們談的。」
+
+交涉不果，濟民可信集團在9月初報警，並指事件涉及300枚偽造印章。在一般情況下，銀行處理大額業務有很嚴格的手續，需要經過多個部門審核，除了要嚴格驗印章，更需要當面簽署文件，過程中還要錄音、錄影作證，企業方面也需要提供股東會議決議等書面文件。數以億計的融資擔保為何可以這麼兒戲？管鵬程承認銀行有漏洞：
+
+> 你說有沒有存在漏洞，我覺得銀行肯定有，或多或少從驗印上，所以你只要達到80%、85%以上就通過了，也沒有打到法人(電話核實)。我都有過錯，我因為這個事情從發生到現在，我一晚都沒有睡著。
+
+濟民可信亦指控渤海銀行，曾向會計師樓開出虛假證明，指其存款沒有用作擔保，但集團公開的錄音中，渤海銀行南京分行營業部總經理胡兆鋒承認，每筆存款存入後的幾天內即遭質押。渤海銀行前日回應稱，在與相關企業日常業務辦理過程中，分行發現企業間異常行為並已報警，承諾將一如既往堅決維護客戶合法權益，保障客戶資金安全，維護金融秩序穩定。昨晚渤海銀行再發公告稱，本行目前日常運營一切正常，此事項將不會對本行經營產生重大不利影響。
+
+渤海銀行是最年輕的全國股份制商業銀行資產10年間增長近10倍，資產規模已經超過1.5萬億元，但發展快的同時問題亦多多，單單今年以來就因違規被罰款接近1億元。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128184606/https://www.hkcnews.com/aboutus/#subscribe)

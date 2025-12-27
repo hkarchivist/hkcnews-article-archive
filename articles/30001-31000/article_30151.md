@@ -1,0 +1,45 @@
+---
+title: "【國安可駐港】港版國安法框架曝光：中央國安可駐港 納附件三直接實施"
+date: "2020-05-22"
+last_updated: "2020-05-22 12:38:52"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "人大常委"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210727060057/https://www.hkcnews.com/article/30151/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30154/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30151/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30154/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安可駐港】港版國安法框架曝光：中央國安可駐港 納附件三直接實施
+
+<figure>
+<img src="https://web.archive.org/web/20210727060057im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/港版國安法-20200522123806_aefe_large.jpg" alt="">
+</figure>
+
+全國人大周五（22日）公布建立俗稱「港版國安法」決定草案，當中提及特區建立維護國家安全機構，中央國安機構按需要可以在港設立機構，並授權全國人大常委會立法禁止及懲治分裂國家等四類活動，納入《基本法》附件三直接實施。
+
+《眾新聞》整理《建立健全香港特區維護國家安全的法律制度和執行機制的決定》草案要點：
+
+一、授權全國人大常委會制訂建立香港維護國家安全法律制度和執行機制，防範、制止和懲治四類行為：（1）分裂國家、（2）顛覆國家政權、（3）組織實施恐怖活動等嚴重危害國家安全行為，及（4）外國及境外勢力干預特區事務活動。人大常委將決定將法律列入《基本法》附件三，由特區公布實施。
+
+<figure>
+<img src="https://web.archive.org/web/20210727060057im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/人大常委-港版國安法-20200522115135_8dad_large.png" alt="">
+<figcaption>全國人大公布港版《國安法》決議草案。（網上圖片）</figcaption>
+</figure>
+
+二、特區政府建立維護國家安全機構和執行機制、強化執法力量；中央政府維護國家安全機構按需要在港設立機構，履行維護國家安全職責；
+
+三、維護主權、統一和領土完整是香港憲制責任，香港特區應盡早完成《基本法》規定的維護國家安全立法；行政、立法、司法機關應根據有關法律規定防範、制止、和懲治危害國家安全行為；
+
+四、特首應履行維護國家安全職責，推廣國家安全教育、依法禁止危害國家安全，定期向中央政府提交報告；
+
+五、國家堅定不移全面準確貫徹一國兩制，維護憲法及香港特區憲制秩序；堅決反對任何外國和境外以任何方式干預香港特區事務，採取必要措施反制，依法防範、制止和懲治利用香港分裂、顛覆、滲透、破壞活動。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727060057/https://www.hkcnews.com/aboutus/#subscribe)

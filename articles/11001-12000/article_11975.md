@@ -1,0 +1,62 @@
+---
+title: "共享經濟與香港旅遊業的未來──深度旅遊"
+date: "2018-05-08"
+last_updated: "2018-05-08 06:57:38"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "共享經濟"
+  - "sam the local"
+  - "深度旅遊"
+url: "https://web.archive.org/web/20211202004347/https://www.hkcnews.com/article/11975/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-sam_the_local-11988/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/11975/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-sam_the_local-11988/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 共享經濟與香港旅遊業的未來──深度旅遊
+
+【撰文：盧銘軒、潘家蕤】   
+ ***作者為 [共享經濟聯盟](https://web.archive.org/web/20211202004347/https://sharingecon.org/) 秘書、研究員***
+
+近年旅遊業文化有了很不一樣的改變，去旅遊的人不只可以被稱為「 旅客」，因為旅行者不只是想成為一位過客，更甚的是想融入當地人生活，所以這一群人應被稱為「旅遊體驗者」。旅遊體驗者希望擁有的旅遊體驗發生了很大的改變，已不再甘願參與被定型的旅遊計劃，或者是定性了的旅遊活動。
+
+近年所見到的趨勢是，旅行者不再信奉推薦餐廳或推薦地點，他們開始希望在旅遊中發掘不一樣的可能性。旅遊模式也不再以購物為主，而是希望在不同地方獲取不同體驗。共享經濟平台的商業模式的貢獻，不僅是為旅遊業模式發展帶來新的發展方向，更為旅行者帶來不同的選擇，他們可以在旅遊行程中獲得最大的靈活性。旅行者開始可以像當地人一樣生活在市中心的住宅區，體驗當地生活。
+
+短期民宿通常位於非傳統旅遊區，因此旅客可以在當地得到更深刻的體驗。根據香港青年協會青年研究中心的 [《多元發展香港旅遊業研究》](https://web.archive.org/web/20211202004347/https://yrc.hkfyg.org.hk/2016/08/30/%E5%A4%9A%E5%85%83%E7%99%BC%E5%B1%95%E9%A6%99%E6%B8%AF%E6%97%85%E9%81%8A%E6%A5%AD/) 指出，在570名訪港旅客中，近五成旅客表示會花最多時間在遊覽觀光，旅行者不再希望被導遊決定一切，更希望重獲旅遊的自主性，而非只在異地走馬看花，坐在旅遊巴上虛渡旅程，研究亦指出現時年輕內地旅客期望了解更多香港歷史文化及地區特色。
+
+<figure>
+<img src="https://web.archive.org/web/20211202004347im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/05/CNN-香港-20180507173856_2921_large.png" alt="">
+<figcaption>旅發局與CNN.com合作的香港旅遊專頁。網頁截圖</figcaption>
+</figure>
+
+旅發局每年都會因應客源市場和目標客群的喜好，作出推廣及宣傳。而在2017~18年，旅發局將繼續與環球新聞網站如CNN.com合作，透過 [香港旅遊專頁](https://web.archive.org/web/20211202004347/http://advertisementfeature.cnn.com/2017/hong-kong/) 定期發放關於香港的旅遊資訊， 推介深度旅遊體驗，香港未來旅遊業的方向也可能會重點在深度旅遊，我們見過不少日本人來港愛坐巴士，亦愛到上環街市參觀， 可見深度旅遊在香港甚有市場。
+
+加上，因為深度旅遊文化的興起，近年出現不少以旅遊體驗為主的共享經濟平台，例如共享沙發、共享寄宿、共享露營者等等。而近年香港也開始興起當地人擔任本地導遊的平台，例如近年興起的 [Sam the Local](https://web.archive.org/web/20211202004347/https://samthelocal.com/) ，這個旅遊平台，召集香港人為本地旅客策劃最個人的旅遊體驗。
+
+<figure>
+<img src="https://web.archive.org/web/20211202004347im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/05/sam%20the%20local-共享經濟-深度旅遊-20180507172806_240c_large.png" alt="">
+<figcaption>Sam the Local是本港新興的旅遊平台。網頁截圖</figcaption>
+</figure>
+
+共享經濟平台在旅遊業提供了很多的選擇，以 [Airbnb](https://web.archive.org/web/20211202004347/https://zh-t.airbnb.com/a/Hong-Kong?af=43720035&c=.pi0.pk30409129148_104125882988_c_63998226273&gclid=EAIaIQobChMIpfCQm6Dz2gIVgpW9Ch3FWgxHEAAYASAAEgKl-_D_BwE) 為例，在傳統的旅遊配套下，旅客只能選擇酒店或賓館這些劃一標準的旅遊住宿，但出現Airbnb這一類網上共享民宿平台後，旅客可以多了一種選擇，活得更像一個本地人。以 [Uber](https://web.archive.org/web/20211202004347/https://www.uber.com/zh-HK/cities/hong-kong/) 為例，在資訊不足的情況下提供了比較可靠的交通模式，比公共交通方便又不怕收費不透明，以往從機場到住宿的專車服務只能選擇的士，而Uber這一類點對點共乘網上平台出現後，令顧客可以多了服務的選擇。而以Sam the Local來說，當然是在傳統鴨仔團以外，多了一種地道體驗，去更多一些不為人知的角落探索城市特色。再者，在這些平台的運作過程中，公司會得到大量旅客數據，若好好運用這些數據，對提升旅遊業服務質素會有很多的幫助。當然，大數據分析在近期是個敏感的話題，但若政府能給予這些共享平台有完善而全面的監察機制，以明確的指引去規範整個模式的運作，將可以解決現時旅遊業所衍生的問題，以及優化現時的旅遊制度，使之更符合大趨勢發展。
+
+不過，這些平台在香港發展的時候，都面臨大量的法例規管問題，例如Uber會觸犯《道路使用條例》，而Airbnb會觸犯《香港酒店東主條例》，而Sam the Local會觸犯《旅行代理商條例》， 因經營訪港旅客觀光或遊覽的業務，必須持有旅行代理商牌照。
+
+香港政府在監管新興平台的時候，習慣使用固有的監管條例去規管，若政府不考慮更新監管措施去面對現狀，社會將會是一種倒退。
+
+深度旅遊之所以興起，是一種文化上的轉變，而這種轉變也代表著整個市場的趨勢，如今社會觀念若未及時順應潮流，恐怕令香港旅遊業停滯不前。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202004347/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211202004347im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

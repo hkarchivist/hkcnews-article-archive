@@ -1,0 +1,69 @@
+---
+title: "12個移民家庭一半不滿政局　港人失望離開：如同家暴不願受虐待"
+date: "2021-07-01"
+last_updated: "2021-07-01 06:36:01"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "airport"
+  - "飛機場"
+  - "機場"
+  - "移民"
+url: "https://web.archive.org/web/20210928074235/https://www.hkcnews.com/article/42952/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42956/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42952/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42956/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 12個移民家庭一半不滿政局　港人失望離開：如同家暴不願受虐待
+
+**1997年回歸前，很多人因為憂慮前景，爆發移民潮；24年後的今日，很多人因為心灰意冷，再一次爆發移民潮。七一前夕，香港機場的離境大堂，滿佈港人移民登機的人龍，上演幕幕不捨離別的畫面。**
+
+**眾新聞記者在機場訪問了12個移民家庭，當中一半因為不滿港區國安法實施、社會狀況、政府表現、消失言論自由，而決定離開。有移民港人失望說：「就好似家暴，大門已打開，你出不出去？我在香港出生，香港就是我家，但現在發生家暴，既然不能對抗，門又已打開，那就離開，我不願一直受虐待。」**
+
+**採訪｜記者張凱傑、實習記者：陳穎賢、羅寶晴、謝昀釗、容倩文**
+
+****
+
+
+{{< video src="//web.archive.org/web/20210928074235if_/https://www.youtube.com/embed/advg-a_0i9g" >}}
+
+
+英國政府今年初針對BNO護照持有人放寬移民政策，根據英國內政部公布的數據顯示，今年第一季收到34,300宗經BNO的移民申請，其中5,600宗已獲批。在獲批個案中，近八成六來自香港，而大部分已經入境英國。另外，數據顯示今年第一季共有736人由香港以家庭簽證入境英國，單是一季已逼近去年全年724的數字。
+
+七一前夕，眾新聞記者在香港機場訪問了12個移民家庭，當中11個家庭移民英國、餘下的1位青年是移民加拿大與家人團聚。昨日機場有飛往倫敦、悉尼、蘇黎世、伊斯坦堡、台北等航班，唯獨飛往倫敦的登機櫃檯大排長龍。
+
+### 教師及會計佔三分之一
+
+受訪個案中，其中兩個家庭有教師背景、另有兩個家庭有會計背景。除了一名30餘歲的青年移民加拿大外，其餘家庭都是家長帶同小朋友離開香港，小朋友普遍為小學至中學生，最細只有6歲，中位數接近12歲。
+
+大部分家庭都是父母和小朋友舉家一同移民，唯獨有一個受訪家庭，由媽媽先帶女兒赴英，爸爸留在香港繼續工作，確保移民的經濟負擔。一個先走、一個留下，出此下策，原因是「香港讀書壓力大，社會狀況不佳，對未來沒有期望，有必要為女兒作長遠打算。」分隔異地這天，爸爸鼓勵女兒說：「唔驚啦！嗰度好熱鬧，好多小朋友。」
+
+### 主因政治及社會因素
+
+為何而走？政治及社會因素為大多數家庭的考量，有受訪家庭提及「2019年反修例運動及2020年實施國安法，反映政權日趨腐敗，香港的言論自由快速萎縮，對香港早已心淡」、「以往6月4日可以舉辦燭光晚會、7月1日可以上街遊行，現在自由已經不復存在」、「對香港感到失望，面對社會日益惡化，無力反抗政權，被逼離開。」
+
+對父母而言，教育和子女的未來同樣都是考慮原因之一。有受訪家庭表示，在「國安教育」下，香港的教育已經變質，故希望子女能盡快離開，到外國接受更宏觀的教育。不少受訪家庭皆未曾踏足英國，面對陌生的國度，部分人表示都會感到恐懼，但受現實所限，覺得香港前途暗淡，故被逼離開。
+
+移民加拿大的受訪青年說：「最不捨得……畢竟我在香港長大、畢竟這是我長大的地方，始終會有感情，不知如何形容，沒有特別留戀的事物，純粹時間長了自然會有感情。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928074235im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/移民-20210701051615_2785_large.jpg" alt="">
+<figcaption>陳父不禁在離境禁區前流下男兒淚，送別撫養、一同成長三十多年的女兒。張凱傑攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210928074235im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/移民-20210701051604_b167_large.jpg" alt="">
+<figcaption>三代人不捨互擁。陳穎賢攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210928074235im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/移民-20210701051623_1c20_large.jpg" alt="">
+<figcaption>上一代人在機場不捨送別下一代至親。張凱傑攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928074235/https://www.hkcnews.com/aboutus/#subscribe)

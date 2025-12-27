@@ -1,0 +1,106 @@
+---
+title: "銀髮族為15歲逝世少女向警高呼：沉冤待雪"
+date: "2019-10-13"
+last_updated: "2019-10-13 03:25:45"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "老人家"
+  - "長者"
+  - "老人"
+  - "銀髮族"
+  - "靜坐"
+url: "https://web.archive.org/web/20210918145640/https://www.hkcnews.com/article/24152/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24153/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24152/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24153/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 銀髮族為15歲逝世少女向警高呼：沉冤待雪
+
+銀髪族昨午起在灣仔警察總部外靜坐48小時，抗議反修例運動4個多月，港府決策不公、警察暴力襲擊市民及濫捕等情況越趨嚴重，並關注有年青被捕者控訴在拘捕期間受到警員的性侵害。昨有近200名長者參與活動，約60人通宵留守。他們一度隔著水馬，為15歲逝世少女向警員高呼：「陳彥霖，沉冤待雪！」
+
+
+{{< video src="https://web.archive.org/web/20210918145640if_/https://www.youtube.com/embed/2RYBFxarEFQ" >}}
+
+
+銀髮族Facebook [表示](https://web.archive.org/web/20210918145640/https://www.facebook.com/silverhairgroup/photos/a.845836899128469/907474482964710/?type=3&theater) ：「我輩雖未能時刻與年青人共同在最前線抗爭，但保衛香港核心價值及青年人未來的責任卻時刻在心，不敢怠慢。」銀髮族要求立即設立獨立調查委員會，對有示威者表示被警察性侵害事件作出調查；抗議警方濫權、濫捕、濫暴；反對將扣留時間由48小時改為72、96小時；呼籲警方遵守保護兒童權利公約。
+
+<figure>
+<img src="https://web.archive.org/web/20210918145640im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/靜坐-老人-銀髮族-20191013025500_245a_large.jpg" alt="">
+<figcaption>銀髮族，老而不廢，4個多月以來多次上街支持青年。EYEPRESS圖片</figcaption>
+</figure>
+
+靜坐由昨午2時至周一下午2時，活動沒有申請不反對通知書，參加的長者都表示不怕有被捕風險，有感已上了年紀，但求為年輕一代出一分力。他們高呼「光復香港、時代革命」、「六大訴求，缺一不可」、「香港人、反抗」、「解散警隊、刻不容緩」等口號。有長者帶著椅子、紙皮坐在地下，現場又有人向他們派發食物。
+
+
+{{< video src="https://web.archive.org/web/20210918145640if_/https://www.youtube.com/embed/K2VjtcoDpaE" >}}
+
+
+晚上，他們在警總水馬前高呼：「陳彥霖，沉冤待雪！」有長者喊：「毅進仔，又唔讀書」、「你都有仔女架」、「你會有報應架」、「黑警唔敢戴委任證、唔敢有編號」、「解散警隊」等。其餘時候，銀髮族便以自己的方式靜坐，與年輕人齊上齊落，有老人摺紙鶴製作連儂牆、有人休息、看書、寫字。
+
+
+{{< video src="https://web.archive.org/web/20210918145640if_/https://www.youtube.com/embed/6w1ShhQXQDM" >}}
+
+
+藝人阮民安（Tommy）到警總外支持銀髮族，送寶礦力至物資站，獲長者鼓掌歡迎，又有人與他合照，同叫「加油」。他指，得知銀髮族靜坐，認為相當難得，故前來為老人打氣。
+
+
+{{< video src="https://web.archive.org/web/20210918145640if_/https://www.youtube.com/embed/dOQEykgjZFI" >}}
+
+
+62歲的方伯伯是其中一位參與者。他隨身帶了兩日的藥丸、又帶了乾糧。他患有肝癌，前幾天去了做化療。問他為何出來，他說：「年輕人為我哋擋子彈，我哋出嚟坐番幾日都好應該啊。」
+
+<figure>
+<img src="https://web.archive.org/web/20210918145640im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/長者-靜坐-銀髮族-20191013025258_23b1_large.jpg" alt="">
+<figcaption>方伯伯。黃思銘攝</figcaption>
+</figure>
+
+「612年輕人為我哋擋咗第一下，令到反送中過唔到，佢哋已經犧牲咗好多，我哋銀髮族要接力，我哋要感恩。」、「點解香港人咁憤怒？你要執法咪正常拘捕，但額外做好多嘢，狂打、狂拉，見到邊個唔順眼嘅又拉，令我哋好憤怒，好似新屋嶺。」
+
+他說，社會的傷口需要好幾個十年去撫平。「未來呢幾十年裏面，呢一代嘅年輕人，有知覺嘅都唔會鍾意警署。呢種情緒會累積幾十年。就算滿足咗五大訴求，呢一代人都會繼續嬲警察。」
+
+<figure>
+<img src="https://web.archive.org/web/20210918145640im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/長者-靜坐-銀髮族-20191013025349_2e32_large.jpg" alt="">
+<figcaption>麥伯伯。黃思銘攝</figcaption>
+</figure>
+
+70多歲的麥伯伯坐在一張紙皮上，打算盡力坐夠48小時。他自言是「收成期嘅人」，「有家業、有財產、孫都有幾個。」
+
+「我哋年紀大，行唔到前頭啦，就靜坐支援下前線。和理一家，遍地開花。佢哋拉頭我哋就跟尾。」、「下一代為我哋擋子彈，點解我哋唔支持佢？」
+
+「點解差人打細路哥打得咁緊要呢，係咪細路哥錯晒啊，你差人有冇錯，點解無人告差人？」他認為，香港是「三民主義」：順民、移民、刁民。「順民唔想做啦，移民就無能力，唯有做刁民。我哋要行出嚟話俾香港政府聽，人民有反抗嘅自由。」
+
+「我哋對下一代唔住，因為以前我哋縱容咗香港政府，以為可以得過且過。但而家唔可以啦，一國一制已經喺我哋眼前。我長命嘅就仲有20年，短命嘅可能聽日走，但一代一代嘅後生仔，仲有好多個明天。」
+
+<figure>
+<img src="https://web.archive.org/web/20210918145640im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/老人-銀髮族-靜坐-20191013025152_10c8_large.jpg" alt="">
+<figcaption>麥麗貞退休前，曾任香港電台製作人員工會主席，敢於發聲。黃思銘攝</figcaption>
+</figure>
+
+65歲的麥麗貞，退休前在香港電台任職多年，曾任港台製作人員工會主席。她多年來關注香港社會發展，有感「政府一蟹不如一蟹」。
+
+過去四個月，她直斥很多事情已超越她的道德底線，「政府態度差劣，根本唔係想解決問題。警暴不斷升級，我唔忍心年輕人犠牲。612、721、831、好多好多嘅事已經完全超越咗我嘅底線。」
+
+「政府、警察唔講道理，話超過3個人就拉得、後生又拉得、阻差辦公又拉得啦。以我嘅認知，係要有合理嘅懷疑先可以咁講，但而家係佢講就得，佢就係法律。」
+
+麥麗貞有感而發：「6、7、8月時，成日睇直播，跟得太貼好多嘢都做唔到，睇到好唔開心。只可以搵啲志同道合嘅人講，但又愈講愈唔開心。」她提到中大女生Sonia日前除下口罩，講述自己遭受警暴及性暴力的事情，「好痛心，呢啲發生喺小朋友身上好難接受，我相信好多人都同我一樣瞓唔著。」麥麗貞說，她會一直支持年輕人。
+
+<figure>
+<img src="https://web.archive.org/web/20210918145640im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/銀髮族-靜坐-長者-20191013025439_1236_large.jpg" alt="">
+<figcaption>長者為下一代，站出來。EYEPRESS圖片</figcaption>
+</figure>
+
+昨日銀髮族靜坐中，有一位16歲前線青年參與，坐在長者旁邊。他說，到場即聞到老人的藥油味，天氣亦相當濕熱，但有感一班銀髮族仍坐著48小時，認為他們「好偉大」，「佢哋企出嚟都付出好大嘅勇氣，作為一個年輕人，如果有時間嘅，點解唔支持下佢哋呢？」
+
+4個多月來的抗爭，他坦言十分疲倦，「成日都會見到有人喺我隔離中槍，亦有人體力不支。攰就一定會，但因為我哋緊張呢個香港，緊張呢個屋企，攰其實唔重要，重要係個成果，真係做到嘢。」
+
+
+{{< video src="https://web.archive.org/web/20210918145640if_/https://www.youtube.com/embed/Z5deL1YZKAo" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918145640/https://www.hkcnews.com/aboutus/#subscribe)

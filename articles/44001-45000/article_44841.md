@@ -1,0 +1,63 @@
+---
+title: "為什麼好人總是袖手旁觀？（一）隨眾的誘惑"
+date: "2021-08-29"
+last_updated: "2021-08-29 18:17:12"
+author: "華人基督徒義顯社"
+category: "眾說"
+tags:
+  - "平庸之惡"
+  - "為什麼好人總是袖手旁觀"
+url: "https://web.archive.org/web/20211026084606/https://hkcnews.com/article/44841/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44843/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44841/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44843/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 為什麼好人總是袖手旁觀？（一）隨眾的誘惑
+
+【撰文：言而】   
+   
+ 何以在小學或中學的校園出現霸凌時，在場的學生卻常保持緘默？   
+   
+ 為什麼在美國大學校園的兄弟會（fraternity），於派對中常會過度飮酒發生意外甚至性侵，但是又鮮有人伸出援手？   
+   
+ 成人世界又如何？試看職場各式的性騷擾、詐騙、醜聞，或廣至社會層面的政治批鬥群眾運動，他們的沉默不作為，很多時比少年人更甚。何解？   
+   
+ 當然，很多人認為這些在場的旁觀者皆是一丘之貉，蛇鼠一窩。否則怎麼可能容忍如此欺凌弱小、非道德、甚至踐踏人性的行為？   
+   
+ 可是，在美國南部經歷多年種族隔離政策和飽受歧視者攻擊的黑人民權領袖馬丁路德金博士，卻提醒：
+
+> **歷史⋯⋯最大的悲劇不是惡者的刺耳叫囂，而是好人那令人膽寒的沉默。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20211026084606im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/平庸之惡-為什麼好人總是袖手旁觀-Catherine%20Anderson-20210829180636_a268_large.jpg" alt="">
+</figure>
+
+心理學家Catherine A. Anderson 在其著作 [《為什麼好人總是袖手旁觀》](https://web.archive.org/web/20211026084606/https://www.books.com.tw/products/0010865982) （ [Why We Act: Turning Bystanders Into Moral Rebels](https://web.archive.org/web/20211026084606/https://www.amazon.com/Why-We-Act-Turning-Bystanders/dp/B0853DHRTS) ），通過世界各地的心理測驗和追查腦體活動的異常，也得出相同的結論。受測者雖在個人考量時反對不當行為，同時，若當場沒有其他人，只剩下自己要面對時，也多會忠於所想而作出相應行動。但是，一旦有别人在場，不少就會以為其他人的判斷跟自己不同，故此會很容易隨眾或默不作聲。   
+   
+ 這種群體效應往往會令大部分普通人成為惡行的無聲同行者，特別是在場人數越多，隱藏在人群裏的保護罩，會令人壯膽脫去道德枷鎖，從旁觀到認可甚至後來的參與。   
+   
+ 即使我們個人極討厭當場發生的事，很多時又會誤判，以為其他人會加以援手，因為人數越多自己的仗義責任便越少，亦即所謂「社會閒賦」（social loading）傾向。這也解釋了爲何在游泳接力賽中，若果不單止宣佈全隊的成績，連每一位隊員的速度也公佈的話，所有參與者通常會加把勁游。   
+   
+ 此外，我們有時又會錯以為别人毫無表示，就是代表他們全部認同當場發生的事，而推想到若果我們違眾做出另類行為，只會突出自己惹來恥笑。心理學家稱這現象為「評價顧慮」（evaluation apprehension）。我們會因而害怕出醜而袖手旁觀，則謂之「觀眾抑制」（audience inhibition）。童話故事《國王的新衣》正是這類心態的具體寫照。   
+   
+ 不能否認，面對群眾，人有從眾的壓力，特別是青少年，因為負責判斷與控制衝動的大腦前額葉，要到二十歲出頭才能發育完全，故此青少年特別受同儕壓力所影響。群體力量常會造成朋輩不再對不當行為羞愧，就算是在成人工作的職場，公司瀰漫的不道德文化，也會蠶食職員以致隨眾走。   
+   
+ 當然，我們無視劣行也與懼怕後果，或喪失了從眾而獲得的好處有關。相信不論小孩或成人，最擔憂的便是一旦干涉，會招致報復，或被排斥於社群之外。在不少商業機構，僱員會顧慮若舉報或阻止不當行為，可能被辭退或仕途受損，高級職員又會擔心不作同謀，可能失去一向享有的利益。美國能源公司安隆（Enron）隱暪高債務以維持高股價時，其實高層包括經理、律師、顧問皆知情，卻為從中獲利而佯裝不知。   
+   
+ 不過，更可怕的是，若這種從眾心理被野心的極權政治家所利用，後果更是不堪設想。 **（待續）**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026084606/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 華人基督徒義顯社](https://web.archive.org/web/20211026084606im_/https://hkcnews.com/uploads/avatars/81bc8451-efb1-4dc2-9482-f5b0c5859fce.png?76270930)
+
+**博客 | 華人基督徒義顯社**
+
+【華人基督徒義顯社・義顯之聲】組織使命為：彰顯神國公義，普及社會倫理，結合靈修社參，服事華人教會。

@@ -1,0 +1,63 @@
+---
+title: "西九藝術品危害國家安全　左報容海恩涉嫌侮辱國家"
+date: "2021-03-18"
+last_updated: "2021-03-22 06:20:33"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "容海恩"
+  - "YUNG Hoi-yan"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "m+ 博物館"
+  - "m+"
+  - "M Plus"
+url: "https://web.archive.org/web/20211023015836/https://hkcnews.com/article/39441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-m_plus_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/39441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-m_plus_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39524/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 西九藝術品危害國家安全　左報容海恩涉嫌侮辱國家
+
+
+{{< video src="https://web.archive.org/web/20211023015836if_/https://www.youtube.com/embed/qfcViMunPxM" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211023015836/https://bit.ly/2Cj8v4t)
+
+港人治港年代告終，愛國者治港新時代來臨，香港全面內地化，文革歪風吹到文化藝術、電影領域。具官方背景媒體近日發動攻擊藝術發展局、向電檢處施壓，禁播《理大圍城》。親中團體更向警方舉報，指 M+博物館藏品涉違國安法，新民黨立法會議員容海恩昨日在特首林鄭月 娥答問環節發炮，劍指艾未未一批藝術品。
+
+西九文化區是林鄭其中一個「寶貝項目」，直接負責多年，亦是首任特首董建華1998年開始發的國際文化大都會夢，竟然有展品被指涉違國安法，林鄭縱容國安法被「武器化」，最終燒到頭上。愛國主義變成極端民族狂熱，用作武器打壓多元文化和思想，藝術展品被指危害國家安全，是國際笑話，國際文化大都會成為殘夢。
+
+原訂於今年年底正式開幕的M+博物館上週五（12日）舉辦傳媒預覽，館長華安雅指國安法下仍不會迴避展示六四、反修例示威相關作品，並稱艾未未部分作品本屬M+館藏品，強調博物館策劃展覽向來根據史實。隔天（13日），親中媒體《點新聞》發表社評批評M+博物館有「大量作品挑戰國家尊嚴、侮辱英雄、無視社會道德底線、貶低宗教、涉及孌童意識」，指明相關展品屬「希克系列」藏品，又稱烏利．希克「一手捧紅極為仇共的異見藝術家艾未未。」
+
+昨日，容海恩在特首質詢時間指M+博物館藏品「散播仇恨」、「侮辱國家尊嚴」、「違反國安法」，要求成立部門審查展品。林鄭回應指文化藝術創作自由與散播仇恨、破壞國家安全的界線是可分辨的，又稱政府會「特別警惕」。
+
+今早，容海恩上電台解畫，點名指異見藝術家艾未未作品，包括一張天安門「舉中指」作品，引述港版國安法多條條文，一時說作品涉嫌「危害國家安全」、一時又指對國家「不敬」、「敏感」、「令人不安」；一時強調只是「涉嫌」，但又要求在網上刪去作品，語無倫次，對藝術一無所知。
+
+左報率先發難，左派工聯會在特首答問會死咬港台「罐頭風波」 事件，容海恩搶先砌西九M+，死咬幾件藝術作品，要証明自己「 忠誠」，但並非「廢物」。艾未未接受港台訪問時表示， 容海恩對藝術不理解，強調藝術的核心價值就是提出問題以及對權威的質疑。容海恩要忠誠，當然不懂質疑權威。
+
+林鄭掌管西九項目多年，耳濡目染，理應懂一點藝術，卻不作即時反駁，還說政府會「特別警惕」，是默認不夠「警惕」 嗎？
+
+容海恩質疑M+展品可能違反國安法，西九是政府全資擁有項目，主席唐英年由林鄭委任，要問責最終是林鄭。違反國安法指控極為嚴重，林鄭避談作品是否已超越紅線，左報、容海恩開聲便「腳軟」，含糊其辭，幾件藝術展品也不敢捍衛，如何推動發展國際文化大都會？
+
+左派媒體背後是中聯辦，近日攻擊藝術發展局，資助「黃色藝團」、拍攝「黑暴電影」，更要求電檢處禁播《理大圍城》，扮演「文化國安」，在藝文界、社會散播白色恐怖，破壞香港社會崇尚、港人珍惜的多元、包容文化。
+
+幾件藝術作品、一齣紀錄片，便可以危害國家，這種說法，涉嫌對國家侮辱、不敬。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211023015836/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211023015836im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

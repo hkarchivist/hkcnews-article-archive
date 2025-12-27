@@ -1,0 +1,44 @@
+---
+title: "港生赴台終見曙光　台教育部：1.3萬境外新生、華語受獎生優先入境"
+date: "2021-08-11"
+last_updated: "2021-08-11 21:00:44"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "大學生"
+  - "陳時中"
+  - "台灣疫情"
+url: "https://web.archive.org/web/20211203014431/https://www.hkcnews.com/article/44290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44292/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/44290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44292/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 港生赴台終見曙光　台教育部：1.3萬境外新生、華語受獎生優先入境
+
+台灣疫情防疫警戒雖降至二級，但仍實施「境外嚴管」措施，導致包括港生在內的境外生焦急趕不上9月開學；針對境外生「聲聲急」，台灣教育部今(11日)表示，已完成境外生入境專案規劃，以1萬3千名學位新生及華語受獎生為優先入境對象，並將請各大學開始準備；該專案將報請中央流行疫情指揮中心核定後施行。
+
+<figure>
+<img src="https://web.archive.org/web/20211203014431im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/邊境-大學生-台灣疫情-20210811201214_9358_large.jpg" alt="">
+<figcaption>在台港生互助協會先前因得不到台灣政府回應，曾在臉書發圖表示無奈。取自港生互助協會臉書</figcaption>
+</figure>
+
+[眾新聞早前報導](https://web.archive.org/web/20211203014431/https://bit.ly/3frjwD3) ，在台香港學生互助協會多次向教育部詢問，是否有境外新生入境「規劃」，以方便新生預作準備，但遲無下文，在台港生互助協會曾指出，有港生已退了租屋、辭了工作，卻不知何時能到台灣就學，讓在台港生協會發出聲明，呼籲台灣政府儘速公布規劃辦法。
+
+針對境外生的焦急，台灣教育部今下午召開部務會報，教育部表示，上周已邀集衛福部、外交部、內政部移民署、陸委會等部會，就國際疫情及台灣防疫量能召開「境外生入境措施協調會議」，依照最新邊境管制措施，調整境外生入境的專案計畫，希望有更周詳的防疫規範。
+
+依據教育部規劃，初步會以「境外學位生」、「華語獎學金受獎生」為優先對象，估計約有1.3萬人，需逐步分批規劃，之後才會考量境外生以外的短期華語生及交換生入境。目前專案計劃已經研擬完成，將提報指揮中心進行專案核定。
+
+因各大專院校將於9月開學，教育部將請各大專校院聯繫境外生，提前預作準備；若境外生無法在開學前抵台入學，各校將和去年一樣啟動學生「安心就學」措施，由各校就校內特色，提供彈性修業之措施，包括線上註冊、在課程方面有提供上課時間同步遠距教學，異地同步學習教學或延至寒假補課實習等方式因應。
+
+台灣疫情趨緩，今新增12例本土及4例境外輸入案例，過去7天有5天本土病例都僅個位數，但各國因Delta變種毒株肆虐，導致包括日本、韓國在內等國家疫情劇增，大陸也有百例個案；相較之下，香港及澳門疫情控制得宜。不過，台灣政府仍決定維持「境外嚴管」措施，即「未持有台灣有效居留證的非本國籍人士仍暫緩入境，具有緊急或人道考量等經專案許可者除外」。
+
+指揮中心指揮官陳時中今在每日疫情例行記者會中，被問及有關境外生無法入境、恐影響就學權益一事回答稱，境外生數量與台灣防疫能量有關係，要由教育部先統計學生人數，入境後要住在學校宿舍，或是防疫旅館、集中檢疫所，都要先行盤點；目前並未針對施打兩劑疫苗者免除入境檢疫規定，從國際疫情來看，不管打了哪種廠牌疫苗仍有人染疫，因此台灣也不能鬆懈。
+
+針對教育部說明最新規劃進度，在台港生互助協會表示衷心感謝，同時期望教育部與指揮中心早日達成共識，盡早公布時程並安排放行香港新生入境台灣，安定一眾香港新生忐忑不安的情緒。協會盼望香港新生同學們能夠順利趕在開學前入境台灣，在當地進行課程，擁有完整的大學生活，而非使用安心就學方案在香港上網課。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203014431/https://www.hkcnews.com/aboutus/#subscribe)

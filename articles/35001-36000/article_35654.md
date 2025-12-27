@@ -1,0 +1,50 @@
+---
+title: "鏟除議會阻力　全速改造香港"
+date: "2020-11-17"
+last_updated: "2020-11-17 11:22:16"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "立法會議員"
+url: "https://web.archive.org/web/20210919143612/https://www.hkcnews.com/article/35654/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35656/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35654/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35656/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鏟除議會阻力　全速改造香港
+
+<figure>
+<img src="https://web.archive.org/web/20210919143612im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/北京-20201117111020_120f_large.jpg" alt="">
+</figure>
+
+過去一周，最矚目的政治新聞肯定是全國人大常委會作出決定，授權特區政府剔除四名泛民議員的資格，觸發十多名泛民議員集體辭職，令延任一年的立法會只剩下鄭松泰和陳沛然兩名非建制議員，建制派議員徹底操控議會。驅逐泛民議員一事，令西方社會認定中國已背棄「一國兩制」方針，鞏固了西方社會圍堵遏制中國的立場，並加快為港人提供逃生門，英國的BNO居英計劃已公布詳情，而加拿大亦推出特為香港青年而設的3年工作簽證計劃，預計未來數年，英、澳、加、美等國將吸收數十萬香港移民，北京將調派大批人員和資金來港穩住局面。
+
+當北京決定以疫情為借口押後立法會選舉一年，讓原來的立法會議員全體延任一年時，郭榮鏗、楊岳橋、郭家麒、梁繼昌四位泛民議員已遭選舉主任否決參選資格，當時已有建制派議員質疑他們是否有資格延任，但北京為了顧全大局，指參選資格與議員延任是兩回事，歡迎他們留任立法會，現在突然改變態度，翻他們的政治舊帳，指他們不具備當議員的資格，授權特區政府取消他們的議員身分，這明顯是政治策略起了變化。
+
+北京衡量是否取消四名泛民議員資格時，清楚知道泛民陣營內部已有共識，若有泛民議員被貿然取消資格，沒有跟從《基本法》規定的彈劾及取消議員資格程序，就會集體請辭抗議，令議會失去代表五成多選民的民意代表，成為單純的建制橡皮圖章，北京仍然作出這樣的決定，反映領導人希望盡快清除香港立法會內的反對聲音，令特區可以在延任立法會的一年任期內，在沒有質疑之下，快速通過一系列北京認為須盡快實施的政經措施，加快落實對香港的政治及經濟改造。
+
+<figure>
+<img src="https://web.archive.org/web/20210919143612im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/中美關係-20201116153410_193a_large.jpg" alt="">
+<figcaption>在拜登勝選已成定局後，北京清楚看到，拜登政府的對華立場，也許沒有特朗普的團隊那麼狠，但基本立場仍然是圍堵、孤立、遏制。</figcaption>
+</figure>
+
+北京為什麼要加快對香港的全面改造？相信與北京衡量最新的國際局勢有關。在拜登勝選已成定局後，北京清楚看到，拜登政府的對華立場，也許沒有特朗普的團隊那麼狠，但基本立場仍然是圍堵、孤立、遏制，而且拜登領導的美國，將會改善與國際盟友的關係，加快組成包圍中國的國際連線，在國安法實施後，美、英、加、澳、歐盟等西方國家作了清晰表態，已不可能回到從前視香港為有別於內地的另一制，取消給香港的各種特殊待遇只是遲早問題，除非北京作出重大讓步，例如撤銷國安法、重啟立法會選舉、放棄清算政治異見人士，否則西方社會不會改變對香港的看法，既然無法改變，就索性不顧西方社會觀感，加快實現2014年一國兩制白皮書提出的、中央對香港的全面管治權，運用這全面管治權改造香港，使其服務中國的政經利益。
+
+**可以預見，在剔除泛民議員、消除政治阻力後，立法會將會快速通過一系列的政經措施，落實北京全面接管香港的戰略，例如通過大灣區居住港人投票安排，用新增的數十萬大灣區選票，奪回區議會和立法會選舉的賽果控制權；又例如通過填海造島計劃，製造大片新的可發展市區用地，興建足夠房屋容納從內地湧來的大量新移民。**
+
+**除了這些，親建制圈子的政經利益再分配，相信也會加快進行，內地紅色資本將大舉進駐，加快取代外資掌控各個重要領域，例如民航、運輸、通訊、能源等，在必須容許外資參與的領域，如金融、地產、零售，紅色資本的市場份額也會快速增加，以實現對香港經濟有效主導。當這連串政治及經濟洗牌進行時，外資將加快撤出，香港也會出現移民潮，流失大批原有精英，由內地派來的「新香港人」取代。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919143612/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20210919143612im_/https://www.hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

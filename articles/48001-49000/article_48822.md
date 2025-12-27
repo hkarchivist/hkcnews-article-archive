@@ -1,0 +1,43 @@
+---
+title: "【煽動六四集會案】法官：黎智英是著名公眾人物和支聯會立場相近　現身記者會召集支持　無需發言已可煽動群眾"
+date: "2021-12-09"
+last_updated: "2021-12-09 18:56:09"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "黎智英"
+  - "煽惑六四集會"
+  - "胡雅文"
+url: "https://web.archive.org/web/20220520143457/https://www.hkcnews.com/article/48822/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48822/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽動六四集會案】法官：黎智英是著名公眾人物和支聯會立場相近　現身記者會召集支持　無需發言已可煽動群眾
+
+警方去年以疫情為由禁止維園六四集會，多名支聯會成員和泛民主派人士被控當日組織及參與未經批准集結，何桂藍、鄒幸彤及黎智英經審訊後，今（9日）被裁定罪成。法官胡雅文在判詞中指，黎智英是著名公眾人物，「眾所周知」與支聯會抱相似立場，當日在噴水池廣場燃點燭光，明顯是支持支聯會舉行集會；一如以往並早料當日現身維園會成焦點，他出席記者會是為了召集支持及令人關注六四集會，無需發表任何煽惑言論也足以煽動群眾。
+
+黎智英昨日74歲生辰，今日開庭前，旁聽人士向黎智英高呼：「黎生，生日快樂呀！」不少前蘋果記者亦有到場旁聽，有律師走近犯人欄的玻璃幕，表示：「Jimmy生日快樂，你好多同事過咗嚟呀。」黎笑逐顏開，不斷向公眾席揮手。
+
+相關文章   
+ [**官指公共衞生屬公眾安全因素**   
+](https://web.archive.org/web/20220520143457/https://bit.ly/338EVh3) **[法官斥鄒幸彤何桂藍一派胡言](https://web.archive.org/web/20220520143457/https://bit.ly/3yb08T5)**
+
+<figure>
+<img src="https://web.archive.org/web/20220520143457im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/法院-黎智英-20210209132532_3ea4_large.jpg" alt="">
+</figure>
+
+黎智英被控一項煽動他人參與未經批准集結罪。
+
+法官胡雅文指，呈堂片段顯示黎於案發日到達維園，跟李卓人等人打招呼，並與本案其餘被告站在一起、點起燭光，可肯定黎智英到場唯一目的為了參與燭光晚會及記者會。而在李卓人發言時，黎智英亦站在支聯會成員中，他參與叫喊口號後離開維園。
+
+法官指，黎智英是著名公眾人物，眾所周知黎與支聯會持相似看法，故黎當日在場明顯是支持支聯會舉行及煽惑他人參與被警方禁止的集會。
+
+### 曾受訪稱「如果你們不被威嚇，應到維園或用自己的方式繼續悼念」
+
+此外，黎於六四晚會前曾接受傳媒訪問，曾指「如果你們不被威嚇，應到維園或用自己的方式繼續悼念」，黎又自言會到維園悼念，強調六四燭光晚會的重要性。而黎智英當日特意現身記者會，藉此獲取他人支持及關注隨後進行的未經批准集結，他無需發表煽動言語，已足以煽動群眾。
+
+法官補充，黎當日離開維園後，在一個教會紀念六四事件的場合上，向傳媒稱被維園聚集人群鼓勵及啟發，故相信黎當天實有意圖煽惑他人集結。
+
+控方審訊時曾陳詞強調，黎是著名政治人物，去年六四前夕受訪表示一定會參與集會，籲公眾不應害怕國安法及政治打壓。當黎到達廣場，群眾隨即追隨其後，可見其號召力。控方又指，黎從事媒體行業多年，在港創辦《蘋果日報》，在台灣亦有電視台，可證他深知其號召力。控方指，當李卓人發言表示要延續維園燭光，黎手持蠟燭與他站同一陣線，以示其支持和鼓勵，他在場已經可構成「非常強的煽動」。
+
+早前聆訊期間，庭上播放涉案蘋果日報訪問片段，黎智英在訪問中表示，若對國安法反感，就必定要就六四表態抗爭，「唔係為社會去做，係為自己去做。」

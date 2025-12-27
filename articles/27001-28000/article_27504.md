@@ -1,0 +1,45 @@
+---
+title: "香港最後一個特首──陳茂波"
+date: "2020-03-03"
+last_updated: "2020-03-03 21:44:58"
+author: "思言財雋"
+category: "眾說"
+tags:
+  - "行政長官"
+  - "曾俊華"
+  - "John Tsang"
+  - "財政司司長"
+  - "財政司"
+  - "陳茂波"
+  - "發展局局長"
+  - "Secretary for Development"
+url: "https://web.archive.org/web/20220127021703/https://www.hkcnews.com/article/27504/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27518/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/27504/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27518/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港最後一個特首──陳茂波
+
+<figure>
+<img src="https://web.archive.org/web/20220127021703im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/行政長官-陳茂波-20200303160538_25f6_large.jpg" alt="">
+</figure>
+
+這裏包含兩個預測：
+
+（1） 陳茂波將成為下任特首   
+ （2） 陳茂波將會是最後一任特首
+
+先解釋第一個預測。建制派在區選的慘敗令中央震怒，先後撤換中聯辦和港澳辦主任，林鄭下台只是時間問題。那誰會是繼任人？梁振英、葉劉等棄卒不用考慮，唐英年、陳智思等商家未必願意接這個燙手山芋，張建忠、鄭若驊、李家超、 陳肇始等現任司局長統統民望插水，唯獨是陳茂波在過去八個月的重大事件中仿佛置身事外，一出來就派錢，民望大幅升至43.5分，雖然仍不合格，但已是最高了。
+
+回歸以來特首一蟹不如一蟹，當日大家覺得689已經差無可差，777竟可破底。按照此趨勢，下一個特首只會比777更差，而陳茂波正是「合適」人選。相比梁振英的奸險或林鄭的囂張，陳茂波一副悲天憫人、憂國憂民的模樣，實在討好得多。此人貌似誠懇敦厚，實則無恥貪財，私德有虧，囤地、經營劏房、隱瞞資產、誹謗、酒後駕駛等等，劣跡斑斑。
+
+像陳茂波這種不學無術之徒，會有什麽鴻圖偉略？在他來説，最容易亦最直接令民怨降溫就是派錢，一萬不夠，下次派兩萬，反正庫房尚算充足。不過隨著中美貿易戰、社會運動和疫症爆發的三重打擊之下，經濟急速下行，再加上明日大嶼等大白象工程陸續上馬，未來幾年香港將錄得巨額財政赤字。萬一中國經濟泡沫爆破，外匯耗盡，大家認爲陳茂波會守住香港三萬億港元外匯儲備嗎？
+
+梁振英和林鄭破壞香港核心價值、撕裂社會、縱容警暴，還未算最差，至少還有錢派，市民還有飯食。等到香港的豐厚儲備在陳茂波手中敗光，那就是真正的民不聊生，哀鴻遍野了。香港徹底崩毀後，會有兩個可能，一是光復建國，自選領袖；二是變爲直轄市，中央直接派員管治。總之，陳茂波就是最後一個特首。
+
+---
+
+![博客 | 思言財雋](https://web.archive.org/web/20220127021703im_/https://www.hkcnews.com/uploads/avatars/02cbb1ed-7e28-4409-8aa8-66d8ac53c2d6.png?1282097549)
+
+**博客 | 思言財雋**
+
+【思言財雋專欄】「思言財雋」旨在滙聚金融財經界志同道合的同業友好，致力提高金融界對公共事務的意識及參與，監察政府並推動香港民主政制，助香港社會堅守法治及公義。Facebook：facebook.com/financierconscience/

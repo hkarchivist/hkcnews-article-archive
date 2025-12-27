@@ -1,0 +1,34 @@
+---
+title: "29歲男警駕白牌新娘車遇放蛇　求情指為籌錢結婚　認罪罰5000元"
+date: "2021-11-18"
+last_updated: "2021-11-18 17:24:52"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+url: "https://web.archive.org/web/20220117161852/https://hkcnews.com/article/47862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47877/29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5000%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47877/29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5000%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 29歲男警駕白牌新娘車遇放蛇　求情指為籌錢結婚　認罪罰5000元
+
+29歲男警今年6月由其弟婦在網上招客，將座駕出租做新娘車，駕駛「白牌車」載客收費，被警方「放蛇」斷正，案件今（18日）在九龍城法院提堂，男警和弟婦承認所有控罪。辯方求情指，男警犯案只因想為籌錢結婚，最後因小失大。署理主任裁判官黃雅茵考慮男警前途受影響，可能將受紀律處分，判兩人各罰款5000元。
+
+<figure>
+<img src="https://web.archive.org/web/20220117161852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/警察-20210920173042_2e18_large.jpg" alt="">
+</figure>
+
+男警被告張家強（29歲）今承認一項駕駛汽車以作出租或取酬載客用途罪，被指於今年6月17日在旺角海庭道富榮花園二期外駕駛登記號碼為「MRCHEUNG」的私家車，以作出租或取酬載客用途。他另承認一項沒有第三者保險而使用車輛罪。
+
+女被告葉東慈（24歲）報稱護士，承認一項招攬他人乘坐以出租或取酬方式罪，被指於同月同日招攬警員12182乘坐汽車。
+
+### 弟婦為賺奶粉錢　幫男警網上招徠
+
+辯方求情透露，女被告是男警的弟婦，懷有4個月身孕，並育有2歲女兒。辯方強調，她干犯本案只為賺「奶粉錢」，男警則是為籌錢結婚，最後「因小失大」。署理主任裁判官黃雅茵裁決時指，念及男警可能要受紀律處分，前途受影響，故以罰款處理本案。
+
+案情指，今年6月3日警方在網站「Carousell」發現有人提供非法出租車服務，以私家車用作新娘車，由女被告負責推廣，男警被告負責駕駛。警方展開放蛇行動，與女被告相約好交易，路線為長沙灣至旺角富榮花園，費用是1388元，警方先付了388元作為訂金。同月17日，喬裝警員上車後繳交餘款，另一軍裝警員隨即截查男警被告，將他帶返警署調查。被告在警誡下招認提供非法出租車服務。
+
+案件編號：KCCC3323/21

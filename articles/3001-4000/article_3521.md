@@ -1,0 +1,61 @@
+---
+title: "殖民、移民、「一等公民」"
+date: "2017-04-30"
+last_updated: "2017-04-30 09:49:50"
+author: "周日"
+category: "眾說"
+tags:
+  - "香港人"
+  - "移民"
+  - "大陸新移民"
+url: "https://web.archive.org/web/20211027061439/https://www.hkcnews.com/article/3521/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-3619/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/3521/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-3619/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 殖民、移民、「一等公民」
+
+自古至今，世界各地人口常常遷徙，遷徙的原因不外乎那幾個。根據《Maslow's hierarchy of needs》（馬斯洛的需求層次理論），人的需要分為5個層次，最低層次是生理需要，例如吃、喝、拉、撒，睡覺、溫暖和性等等。再上一個層次是保障和安全，例如穩定工作、收入、房屋。如果這些基本需要無法達到，社會便出現不穩定，人民需要找尋出路。比方說，愛爾蘭人在過去的200年裡經歷過大概5次的大遷徙，到美國、加拿大和澳洲等國家去，其主要原因是饑荒，另外是獨立戰爭和宗教衝突。
+
+中國自古以來，人民也是不斷遷徙，因為她的歷史基本是戰爭史。每當人的最低層次需要不能達到，連吃的都沒有，遷徙便自然出現，追尋安居與溫飽。例如客家人原本是中原人士，在秦朝末至宋朝初，黃河流域的漢族居民由於戰亂，數次從中原南遷，抵達粵、閩、贛一帶安家落戶。現在中國的人員流動也十分驚人，每年春運的公共交通一票難求（大概40多天的人口流動達30多億人次），大家都需要回鄉過年、探親、旅遊。其中包括由於農村生活太苦，湧到大城市打工的民工，幹氣力活或者做低級工作；雖然當民工不輕鬆，但起碼不用望天打卦。
+
+<figure>
+<img src="https://web.archive.org/web/20211027061439im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/04/中國-交通-春運-20170430091319_235c_large.jpg" alt="">
+<figcaption>中國春運到處出現的民工人潮。網絡照片</figcaption>
+</figure>
+
+殖民的定義是遷移人民，到一個當權者打算控制的新地方，為了控制其他族類從而達到政治目的。很多國家也進行殖民，例如英國對香港，中國對內蒙古、新疆、西藏，俄羅斯對烏克蘭的克里米亞，又或者遷移來香港的大陸人。克里米亞的獨立是一個殖民成功的典型例子；她原本是屬於烏克蘭的地方，位於黑海，地理險要。但很多俄羅斯人去了當地生活定居，於2014年克里米亞舉行公投「脫烏入俄」，結果是97%投贊成票，繼而宣佈獨立，脫離烏克蘭，依附俄羅斯。
+
+粗略計算，假如每天用盡150個單程證遷移大陸人到香港，20年來遷移到香港的大陸人超過一百萬。另外，還有「優秀人才入境計劃」、「輸入內地人才計劃」及「資本投資者入境計劃」等。大陸來香港上小、中、大學的學生還沒計算。這等於每7個人裡面就肯定有一個是大陸來的。另一方面，香港人越來越不願意生孩子，本地人口增長慢。再過30年，大陸人在香港的人數光算單程證來的，就有274萬人，還有他們結婚生小孩，每對夫妻生幾個。到2047年，香港成什麼樣子不言而喻了。
+
+已故利比亞領袖卡達菲2006年在阿拉伯衛星電訊網絡這樣說：「Islam will take over Europe without violent force within a few decades...」（伊斯蘭在幾十年內不需要用任何武力便能接管歐洲）。他的話沒有誇大，原因是歐洲白人不喜歡生孩子，而大量已經移民歐洲的穆斯林（伊斯蘭教徒）結婚後拼命生孩子，每對夫妻起碼生8到10個孩子。現在的倫敦市長也是穆斯林，穆斯林管治歐洲還會遠嗎？香港距離由大陸新移民控制的情況還會遠嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20211027061439im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/04/Maslow's%20hierarchy%20of%20needs-殖民-移民-20170430083834_59b3_large.png" alt="">
+<figcaption>根據馬斯洛的需求層次理論，人的需要分為5個層次。</figcaption>
+</figure>
+
+中央政府維持國家穩定的政策主要是針對人民的基本需要，例如附圖的第五、第四層。因此， [中國的維穩費向來都比軍費高](https://web.archive.org/web/20211027061439/https://news.mingpao.com/pns/dailynews/web_tc/article/20160309/s00012/1457459535343) 。人民的基本需要得到滿足，便不會出現社會動亂。中國近代的遷徙潮主要是由於清朝的腐敗，民不聊生、日本侵華和解放後的社會動蕩和饑荒，大量人民遷徙到香港及其他國家；寧願「賣豬仔」到美國去，掙錢寄回鄉下，目的就是為了生存。可是，能夠滿足人民的基本需要，就不會出現移民嗎？
+
+1984年《中英聯合聲明》後，大量香港市民移居外國，他們都是精英分子，放棄原來的高薪厚職到外國去，寧願做「二等」公民。那些人移民的原因是知道解放後那些知識分子和地主，怎樣受到逼害，例如毒打、當眾羞辱、跪破玻璃等等；及文化大革命帶來的災害（光算死亡人數已經達兩千萬），擔心回歸後歷史重演。不過回歸後，香港沒有出現重大的社會動蕩，也沒有戰亂，香港人普遍能得到溫飽。除了住房方面出現問題外，物質方面沒什麼缺乏。那麼，為何很多香港人又開始思量移民呢？
+
+按照馬斯洛的理論，當人們的基本需要滿足後，便會追求精神上的需要。假若第三和第二的層次不能達到，移民到理想國家的願望便逐漸形成。基本需要很容易處理，有錢就能解決；精神需要比較複雜，特別是涉及兒女的前途和未來。例如2012年香港政府推行「國教」，結果導致12萬人上街抗議。老一輩的中國父母常常嘴邊掛著一句話：「自己唔食都要畀仔女食」，父母愛子女之心可見一斑。
+
+香港社會的發展已經非常成熟，大部分人不愁吃、不愁喝。香港人的需要已經到達最頂的一層，追求Self-actualization（自我理想實現）。可是，目前看見的是變了味的「一國兩制」，特首選舉由中央欽點，受香港人愛戴的候選人落選，議員被特首DQ，「公民抗命」人士被起訴。香港人本來的自主、自由逐漸被蠶食，連每天單程證的批准，都不是由香港政府做決定。歷史被篡改，真理被埋沒......
+
+美國18世紀政治家Patrick Henry說：「 不自由，毋寧死（Give Me Liberty or Give Me Death) 」。如果不願意做不問世事、順其自然、聽天由命的「一等公民」，又不想做犧牲自己前途甚至生命的「暴民」，那還有什麼可以選擇呢？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027061439/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 周日](https://web.archive.org/web/20211027061439im_/https://www.hkcnews.com/uploads/avatars/abf6c58f-b393-4916-a9e9-5bd0cc101f41.png?636809778)
+
+**博客 | 周日**
+
+【周日・不是星期日】愛每事問，相信宇宙不是偶然形成、萬物不是偶然出現、事情不是偶然發生，一切「相」的背後必定有其真相。

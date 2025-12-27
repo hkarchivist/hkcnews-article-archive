@@ -1,0 +1,71 @@
+---
+title: "《蘋果日報》能否如常運作，繼續批評特區政府？"
+date: "2021-05-17"
+last_updated: "2021-05-17 21:48:16"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "黎智英"
+  - "蔡展鵬"
+url: "https://web.archive.org/web/20210729032119/https://www.hkcnews.com/article/41449/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41450/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41449/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41450/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《蘋果日報》能否如常運作，繼續批評特區政府？
+
+<figure>
+<img src="https://web.archive.org/web/20210729032119im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/假新聞-20210517213009_1657_large.jpg" alt="">
+</figure>
+
+過去一周，最矚目的政治新聞有兩則，其一是警隊國安處處長蔡展鵬被揭發光顧無牌按摩店，正停職接受調查，另一則是政府引用國安法實施細則，凍結《蘋果日報》控權大股東黎智英的股份及資產，而台灣《蘋果日報》剛好同日宣布停刊。
+
+蔡展鵬停職受查一事，有許多撲朔迷離之處，事件尚在發展中，從有限的已曝光信息中，可以觀察到以下幾個重點：
+
+1）從事件曝光過程來看，並非傳媒主動調查揭發，而是兩家與政府關係友好的媒體接到信息，有默契地深夜爆料，令其他報紙難以大幅轉載，翌日則由警務處長有限度地確認媒體報道內容，整個操作似是自我引爆醜聞，而湊巧的是，醜聞曝光後馬上便發生特首與警隊高層同收粉末信，客觀上起了轉移視線之效。
+
+2）從事件發生到消息曝光，時間上超過一個月，這漫長的一個多月裏，警隊最高層連同特首、中央駐港國安要員，以及在北京主責港澳事務的官員，肯定開了多次會議，作過許多深入的討論，而最終的選擇是讓事件曝光，宣布勒令蔡休假接受調查，且是由警方有組織及三合會調查科負責調查，這個選擇顯示，中央和特區政府高層已經放棄蔡展鵬。
+
+<figure>
+<img src="https://web.archive.org/web/20210729032119im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/蔡展鵬-國安處-20210512103827_1662_large.jpg" alt="">
+<figcaption>過去蔡展鵬是接任警務處長的熱門人選，如今已成警隊負資產。 資料圖片</figcaption>
+</figure>
+
+3）如果中央要保住蔡展鵬，方法不是沒有的，畢竟涉及事件的全是警隊可以控制的人，就連721元朗恐襲那樣牽連廣泛的大案，有眾多證據顯示警隊涉勾結包庇，警隊高層也可以完全擺脫關係，不受任何調查，沒有半點責任，相比之下，蔡展鵬光顧無牌按摩店，只是小菜一碟，中央若有心保全國安處的面子，下令遮掩蔡展鵬事件，應該可以大事化小，等若干個月後再作調職處理，對維護國安處威嚴更為有利，但最終政府選擇讓事件曝光，反映有一些迫不得已的因素，令政府無法掩蓋下去，到底這迫不得已的原因是什麼，與國安系統的內部派系鬥爭是否有關，是整件事的焦點所在。
+
+4）既然事件已經公開，對警隊和國安處的損害，已是無可挽回，更嚴重的是，事件難免會影響到中央的形象，因為還有一個多月就是國安法頒布一周年，北京期待的是香港國安人員屢破大案，證明中央直接替香港訂立國安法，是英明果斷之舉，國安法周年前後，正是大事宣傳國安法成效的黃金檔期，如今香港市民談國安處即聯想到蔡展鵬，以及無牌按摩店代表的色情按摩、警黑勾結等，宣傳國安法成效自然大打折扣，中央難免震怒，少不免要整頓國安系統人事，而香港警務處長的交棒部署也要調整，過去蔡展鵬是接任警務處長的熱門人選，如今已成警隊負資產，未來處長自然要另覓人選。
+
+至於政府用國安法對付黎智英及《蘋果日報》，事件也在發展中，初步分析要點如下：
+
+1）政府用國安法檢控黎智英，證據上相當牽強，因為黎智英在國安法生效後，已停止了游說外國政府制裁香港的活動，言論上也避免呼籲國際制裁，但檢控方羅列他在國安法實施前的游說行為及支持制裁言論，試圖證明他在國安法實施後繼續原來言行，這個做法若成功，國安法變相具追溯效力，影響極其深遠。由於中央政府高度重視黎智英案，香港法院在巨大政治壓力下，很有可能會把他定罪，即使法院判他無罪，人大常委會也可以藉釋法介入，逼使法院按北京的理解把他定罪，黎智英恐怕無法擺脫長期囚禁的厄運。
+
+2）黎智英若長期被囚，他創辦的《蘋果日報》能否如常運作，繼續批評特區政府？政府目前採取的針對措施，一是挑剔土地使用毛病，質疑報社被用作黎智英私人公司或慈善基金的辦公地址，違反工業邨租約，可能取消契約收回土地，令蘋果失去印刷基地；另一針對措施是凍結黎智英名下壹傳媒股份，使其無法行使股東權利，也無法借出資金支持蘋果運營，令蘋果面對沉重的財政壓力。
+
+<figure>
+<img src="https://web.archive.org/web/20210729032119im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/搜查壹傳媒-蘋果日報-黎智英-20200811070822_11fd_large.jpg" alt="">
+</figure>
+
+3）蘋果日報據說有60萬付費訂戶，每人平均每月訂閱費約50元，假如數字屬實，則蘋果每年有3億6千萬元經常性收入，即使失去印刷基地，被迫停止印報紙，亦可專注營運網上媒體，其訂閱收入足可支持一支有數百人的新聞隊伍，即使網站受黑客攻擊，也可藉Facebook、YouTube等國際科技平台發布新聞，政府要封殺蘋果，客觀上有莫大困難。
+
+4）政府近日提出要就假新聞立法，相信就是針對蘋果這類政府視為敵人的媒體，以刑事法律來箝制這些媒體，阻止或報復其作出不利當權者的報道，這套法律武器，連同己訂立的國安法，醞釀中的禁起底法，將會大幅改變香港的法律環境，令新聞及言論自由一去不返。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729032119/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20210729032119im_/https://www.hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

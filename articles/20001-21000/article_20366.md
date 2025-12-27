@@ -1,0 +1,58 @@
+---
+title: "反逃犯條例修訂　加國香港移民齊心"
+date: "2019-05-07"
+last_updated: "2019-05-07 18:27:30"
+author: "麥燕庭"
+category: "眾說"
+tags:
+  - "加拿大"
+  - "逃犯條例"
+  - "港加聯"
+url: "https://web.archive.org/web/20210925034421/https://www.hkcnews.com/article/20366/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20370/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/20366/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20370/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 反逃犯條例修訂　加國香港移民齊心
+
+因為私人事務，我近兩年已停寫這博客，但港府修訂逃犯條例對香港損害太大，令我不得不放棄「兩耳不聞窗外事」的態度，重新投入「俗世紛爭」，甚至跟李柱銘等民主派前議員訪問美加四個城市，呼籲當地公民社會和政府與十三萬港人一起促請港府撤回上述修訂。
+
+加拿大多倫多是此行首站，說實話，原來的期望不高，因為起行前已獲當地朋友告知，國會約於兩星期後休會，以便進行大選，際此關鍵時刻，那有政客願意就香港事務多費唇舌，而且事涉中國香港，多談會招中國討厭，甚至憎恨，侍機報復，引起爭議，惹選民反感，失去神聖一票，那就得不償失了。在「唔做唔錯」的心態下，莫說表態，可能連會見也不願意。
+
+不過，民間的情況超出預期。
+
+<figure>
+<img src="https://web.archive.org/web/20210925034421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/加拿大-逃犯條例-港加聯-20190507175503_dd1a_large.jpg" alt="">
+<figcaption>筆者（前排左五）與李柱銘、李卓人出席「港加聯」歡迎晚宴。照片由筆者提供</figcaption>
+</figure>
+
+李柱銘、李卓人和我一行三人抵埗後隨即出席「港加聯」的歡迎晚宴，其間，我們痛陳修例將嚴重損害香港的一國兩制、法治、言論和新聞自由等港人珍視的人權，憂慮林鄭月娥班子是要把香港變成中國大灣區，令香港質變為可控的中國窗口。
+
+逾二百名與會者中，絕大部分是移民當地的港人，他們都為香港感到憂慮，問得最多的，是可以如何幫助香港解困。
+
+老實說，逃犯條例的修訂雖然會影響他們，但那機會畢竟較微；然而，他們卻是情真意切的，我們也希望他們向所屬選區的議員反映，促請議員向政府施壓，要求港府撤回修訂。
+
+#### 就此，一名旅居海外的加籍港人提出一個新鮮滾熱辣的貼地方法：促請在香港工作或居住的三十萬名加拿大人，利用加國新例賦予他們的海外投票權，以手上一票，要求所屬選區的候選人就修例發出反對聲音，以保障他們在港的利益不受損害、讓他們毋須面對引渡而失去的人身自由。這三十萬名新選民，將是國會議員候選人的競逐對象，他們的共同聲音將對議員和政府有一定影響力。
+
+而更令我們鼓舞的，是加國兩份深具影響力的主流報章就反對修例撰寫社論。
+
+我們一行三人在當地時間6日分別與《環球郵報》（Globe & Mail）和《星報》（The Star）的社論撰寫團隊會晤，深入解釋草案的遺害。交流中可以感覺到他們對如何拿捏發聲的尺度頗為謹慎：既要保護在港加拿大人的利益和人身自由，但又怕建議觸動中方神經，遭受報復。畢竟，對於一個有兩名國民被中國報復性地扣押、另外兩名國民被判定死刑的國度看來，有此憂慮，無可厚非！我當時憂慮，兩份大報不願就此撰文，評論引渡修例。
+
+出乎意料地，兩份大報在當天下午和傍晚已先行在網上發表於翌日報章發表的社論。《星報》的立場非常鮮明直接，大字標題說：〈渥太華應當抗議中港引渡條例〉（ [Ottawa should protest Hong Kong-China extradition law](https://web.archive.org/web/20210925034421/https://www.thestar.com/opinion/editorials/2019/05/06/ottawa-should-protest-hong-kong-china-extradition-law.html) ）；而《環球郵報》社論則以〈勿讓中國削弱香港的自由和法治〉（ [Don't let China undermine freedom and the rule of law in Hong Kong](https://web.archive.org/web/20210925034421/https://www.theglobeandmail.com/opinion/editorials/article-dont-let-china-undermine-freedom-and-the-rule-of-law-in-hong-kong/) ）為題，指出中國人權紀錄劣績斑斑，促請渥太華與美國華盛頓和歐洲盟友支持「反對引渡修例美加團」的訴求，迫使中國放棄修例，並令北京政府明白，港人仍是自由世界的成員，他們未被世界遺忘，捍衛路上，不會蝺蝺獨行。
+
+在面對中國市場的強大經濟誘因和可能受到報復的巨大壓力，兩份報章選擇為正義的訴求發聲，不單彰顯了西方傳媒的風骨，亦突顯新聞和言論自由的可貴！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925034421/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 麥燕庭](https://web.archive.org/web/20210925034421im_/https://www.hkcnews.com/uploads/avatars/6996e456-b677-4d16-867d-23a732f6fd37.png?1473147151)
+
+**博客 | 麥燕庭**
+
+【麥燕庭・我係O世代】入行超過三十年，做過報紙電台，搞過記協。論出生年齡，不可能是Y世代，X世代的定義又人言人殊，於是自稱O(LD)世代，因為論年紀，確羞於像官員年逾六十仍「被年輕有為」 -- 雖然也絕非老氣橫秋之輩；講行事，則以老一輩的記者為楷模，講專業、重責任。只望這個O，不會最終變成O(UT)。

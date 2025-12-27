@@ -1,0 +1,78 @@
+---
+title: "麟洋奪東奧男雙金牌「獻給台灣」　大陸網民稱央視掠過頒獎、狂罵中國組合表現"
+date: "2021-08-01"
+last_updated: "2021-08-01 05:07:16"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "羽毛球"
+  - "金牌選手"
+  - "兩岸關係"
+  - "東京奧運"
+  - "李洋／王齊麟"
+url: "https://web.archive.org/web/20210919172150/https://hkcnews.com/article/43879/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43883/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43879/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43883/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 麟洋奪東奧男雙金牌「獻給台灣」　大陸網民稱央視掠過頒獎、狂罵中國組合表現
+
+台灣羽毛球「聖筊組合」李洋／王齊麟首次參加奧運就直闖金牌戰，擊退中國「雙塔組合」，也讓中國選手史上首次在頒獎台上見證台灣以「奧會模式」升起的中華奧會旗及國旗歌；麟洋配賽後在臉書發帖高喊：「我們麟洋讓世界看見台灣了」，李洋更稱，「將最高榮耀獻給我的國家——台灣」。
+
+這場比賽觸動中國敏感神經，大陸網民稱中央電視台略過頒獎儀式不播，並指央視每日賽事回顧報導，也未播出雙塔奪銀畫面；網民更湧入微博痛批這對組合「對手是台灣，能不能有點志氣。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919172150im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/劉雨辰／李俊慧-李洋／王齊麟-東京奧運-20210731230813_1e0e_large.jpg" alt="">
+<figcaption>台灣選手李洋／王齊麟奪下金牌，首次讓中國選手（左邊）同台觀看會場升起「中華台北」會旗、聆聽台灣「國旗歌」旋律。美聯社</figcaption>
+</figure>
+
+為台灣勇奪羽毛球史上首面獎牌，而且一得就是金牌的李洋／王齊麟，得勝後經常以一仰、一俯姿勢示眾，有如台灣民眾求神問卜得出好結果的「聖筊」，連台灣總統蔡英文都稱兩人為「台灣的聖筊組合」。
+
+麟洋平時在個人臉書就不忘強調「要讓世界看到台灣」；31日以直落二擊敗中國李俊慧／劉雨辰後，更不忘強調自己來自台灣，並在頒獎時，刻意不讓手中持的鮮花擋住上衣「中華台北」Logo，就是要讓全世界看到以「中華台北」名義參賽的台灣。
+
+<figure>
+<img src="https://web.archive.org/web/20210919172150im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/金牌選手-羽毛球-東京奧運-20210731213420_21f7_large.jpg" alt="">
+<figcaption>「麟洋組合」為台灣奪下第一面羽毛球奧運金牌。美聯社</figcaption>
+</figure>
+
+[26歲的王齊麟先在臉書發帖稱](https://web.archive.org/web/20210919172150/https://www.facebook.com/ChiLin0118/posts/217547186965930) ，「我們麟洋讓世界看見台灣了！我們麟洋真的做到了！！！再次向全世界大聲的自我介紹，我是台灣羽球選手王齊麟」。該帖文一出，才2個多小時已有約55萬個讚與心情，許多網友留言同感「真是台灣的驕傲」。
+
+來自金門、25歲的 [李洋隨後也在臉書發帖](https://web.archive.org/web/20210919172150/https://www.facebook.com/leeyang0812/posts/234366775356579) 敘說自己心情，「看著我們中華台北的旗子升起，唱著我們中華民國的國旗歌，內心的感動和激動無法言喻；今天，我要很驕傲的再次告訴大家：我是李洋，我是金門人，我來自台灣！我們麟洋讓世界看見了臺灣；謝謝所有支持我們，幫助我們，為我們一路加油的所有人，這份奧運殿堂上最高的榮耀，獻給我的國家——臺灣，並與所有支持我們的人分享。」許多網友留言說「看了真的感動到哭。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919172150im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/東京奧運-羽毛球-金牌選手-20210731224341_9e2e_large.jpg" alt="">
+<figcaption>麟洋組合在勝利後經常做出一俯、一仰的動作，有如台灣求神問卜得出好結果的「聖杯（聖筊）」。眾新聞製圖</figcaption>
+</figure>
+
+相較於麟洋獲得台灣民眾全心封為「台灣之光」的榮耀，中國雙塔李俊慧、劉雨辰奪得銀牌，下場卻截然不同，中國網民湧入微博開砲，有人稱「我從不苛責運動員，但羽毛球男雙這對一定要罵。技不如人不丟人，但不能輸得這麼窩囊，這是奧運會決賽，對手是台灣，能不能有點志氣，一副沒睡醒的樣子。」
+
+網民對於比賽直落二的賽果，顯然非常不滿意，有人稱「這才叫中國國辱，這倆太丟人了，以至於人家蹂躪完，還要在我們頭上拉屎，我們都沒臉擦」，另有網民稱這場比賽「稀爛」、「在世界頂級賽場上消息比賽被罵死也是活該」、「這場比賽你們到底在打什麼？完全沒狀態，毫無鬥志，第二局甚至感覺到你們已經不想打了。看得真窩火！」
+
+除了評論選手表現，也有網民觸動敏感的政治神經：「中國羽毛球男雙輸給中國台灣，兩個對手竟然是台獨」；也有網友表示，「台灣贏就是中國贏，根本不該有這場比賽，我們應該主動拒絕和台灣打，贏了台灣難道就光榮，那不就是自己人嗎？一開始就應該拒絕這一切。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919172150im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/金牌選手-李洋／王齊麟-東京奧運-20210801013058_16bd_large.png" alt="">
+<figcaption>有大陸網民稱央視連男雙頒獎儀式都不播了。</figcaption>
+</figure>
+
+至於轉播比賽過程，也有網民發現不對勁，並留言稱，「央視估計也是氣得頒獎儀式都給掐了沒播」；網民也把氣出在轉播解說員身上，批解說員到底是為台灣或是為中國，口口聲聲「麟洋配」，就不提中國選手。
+
+另有大陸網民對央視報道表達意見，在留言大笑「看出官方的態度」，稱央視報導今天奧運戰績時，今天出場的中國選手全部有視頻影像報道，包括沒出線的女排、得第7名的女子橄欖球、跳遠未進決賽的男選手，「獨獨！獨獨羽毛球男雙決賽，兩個台全部都是一句話報道，一個視頻畫面都沒給！銀牌都不給畫面！」
+
+中國騰訊上月23日在轉播奧運開幕儀式時，在「中華台北」出場到一半時，直接將畫面切掉，轉到脫口秀畫面，因此也切掉排在後面進場的中國隊畫面，氣得網民批評「等一個晚上，竟等不到中國隊畫面」。
+
+<figure>
+<img src="https://web.archive.org/web/20210919172150im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/中國國旗-中華台北-東京奧運-20210801050312_1a4a_large.jpg" alt="">
+<figcaption>東京奧運羽毛球男雙頒獎禮，現場升起「中華奧會」會旗，奏起「國旗歌」旋律。美聯社</figcaption>
+</figure>
+
+台灣自1971年退出聯合國後，受中國強調「一個中國」政策，原本會籍陸續遭取消，以致運動員無法參賽；台灣後來在1981年由中華奧會與國際奧會簽訂「洛桑協議」，改以「中華台北」名義的「奧會模式」參加奧運及各項國際賽事，明訂會場不得出現中華民國國旗，只能使用「中華奧會」會旗，奪得金牌演奏的也是「國旗歌」旋律；今天麟洋組合現場升起的，就是「中華奧會」會旗，也只能聽到「國旗歌」旋律。
+
+不過，李洋／王齊麟奪下的這面金牌，也成了奧運史上首次中國選手與台灣選手同台領獎，卻只能看著頒獎台上升起「中華奧會」會旗、奏起「國旗歌」旋律的歷史畫面。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919172150/https://hkcnews.com/aboutus/#subscribe)

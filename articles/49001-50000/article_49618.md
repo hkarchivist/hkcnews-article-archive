@@ -1,0 +1,63 @@
+---
+title: "李田田事件　官方沉默5天首通報：自己同意入院　聲援者列舉家人說法疑點"
+date: "2021-12-24"
+last_updated: "2021-12-24 19:10:31"
+author: "中國組記者徐文傑"
+category: "眾聞"
+tags:
+  - "情緒病"
+  - "眾新聞中國組"
+  - "李田田"
+url: "https://web.archive.org/web/20220518041232/https://hkcnews.com/article/49618/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49620/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49618/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49620/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 李田田事件　官方沉默5天首通報：自己同意入院　聲援者列舉家人說法疑點
+
+<figure>
+<img src="https://web.archive.org/web/20220518041232im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/李田田-20211224184720_29f1_large.jpg" alt="">
+<figcaption>官方終於在5天之後打破沉默，今早首次通報李田田事件，講述入院過程，強調她是同意。</figcaption>
+</figure>
+
+  
+ 湖南懷孕教師李田田被送入精神病院事件，繼昨日(23日)社交平台流傳，聲稱是她媽媽的短片以及親姐姐的信件，官方終於在5天之後打破沉默，今早(24日)首次通報她的消息，講述入院過程，強調她是同意入院治療。而一直為她發聲的網民，撰文列舉其家人的講法的疑點。   
+   
+ 官方通報指因李田田的微博帳號發帖聲援宋庚一被網民舉報，通報稱永順縣政府的工作人員上周六(18日)到李田田家，向她及親屬了解情況，期間李田田突然情緒失控，並意圖採取過激行為，被在場人員及時制止.通報引述親屬反映：李田田2013年在讀大學期間患抑鬱症，今年4月病情加重，曾到湘西州精神病醫院檢查，之後一直請假休養治療。
+
+<figure>
+<img src="https://web.archive.org/web/20220518041232im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/李田田-20211224183915_176b_large.jpg" alt="">
+<figcaption>通報引述醫院報告指李田田確診雙相心境障礙，建議住院。</figcaption>
+</figure>
+
+  
+ 官方指星期日(19日)上午，李母及李田田任職縣教育部門的姑丈等人勸說及陪同下，李田田到精神病醫院檢查   
+ 被診斷為雙相心境障礙，即是患者會出現抑鬱和躁狂的狀態，建議住院。官方又指李田田是在親人和醫生反覆勸說下，同意入院治療，但情緒一度反覆，經治療及安撫疏導，病情趨於穩定。   
+   
+ 星期三(22日)中，李田田自願轉到永順縣人民醫院進一步治療，州政府指考慮她患病、懷孕，對其發表不當言論的行為，待出院後再教育勸導，而網民質疑的相關問題，湘西州已成立工作組調查。   
+   
+ 據了解昨日有律師到湖南永順縣，找到李田田母親，證實是短片中人，而李田田其中一位信任的朋友，網名「樓哥」，一直為她發聲，連日來在微信公眾號撰文，呼籲社會關注事件。樓哥在昨日李田田家人出來向公眾交代後，再對照李田田本人的版本逐一去反駁。相對於家人的輕描談寫，李田田的求救訊息就詳盡得多。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20220518041232im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/李田田-20211224183831_2c05_large.jpg" alt="">
+<figcaption>相對於家人的輕描談寫，李田田的求救訊息就詳盡得多，她明確表示「我不住院」。</figcaption>
+</figure>
+
+  
+ 李田田姐姐的微博這樣寫「縣裡工作人員也找她核實了情況」，而李田田和樓哥說星期六傍晚，姑丈和教育局的同事連同公安，七八個人強行入屋，問她是不是發了聲援宋庚一的微博帖文，如果是她發的，則是漢奸，要被槍斃，要她簽字認罪，否則會被開除，甚至拘留。   
+   
+ 而在李田田姐姐的文中提到媽媽擔心妹妹的病情，「第二天(19日)就請我在縣教體局工作的三姑父等人一起送她到醫院去檢查和治療」，不過李田田星期六晚已向朋友發訊息指，當局星期日要帶她去精神病院做檢查鑑定，而非當天才決定，又引述對方指「檢查了，這事就過去了」。訊息更加顯示，李田田早上檢查完被送回家，她明確表示不住院，到下午十多人來她家裡，強行送她去醫院住院打針。   
+   
+ 李田田姐姐的帖文沒有李田田的這部分說法，只是指妹妹同意了去醫院檢查治療，過程中她情緒有些反覆，一度比較抗拒，所以發了求助訊息，造成網友誤會，實際上沒有強制被送去精神病院。
+
+<figure>
+<img src="https://web.archive.org/web/20220518041232im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/李田田-20211224183818_30cd_large.jpg" alt="">
+<figcaption>李家人的社交平台昨日首次發布的內容，就是向公眾交代李田田的情況。</figcaption>
+</figure>
+
+  
+ 另外亦有網民質疑李母有老花，對住鏡頭辛苦念寫好的稿，讀錯了又重新再讀，她及李姐的社交帳號，都是昨天才第一次發帖，但李姐的帳號獲得新浪的金V個人認證，更有人認為只有她現身拍片，才相信她平安。   
+   
+   
+

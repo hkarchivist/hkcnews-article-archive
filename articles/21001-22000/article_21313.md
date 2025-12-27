@@ -1,0 +1,92 @@
+---
+title: "113位中學校長聯署　呼籲港府立即擱置修訂逃犯條例"
+date: "2019-06-14"
+last_updated: "2019-06-15 18:40:00"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "逃犯條例"
+  - "包圍立法會"
+  - "中學校長聯署"
+url: "https://web.archive.org/web/20210725001246/https://www.hkcnews.com/article/21313/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21338/113%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21313/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21338/113%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 113位中學校長聯署　呼籲港府立即擱置修訂逃犯條例
+
+<figure>
+<img src="https://web.archive.org/web/20210725001246im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/包圍立法會-反送中-20190612232730_73a2_large.jpg" alt="">
+</figure>
+
+百多位現任和前任中學校長，對當前香港情況感到心急如焚，以個人名義聯署，呼籲政府立即擱置修訂逃犯條例，還香港年輕人希望和愛的社會。截至15/6下午二時，我們共收集了113位中學校長（64位現任中學校長和49位前中學校長），該項呼籲將傳予特首林鄭月娥以及每一位立法會議員，呼籲內容並不代表各校長於現時或過往曾服務的學校或其辦學團體所持的觀點。
+
+以下是呼籲內容全文：
+
+### 還年輕人希望和愛   
+ 懇請港府立即擱置修訂逃犯條例
+
+過去一星期，作為中學校長，我們有著難以言諭的心痛。
+
+香港絕大部分年輕人都愛好和平。我們從傳媒和社交媒體看到年輕示威者頭破血流，聽見年輕人哭訴著不顧自己安危都要走出來只為他們愛香港這個地方，當我們閱讀到只有十五歲的示威者說著：「反正如何示威都沒用，我不如死掉算了」之時，我們的心彷如被撕裂。
+
+這些年輕人，都是香港中學即我們的學生和舊生。作為他們的師長，我們理解到年輕人的無奈與沮喪，感受到他們對前景失去希望的那種痛苦。他們憑著真心為香港付出愛，為何得到的卻是拒絕、痛擊和傷害？作為師長，我們無語，心中有淚。
+
+我們實在萬分焦急，非常擔心一旦立法會重開會議審議逃犯條例修訂草案，香港的大批年輕人又會再次湧上街頭，即使可能會被捕、被打、被子彈射擊，他們也執意要用自己的身驅去阻止法例被通過。
+
+我們也擔心，在未來日子若出現更多衝突場面，年輕人對政府的信心只會急速下滑甚至心死、對權威如警隊的怨忿只會繼續升溫甚至不能逆轉。這些，不論對年輕人的身心健康和正向成長，抑或對社會的安寧與凝聚，均百害而無一利。
+
+我們深切盼望，香港社會可以讓我們的年輕人仍然感受到愛和希望；我們深切盼望，香港社會可以重新建立融和與互信。我們懇請特區政府立即擱置修訂逃犯條例，與社會各界尋求共識或以其他方案解決當前難題；我們亦懇請全體立法會議員以香港年輕人的福祉為依歸決定取態，挽狂瀾於既倒；還年輕人希望和愛。
+
+聯署校長（包括現任中學校長及前中學校長）：   
+ （排名不分先後）
+
+
+| 劉修妍 | 陳潔貞 | 鄧振強 |
+| --- | --- | --- |
+| 李雪英 | 柳子權 | 馮瑞興 |
+| 汪曼華 | 李樂成 | 翁德文 |
+| 黃珮儀 | 歐陽家強 | 陳麗芬 |
+| 郭燕薇 | 程景坡 | 麥麗英 |
+| 黃偉耀 | 岑樹基 | 李建文 |
+| 李志霖 | 鄭思宏 | 梅浩基 |
+| 成偉邦 | 魏樹昭 | 林綺華 |
+| 張儉成 | 阮德富 | 楊美熙 |
+| 鍾妙嫦 | 李劍華 | 梁國基 |
+| 郭月娟 | 葉淑屏 | 王定鵬 |
+| 鄧錦明 | 袁彼得 | 許小光 |
+| 劉兆瑛 | 尹志華 | 陳永傑 |
+| 陳漢明 | 李盤勝 | 羅錦誠 |
+| 張欽龍 | 何振傑 | 沈立平 |
+| 藍正思 | 黃偉賢 | 趙李婉儀 |
+| 劉賀強 | 羅世光 | 曾啟文 |
+| 關愛珠 | 黃兆雄 | 張文彪 |
+| 黃堯姬 | 李白蘭 | 何應翰 |
+| 彭君華 | 葉信德 | 鄭繼霖 |
+| 鄭建德 | 温家傑 | 馮志德 |
+| 邱潔瑩 | 吳玉枝 | 羅紹明 |
+| 謝洪森 | 劉志遠 | 劉瑤紅 |
+| 溫家傑 | 何力高 | 馮潤儀 |
+| 丘志良 | 馮金燕 | 陳智聰 |
+| 馮鄭惠儀 | 陳凱茵 | 劉文輝 |
+| 李步正 | 何慧玲 | 曾啟文 |
+| 曾綺年 | 鄭嘉莉 | 關思偉 |
+| 詹燕珠 | 劉碧珊 | 劉中元 |
+| 譚華漢 | 王庭軒 | 尹浩然 |
+| 伍素雯 | 文靜芬 | 鄧蕙珍 |
+| 李立中 | 夏文亮 | 伍妙儀 |
+| 郭明英 | 徐榮耀 | 陳國權 |
+| 陳京達 | 鄭恩榮 | 何滿添 |
+| 關蕙芳 | 葉慧勤 | 王力克 |
+| 許華英 | 譚日旭 | 張文偉 |
+| 陳子良 | 林翠雲 | 嚴志成 |
+| 陳狄安 | 韓汶珊 | 周家駒 |
+| 鄧文偉 |  |  |
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725001246/https://www.hkcnews.com/aboutus/#subscribe)

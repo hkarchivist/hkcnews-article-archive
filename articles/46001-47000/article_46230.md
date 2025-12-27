@@ -1,0 +1,76 @@
+---
+title: "【施政報告沒說的】民政倡削區議會撥款權　袁海文質疑不補選本末倒置"
+date: "2021-10-06"
+last_updated: "2021-10-06 20:44:23"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "區議會"
+  - "DQ區議員"
+url: "https://web.archive.org/web/20211128183014/https://www.hkcnews.com/article/46230/dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46236/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46230/dq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46236/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【施政報告沒說的】民政倡削區議會撥款權　袁海文質疑不補選本末倒置
+
+大批區議員辭職以及部分區議員被DQ後，區議會陷入停頓狀態，但距離任期完結仍有至少2年時間，政府一直未有任何有關補選的說法。特首林鄭今日發表施政報告，同日政府向立法會提交文件，建議暫停區議會在推行社區參與計劃及地區小型工程計劃項目方面所擔當的角色，改由民政總署或民政事務處和康文署負責，在參考地區意見等，即分區委員會等提議撥款項目，再由署長監督審批撥款。
+
+林鄭今日出席記者會時被眾新聞記者問到，為何不光明正大將有關建議放進施政報告，她說有關建議「唔係大政策，依家只係supspend」，她又表示早前已說過，不存在「光明正大定係陰陰濕濕」。她形容現時區議會殘缺不全，政府要「收拾殘局」，她表示要尊重4年任期的政治體制，不會縮短其任期，「你可以想像，區議會廿幾個人，依家得返3個人，即係另外有十幾個選區無代表，呢3個人的區議會繼續點樣決定去撥款，起咩小型工程，係咪公道呢？對另外無晒代表的十幾個區內民民點交代呢？」林鄭形容這是不民主的做法，記者追問為何不進行補選，惟林鄭回應「等我講完先，好無？」及後她沒有再回應。
+
+林鄭之後說，民政事務處知道立法會即將休會，故提出解決方法，暫停區議員通過撥款，形容讓政府重掌撥款決定「更有代表性，更均衡符合個嗰區市民的利益」，她又說有關做法「並唔係收權，區議會從來都無權 ，區議會係諮詢組織。」
+
+宣誓過關的民主黨深水埗區議員袁海文直斥有關做法荒謬，「無晒區議員，你應該做嘅係補選。」他質疑過往有區議員出缺都能夠進行補選的時候，他認為可趁年底進行立法會選舉同時，以過往「超級區議會」的方式處理，技術上可行，「反而本末倒置Cut撥款，我覺得係完全倒返轉來講。」
+
+有關區議會議席空缺問題，政制及內地事務局以往回覆傳媒查詢時，一直僅重申，暫無計劃在短期內進行區議會補選。民政事務總署亦曾聲稱，根據《區議會條例》第72條，區議會議席空缺並不影響該區議會處理事務的權力，又指區議會程序的有效性亦不會受該區議席空缺影響。
+
+惟 [今日民政事務局的文件](https://web.archive.org/web/20211128183014/https://www.legco.gov.hk/yr20-21/chinese/panels/ha/papers/ha20211011cb4-1612-2-c.pdf) 卻提到，隨着區議會情況的最新發展，截至2021年10月4日，在任區議員總數已減至189人，共有14個區議會的區議員人數銳減超過一半。根據現行安排，地區小型工程計劃和社區參與計劃的項目一律須獲區議會通過。文件指出， **由於有相當大比例的區議會議席懸空，現行安排已經失效，又表示有些區議會因區議員人數不足，無法選出區議會主席，以致未能召開區議會會議。文件就引述「市民亦可能認為把其社區的福祉交由餘下的極少數區議員決定，安排有欠公允且不合情理。」**
+
+政府於2006年檢討區議會角色及職能，當中增撥資源推行社區參與計劃及地區小型工程計劃。文件提到區議會負責建議活動及審核撥款申請，但批出及運用撥款的責任則在於政府官員。
+
+政府因此建議暫停區議會於今屆任期內，在推行社區參與計劃及地區小型工程計劃項目方面所擔當的角色，即兩個項目不再經由區議會提出和通過，改為由民政總署／民政事務處（民政處）和康文署負責，在參考地區意見後，提議值得由該兩項計劃撥款推行的項目。而該兩項計劃的涵蓋範園和撥款準則將維持不變，而署長會繼續監督審批撥款申請的工作，並確保公帑按既定撥款機制審慎運用。
+
+修訂後，社區參與計劃方面，各區民政處／民政總署和康文署會直接向有關機構發放撥款，或舉辦具地區特色的項目和受歡迎的節慶活動，以及文化，藝術和康樂活動，以促進地區和諧。將獲撥款資助的項目包括指定的慶祝活動（即香港回歸紀念日和國慶日的慶祝活動，以及新春酒會）和其他地區盛事（如龍舟競渡，廟會及區節）。至於其他獲社區參與計劃撥款資助的活動，將由相關民政處把所需經費發放給地區組織（即分區委員會，地區撲滅罪行委員會和地區防火委員會）。
+
+至於地區小型工程計劃，民政處則會透過不同渠道（例如諮詢地區組織，分區委員會及區議員）收集社區意見，從而敲定能惠及社區的小型工程項目，並根據機制，最後交由署長或獲授權力人員審批撥款。
+
+<figure>
+<img src="https://web.archive.org/web/20211128183014im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/區議員-區議會-油尖旺區-20210430190720_204f_large.jpg" alt="">
+<figcaption>政府於2006年檢討區議會角色及職能，當中增撥資源推行社區參與計劃及地區小型工程計劃。資料圖片</figcaption>
+</figure>
+
+袁海文表示，若當局暫停區議會在推行兩項計劃的角色，基本上沒有任何撥款須通過，「基本上無晒區議會可以審批的錢，（區議會還可以做甚麼？）反映意見囉，但你問我，本身個權都唔多㗎啦。地區小型工程計劃本身只係起避雨亭，或者行人路上蓋最多50米，100、200米已經頂晒籠，咁嘅限制你都拎走埋，其實係好唔尊重地區意見。」至於社區參與計劃方面，袁海文舉例，他早在去年10月已在深水埗區議會，建議撥款通過「深水埗區病人權益調查」，但一直被當局拖廷審批，「你見到純民生，無任何政治成份的，都被拖廷，其實都好唔合理」。
+
+
+| 截至今天，18區議會剩餘議席如下 |  |
+| --- | --- |
+| 中西區 | 3人 |
+| 東區 | 6人 |
+| 南區 | 3人 |
+| 灣仔區 | 5人 |
+| 九龍城區 | 12人 |
+| 觀塘區 | 16人 |
+| 深水埗區 | 18人 |
+| 油尖旺區 | 7人 |
+| 黃大仙區 | 2人 |
+| 離島區（未宣誓） | 15人 |
+| 葵青區（未宣誓） | 12人 |
+| 北區（未通過宣誓） | 11人 |
+| 西貢區（未通過宣誓） | 12人 |
+| 沙田區（未通過宣誓） | 18人 |
+| 大埔區（未通過宣誓） | 11人 |
+| 荃灣區（未宣誓） | 10人 |
+| 屯門區（未宣誓） | 15人 |
+| 元朗區（未宣誓） | 23人 |
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128183014/https://www.hkcnews.com/aboutus/#subscribe)

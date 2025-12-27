@@ -1,0 +1,53 @@
+---
+title: "內地12省市受沙塵暴侵襲　氣象部門指範圍近10年最廣泛"
+date: "2021-03-15"
+last_updated: "2021-03-16 12:04:03"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "北京"
+  - "北京市"
+  - "沙塵暴"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20220117075516/https://hkcnews.com/article/39281/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/39281/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39332/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 內地12省市受沙塵暴侵襲　氣象部門指範圍近10年最廣泛
+
+(報道於片段7:33)
+
+
+{{< video src="https://web.archive.org/web/20220117075516if_/https://www.youtube.com/embed/6z_AAH31WLA" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20220117075516im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/沙塵暴-北京人-20210315165522_2fe0_large.jpg" alt="">
+<figcaption>沙塵暴下的故宮角樓(中新社圖片)</figcaption>
+</figure>
+
+首都北京、內蒙古、新疆、甘肅等12省市受到沙塵暴侵襲，內地氣象部門指，是近10年遭遇最強的一次沙塵天氣過程，沙塵暴範圍也是近10年最廣泛，達到強沙塵暴級別，由衛星觀測，沙塵面積達到46.6萬平方公里。
+
+其中在北京，天安門廣場上空被土黃色籠罩，故宮角樓、鳥巢、央視總部大樓等地標全部彷似加了濾鏡般，「睡醒一出門天都是黃的，全都是黃的，很黃很黃，像老古照片，我在北京都十來年了，我感覺這一次是很嚴重很嚴重的。」有北京司機如此形容今早看到的景況。
+
+<figure>
+<img src="https://web.archive.org/web/20220117075516im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/沙塵暴-北京人-20210315165501_1d05_large.jpg" alt="">
+<figcaption>央視總部大樓被沙塵籠罩(美聯社圖片)</figcaption>
+</figure>
+
+除了通州區外，北京其餘15個區全部都受沙塵暴侵襲，中午前大部分地區，能見度低於一公里。空氣亦嚴重污染，彌漫著土腥味，有市民描述社交媒體上大家都戲稱出門如吃土，「咱們同事有抽煙的，說回來以後嗓子難受。」有北京居民說被這股味道嗆醒，在沙塵核心區域PM10濃度一度高達每立方米近10000微克，當局亦發出沙塵暴黃色預警信號。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20220117075516im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/北京人-沙塵暴-20210315165713_27dc_large.jpg" alt="">
+<figcaption>首都北京絕大部分地區今早都遭受沙塵暴侵襲(中新社圖片)</figcaption>
+</figure>
+
+內蒙古包頭市今日（15日)緊急停課，中央氣象台分析這次沙塵暴的起因是蒙古國及中國西北地區近期氣溫偏高，加上新疆甘肅內蒙古等地有6到8級陣風。非常有利沙塵天氣形成。
+
+中國治沙多年，在北方栽種不少防護林，外界質疑為何無法阻擋沙塵暴吹襲？中國氣象局環境氣象中心主任張碧輝這樣解釋：
+
+「相比這種比較強的天氣過程，(防護林)影響的強度是非常弱的，所以防護林對局地的大風減弱有一定作用，但是像今天這種非常強系統性的大風天氣非常有限的。」
+
+《環球時報》引述專家指要杜絕沙塵天氣，根本要解決沙源的問題，但牽涉到全球環境治理合作，不是只依靠中國治沙防沙工程，就不會有沙塵暴的災害。報道又引述另一位專家任國玉表示，防護林決定性因素，真正的決定性因素是大自然，「老天爺不給面子，主要不是人類活動的問題。」

@@ -1,0 +1,46 @@
+---
+title: "主動應對疫情　新加坡推居家教學網上學習"
+date: "2020-04-09"
+last_updated: "2020-04-12 21:02:27"
+author: "特約記者彭碧珊"
+category: "眾聞"
+tags:
+  - "新加坡"
+  - "singapore"
+  - "星加坡"
+  - "武漢肺炎"
+  - "網上學習"
+url: "https://web.archive.org/web/20220812234436/https://www.hkcnews.com/article/28791/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28847/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/28791/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28847/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 主動應對疫情　新加坡推居家教學網上學習
+
+隨著新冠肺炎疫情大流行，新加坡展開「斷路器」（circuit breaker）行動，於本月7日起至5月4日關閉工作場所和學 校，以阻斷新冠肺炎在社區傳播。新加坡教育部則未雨綢繆，早於學校關閉前，已推出網上平台「學生學習平台」（Student Learning Space, SLS），上周起全國師生試行一周一天居家學習，昨日開始全面實施， 學生每天花2小時網上學習，課後完成由學校預先提供的作業，涉及學生超過35萬人 。
+
+<figure>
+<img src="https://web.archive.org/web/20220812234436im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/新加坡-網上學習-20200409211427_2651_large.jpg" alt="">
+</figure>
+
+新加坡昨日新增142宗確診感染個案，為單日最大增幅，累計個案增至1623宗，死亡個案為6宗。
+
+為了實施更嚴格的社交距離安全，教育部配合國家政策，上月27日宣布，自4月1日開始，要求所有中小學及初級學院試行一周內網上教學一天，學生於星期三進行網上學習，中學定在星期四，而初級學院及高中則定在星期五 。
+
+然而，疫情日漸嚴峻，新加坡總理李顯龍4月3日發表全國電視講話，強調不會鎖國，但會採取更嚴格的措施收緊管制，包括宣布關閉學校及學前教育中心：「這好像一個斷路器，有助減低發生（疫情）大爆發」，居家學習的措施由8日起全面展開，直到下月4日為止，涉及的學生人數，包括20多萬小學生及15萬多個中學生。
+
+據《海峽時報》報道，教育部長王乙康表示，學校已為學生及家長提供使用居家學習教材指引，並為學校提供居家學習的教學資源，以及提供3300部手提電腦予未有數碼器材的學生。該部門亦會與社會及家庭發展部緊密合作，對低收入家庭的學生提供經濟及其他支援，當地網絡供應商亦會資助相關學生上網費用。
+
+就無法在居家學習時為學童找到看顧者的家庭，如雙職父母，學校將會繼續開放，教師會在場協助監督學生。
+
+教育部近日推廣居家學習的注意事項，如限時上網， 避免接收不良資訊及上網成癮等，此外，亦在 [Facebook分享](https://web.archive.org/web/20220812234436/https://www.facebook.com/ moesingapore/) 教師的網上教學經驗，並公開一位小學中文老師的聽、說、讀、寫網上教材，讓公眾參考。
+
+<figure>
+<img src="https://web.archive.org/web/20220812234436im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/新冠肺炎-新加坡-網上學習-20200409211506_1dae_large.jpg" alt="">
+<figcaption>照片來源：新加坡教育部Facebook</figcaption>
+</figure>
+
+李老師每兩星期教授小一學生中文，她妙用看圖遊戲、錄音功能和留言功能，讓學生輸入閱讀理解的答案，又鼓勵學生將指定生字的讀音錄下來，同學們可以互相聆聽對方讀音，正確的話，可以在各人屏幕圖象下，留下正確評語，拉近師生距離。
+
+她說：「透過學生學習平台，學生可以自己學習，老師亦可以對有需要的學生提供實時建議，這有助教師按每位學生表現提供合適的教學方式。」
+
+教育部強調，居家學習不全是網上學習，電子教學只是居家學習的一部份，學生每天上網學習時間為兩小時，下線後需要完成學校預先提供的作業。

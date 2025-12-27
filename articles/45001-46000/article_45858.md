@@ -1,0 +1,44 @@
+---
+title: "【宣誓存疑】2議員公開政府提問及反駁　朱江瑋 : 質疑宣誓動機可無限上綱"
+date: "2021-09-27"
+last_updated: "2021-09-27 14:53:40"
+author: "實習記者郭日朗"
+category: "眾聞"
+tags:
+  - "區議員"
+  - "胡穗珊"
+  - "朱江瑋"
+url: "https://web.archive.org/web/20221001110838/https://www.hkcnews.com/article/45858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【宣誓存疑】2議員公開政府提問及反駁　朱江瑋 : 質疑宣誓動機可無限上綱
+
+<figure>
+<img src="https://web.archive.org/web/20221001110838im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/朱江瑋-胡穗珊-區議員宣誓-20210927140627_cf26_large.jpg" alt="">
+<figcaption>油尖旺區議員胡穗珊、朱江瑋在提交回覆前召開記者會，公開政府的提問信件及反駁。郭日朗攝</figcaption>
+</figure>
+
+九龍區五個區議會共 56 名區議員於日前宣誓，政府對其中10名區議員宣誓的有效性存疑，已發信要求提供額外資料。今日（9月27日）是答覆的最後限期，油尖旺區議員胡穗珊、朱江瑋在提交回覆前召開記者會，公開政府的提問信件及反駁。
+
+兩位議員的提問信中都被問及在社交媒體或議員辦公室中，有展示「光復香港，時代革命」口號，而胡穗珊則有被問及在社交媒體中發佈有關初選義工招募的帖文，民政局亦借此質疑兩位如何符合擁護《基本法》、效忠特區的法定要求。
+
+<figure>
+<img src="https://web.archive.org/web/20221001110838im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/區議員宣誓-胡穗珊-朱江瑋-20210927140620_1fc6_large.jpg" alt="">
+<figcaption>政府給兩位議員的提問信件。郭日朗攝</figcaption>
+</figure>
+
+朱江瑋表示「光復香港，時代革命」的旗幟是一位巿民送贈的，掛在辦公室內直至 2020 年 6 月為止，掛出只是感謝及回應該名巿民。而自 2020 年 7 月 1 日國安法在香港實施後，他意識到口號和旗幟可能違反國安法，所以已除下有關旗幟並且指示議辦職員刪除在社交媒體上出現「光時」字句的帖文。
+
+胡穗珊則表示，社交媒體的相關內容是於 2020 年 7 月 1 日國安法在香港實施之前發出，自己亦從不同意信中提及的口號含有「港獨」、或將香港特區從中華人民共和國分離出去、非法改變特區的法律地位、或顛覆國家政權的含意。她認為此口號為當時社會氣氛中得到普遍認同的口號，是代表港人對於昔日的生活模式，以及相對自由，以及有民主選舉的社會的懷念及肯定。
+
+對於初選，她表示自己只是因眾多區內居民查詢有關民主派初選事宜，並表示希望擔任義工，她才協助轉發義工招募訊息。她亦表示純粹提供資訊並不構成組織初選，她亦沒有參與組織初選，從未參與討論任何有關初選過程及目的。她亦認為初選純粹是一個讓區內居民表達支持意向，作為參考意見的民意調查。
+
+<figure>
+<img src="https://web.archive.org/web/20221001110838im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/區議員宣誓-朱江瑋-胡穗珊-20210927140631_2059_large.jpg" alt="">
+<figcaption>二人均表示不抱有太大期望去令政府信服自己宣誓有效。郭日朗攝</figcaption>
+</figure>
+
+朱江瑋表示不抱有太大期望去令政府信服自己，他亦表示政府質疑宣誓動機是可以無限上綱，他形容這是一個恐怖的狀況。比起議員被DQ，政府無限追溯的情況更為重要。   
+   
+ 胡穗珊亦重申自己並不支持港獨及否定特區政府法定地位。她亦強調，對政府的施政或執政的方式有異議，不等於否定一個政府的法定地位，她表示這種連帶關係是粗暴及不合理的。胡穗珊表示，現時很多記者收集不同人的回覆，期望可以總結一條紅線，但實際上是總結不了的，她表示現在政府的做法是先定了一個人為目標，再搜尋蛛絲馬跡，再為自己設計。

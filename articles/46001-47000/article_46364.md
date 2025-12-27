@@ -1,0 +1,120 @@
+---
+title: "職工盟解散致獨家課程後繼無人　學員：環境再壞都要笑着面對"
+date: "2021-10-16"
+last_updated: "2021-10-16 11:40:55"
+author: "記者郭日朗"
+category: "眾聞"
+tags:
+  - "職工盟"
+  - "職工盟解散"
+url: "https://web.archive.org/web/20211127114142/https://hkcnews.com/article/46364/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46565/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46364/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46565/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 職工盟解散致獨家課程後繼無人　學員：環境再壞都要笑着面對
+
+為工運打拼31年的職工盟月初正式解散，連帶成立了27年的職工盟培訓中心也被迫劃上句號，在今個月末完成課程就要曲終人散。中心多年來培育各行各業的技術人員，突然被迫停運，除了導師和學員受影響，更可惜的是職工盟獨有的培訓班例如太陽能板、輪椅維修等課程都要絕跡，這些手藝未必能夠承傳下去。曾修讀職工盟輪椅維修課程的李錦昌，對此門技術要消失感到不捨，但他鼓勵「香港人自己唔好睇死自己。」又說職工盟學員各散東西，但最緊要是人有理想，有心做自己想做的事。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011065951_2e79_large.jpg" alt="">
+<figcaption>維修課學員李錦昌展示自己手術後的傷口照片。郭日朗攝</figcaption>
+</figure>
+
+  
+ 「我死過兩次㗎啦」李錦昌輕描淡地道出逃出鬼門關的經歷，他幾年前因為心肌梗塞，被送進醫院。他憶述自己心臟曾經停過兩次，而心臟現時只剩下35%的功能。他指着小腿至大腿長且深的疤痕，娓娓道來這次「死過翻生的經歷」後，回到病床上的那一刻，心裏最想的就是幫助人。他住院時看到很多病人需要使用輪椅，心裏不禁想怎樣才能幫到其他人。手術康復過後，他碰巧看到職工盟有「電動及手動輪椅維修助理基礎證書」課程，便毫不猶豫報名參加。
+
+這個輪椅維修班是職工盟獨有課程之一，李錦昌覺得維修班除了令他學到技能外，更重要是被維修班導師黎Sir 耳濡目染下，比以前更想幫助人。他記得有一次他和幾個人一起「由無到有」地製作一張給老人家的「沖涼床」(可讓行動不便老人在躺在床上洗澡的設備)，而院舍接收了「沖涼床」，讓老人家使用，他滿足地說：「成班人圍威喂咁整一件嘢出嚟係好開心。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011072544_1552_large.jpg" alt="">
+<figcaption>李錦昌因白內障已有一年多沒有維修輪椅，但技巧依然熟練。郭日朗攝</figcaption>
+</figure>
+
+對於課程的安排，李先生大讚職工盟，他指職工盟除了請導師黎sir教他們維修技術，還邀請了護士、社工和社會福利署職員到課堂分享，學員除了學習維修輪椅外，也讓他們學到如何在工作時幫助輪椅人士，例如如何協助病人從輪椅扶去另一張輪椅，如何推輪椅上落小梯級，「我覺得職工盟做得最好就係呢樣，佢教到你之餘，仲俾到有用資訊你。」
+
+李先生畢業後，經職工盟的轉介到香港耀能協會工作，但工作期間發現自己的視線越來越模糊，及後發現原來有白內障，因為維修需要操作器械，在協會工作了3個月的他也被逼停工。他卻十分豁達，「其實無遺憾㗎，況且我依家學到呢門手藝呢，我喺出面都可以幫到人㗎。」現在他雖然沒有再在耀能工作，但身邊朋友有需要維修，他都會義務幫忙。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011072601_2c23_large.jpg" alt="">
+<figcaption>李錦昌對於曾經就讀的學校要停運，感到不捨。郭日朗攝</figcaption>
+</figure>
+
+當他聽到職工盟解散的消息，他第一反應是十分愕然，因為他覺得職工盟不是一個政治組織，而是一個公益團體。他報讀輪椅維修班時，剛好碰上2019年的反修例運動，他還記得職員和導師都會告訴學員，在課堂上盡量不要講述自己的政治立場。他到現在也不太明白職工盟為何要解散。感到十分不捨，「我覺得職工盟真係做得好好。」他又提及前主席吳敏兒及李卓人，「真係幫到市民做嘢，感謝他們為工人發聲。」他表示，舉辦輪椅維修班的機構只有職工盟，相信日後懂得維修輪椅的人會越來越少。   
+ 他慨嘆：「依家嘅香港只可以過得一日得一日。」但他用自身經歷鼓勵港人：
+
+> **啲人成日問我個心得35%點捱，但我話已經好好㗎啦！仲有35%，仲跳得。環境咁壞，點解唔笑住過呢？**
+
+
+他用同一心態面對工盟解散，認為職工盟解散也不要緊，最緊要是人有理想，有心做自己想做的事，「香港人自己唔好睇死自己。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011064922_234b_large.jpg" alt="">
+<figcaption>黎Sir在職工盟培訓中心已經教了2 年。郭日朗攝</figcaption>
+</figure>
+
+李錦昌口中的恩師，是職工盟輪椅維修班的導師 - 黎錦新，人人都稱他做「黎Sir」。黎Sir 自小培養了電子機械的興趣，修讀機電專業，也做過機械維修技師，他年輕時已有機電工程的知識和經驗。不幸地， 10多年前他因病導致脊髓受損，需要坐輪椅，令他開始關心輪椅維修的需要，更以自己的專長在不同的慈善機構幫忙維修輪椅。他憶述有一次，有一位老人家在街上看到坐輪椅的他，突然詢問他在哪裏可以維修輪椅，原來老人家的輪椅在家門外被人弄壞了，但賣輪椅的商店，不懂修理，也不知道要到哪裏修理，他亦不捨花錢買一部新的輪椅。黎Sir看到老人家竟為維修輪椅的途徑而詢問陌生人，他慨嘆香港真的很少人懂得維修輪椅。
+
+職工盟亦深明此道理，認為要培訓更多人懂得維修輪椅，可以幫到更多基層殘疾人士，維修代替購買新輪椅。職工盟在機緣巧合下知道黎Sir擅長維修輪椅，就請他在職工盟培訓中心開班任教，一拍即合，黎Sir至今已當做導師兩年，他表示自己是香港唯一註冊的「電動及手動輪椅維修助理基礎證書」課程導師，而職工盟亦是香港唯一一個開辦這個課程的機構。他笑言課程雖然名為「輪椅維修助理」，但實際也不只教他們做助理，課程中學員能夠學到如何維修電動、手動輪椅，還有護理床，「大便椅」，「沖涼床」等等護老院常用的設備，他自豪地說「所有學員都可以獨立出來做維修工作。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011064935_52c1_large.jpg" alt="">
+<figcaption>對於培訓中心的結束，黎Sir都感到十分可惜。郭日朗攝</figcaption>
+</figure>
+
+黎Sir亦有「特別的教學技巧」，他喜歡在考試前叫一批學員將輪椅完全拆掉，再叫另一批學員把輪椅還回原狀，他形容這種訓練比培訓局的考試更加嚴格，學員能夠盡早適應考試的臨場壓力，更能讓學員應對未來各類型的「奇難雜症」。
+
+被問及培訓中心的結束，對他有甚麼影響，他只淡淡然地說「對我嚟講影響就唔大，有得就必有失嘅。」但他相信培訓中心的結束對社會的影響就很大，因為社會對於職業技能培訓的需求十分大，中心的結束，對工友來說少了一個學習的機會，同時亦少了很多選擇。況且學員亦反映培訓班做得很好，他都感到十分可惜。
+
+他坦言明白職工盟在這特別時期的抉擇，但他強調，課堂上完全沒有觸及政治觀點，亦沒有以顏色分辨學員， 黎Sir 亦會建議同學不要在課堂上討論政治議題，因為大家來培訓中心都是為了學習，沒必要為政治而吵架。他表示即使不同政見的同學在畢業之後都會一起交流。他形容現在培訓班被「一棍打死曬，全部停曬」，對學員與大眾也是無益處。他期盼職工盟未來可以與培訓局聯繫，如何延續課程。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟-職工盟解散-20211011064903_246c_large.jpg" alt="">
+<figcaption>黎Sir 向李凱講述自己對中心停運感到可惜。郭日朗攝</figcaption>
+</figure>
+
+訪問過後，黎sir得悉記者隨即跟李凱做訪問，黎Sir立刻表示要去找李凱聚一聚舊。李凱是 職工盟培訓中心副行政總監，他 在2003年畢業後便加入職工盟，最初是參與工會爭取最低工資運動，而歷時9年政府終於在2012年立法訂立最低工資，而他亦覺得「歷史任務完成」。剛好，當時職工盟培訓中心有空缺，便轉到培訓中心工作，一直到現在。
+
+李凱表示，除了爭取工人權益，工人最需要的，便是一技旁。因為很多行業的技術都日新月異，例如清潔、園藝、樹藝等，技術也需要不斷更新。而且有很多工友會因為失業而不停轉工，所以課程是讓工友做轉職的「踏腳石」。
+
+服務工友多年，令他最深印象的是一位失明學員。職工盟本身沒有開設為失明人士而設的咖啡師課程，所以那名學員就在一般的咖啡師課程學習。他憶述那名學員在開始上堂時是有點吃力，但所有學員會一起協助他，導師亦特別為他想出一些教學方法， 例如用手感受一下溫度，用一些輔助語音工具協助他， 那名學員最後也順利完成課程，畢業後更在咖啡店工作。 他覺得這些學員和導師的互相幫助令他十分感動，更體現出課程的意義和價值。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011064838_1bab_large.jpg" alt="">
+<figcaption>李凱作為石籬校舍的「開荒牛」，亦有很深感受。郭日朗攝</figcaption>
+</figure>
+
+與李凱做訪問地點，正是職工盟召開解散記者會的培訓中心石籬校舍。對李凱來說這個地點有多一重意義。因為校舍是教育局2013年開始批給職工盟作培訓中心，李凱是當時剛剛轉到培訓中心工作，所以李凱算是石籬校舍的「開荒牛」。石籬校舍前身是一間荒廢校舍，所以也有很多問題，例如水電渠都要處理，他笑言校舍男廁一開始「全部都係屎水」，那時候也是大家一手一腳處理的。
+
+見證着中心「由無到有」，再一下子停運，李凱也表示十分痛心，他指一開始只有5個中心，發展到現在有十多個中心，而且過去十年，中心的發展也越來越好，增設了不同種類的課程，現在一下子停運，他的感受很深。加上培訓中心140名員工，約100名導師亦要被遣散， 大家都對「唔係因為經營不善而結業」感到無奈。
+
+隨著職工盟的解散，培訓中心的服務相繼停止，職工盟獨有的課程，例如太陽能板、輪椅維修等亦可能在香港成為絕響，他相信未來難有空間再以職工盟「牌頭」舉辦課程，他表示會繼續與再培訓局商討方案，亦可能會聯絡其他培訓機構，看看有沒有可能開辦這些課程。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011065729_2e22_large.jpg" alt="">
+<figcaption>李凱與辦公室外堆積如山的文件。郭日朗攝</figcaption>
+</figure>
+
+至於李凱自己的未來發展，他笑言仍忙着解散等事宜，「隨時我哋仲忙過工盟嗰邊」，所以未及思考自己未來的去向，他表示「都係等完曬啲嘢，靜咗落嚟先再算啦」。他亦表示培訓中心的同事，將來亦會探索如何延續培訓工作，他舉例有些同事自己有各方面的專業，可能會自組公司舉辦自資課程。
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011064950_89b4_large.jpg" alt="">
+<figcaption>大部份課堂已經結束， 亦不會再開辦新課程，教室顯得空蕩蕩的。郭日朗攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟-職工盟解散-20211011065759_223d_large.jpg" alt="">
+<figcaption>大部份課堂已經結束， 亦不會再開辦新課程，教室顯得空蕩蕩的。郭日朗攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211127114142im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/職工盟解散-職工盟-20211011065743_68ca_large.jpg" alt="">
+<figcaption>大部份課堂已經結束， 亦不會再開辦新課程，教室顯得空蕩蕩的。郭日朗攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127114142/https://hkcnews.com/aboutus/#subscribe)

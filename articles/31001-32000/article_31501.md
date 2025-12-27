@@ -1,0 +1,92 @@
+---
+title: "【地位超然】國安公署執行職務不受港管轄　國安委員會決定不受司法覆核"
+date: "2020-07-01"
+last_updated: "2020-07-01 01:58:57"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港警務處"
+  - "警務處"
+  - "警務署"
+  - "香港警務署"
+  - "香港警务处"
+  - "港版國安法"
+  - "國安公署"
+  - "國安委員會"
+url: "https://web.archive.org/web/20210920061903/https://www.hkcnews.com/article/31501/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31508/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/31501/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31508/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 【地位超然】國安公署執行職務不受港管轄　國安委員會決定不受司法覆核
+
+全國人大常委會昨晨9時半全票通過港區國安法，直到深夜11點特區政府才公開條文內容，並即時刊憲生效。 [國安法全文](https://web.archive.org/web/20210920061903/https://www.gld.gov.hk/egazette/pdf/20202444e/cs220202444136.pdf) 18頁，共6章、66條。根據國安法成立的中央掌權機關，擁有「超然」職能：中央駐港的國安公署人員執行職務時，不受港區管轄；國安公署履行職責時，港府有關部門須提供必要的便利和配合，對妨礙有關執行職務的行為依法予以制止並追究責任。另外，由港府官員組成的國安委員會，其作出的決定不受司法覆核。
+
+警務處維護國家安全部門，擁有7種特別權力，並可以在香港特區以外聘請合格的專門人員和技術人員，協助執行維護國家安全相關任務。
+
+<figure>
+<img src="https://web.archive.org/web/20210920061903im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/港版國安法-人大常委-國安法-20200630195219_2376_large.jpg" alt="">
+<figcaption>全國人大常委會昨晨表決，以162票全票通過《中華人民共和國香港特別行政區維護國家安全法》。新華社照片</figcaption>
+</figure>
+
+### 國安公署對三種案件行使管轄權
+
+國安法第五章說明，中央政府在港設立維護國家安全公署（下稱國安公署），職責包括：分析研判港區維護國安的形勢，就維護國家安全重大戰略和重要政策提出意見和建議；監督、指導、協調、支持香港特別行政區履行維護國家安全的職責；收集分析國家安全情報信息；依法辦理危害國家安全犯罪案件。
+
+國安法第54條指，國安公署、外交部駐港特派公署會同港府，「 **採取必要措施，加強對外國和國際組織駐香港特別行政區機構、在香港特別行政區的外國和境外非政府組織和新聞機構的管理和服務。** 」
+
+**國安法又列明三種情形，由國安公署行使管轄權：**   
+ （一）案件涉及外國或者境外勢力介入的複雜情況，香港特區管轄確有困難；   
+ （二）出現香港特區政府無法有效執行港區國安法的嚴重情況；   
+ （三）出現國家安全面臨重大現實威脅的情況。
+
+上述情形，由國安公署立案偵查，最高人民檢察院指定有關檢察機關行使檢察權，最高人民法院指定有關法院行使審判權。國安法並說明，《中華人民共和國刑事訴訟法》等相關法律適用於這類案件。國安法第58條指，犯罪嫌疑人自被國安公署第一次訊問或採取強制措施之日起，有權委託律師作為辯護人；「犯罪嫌疑人、被告人被合法拘捕後，享有儘早接受司法機關公正審判的權利。」
+
+### 國安公署履行職責　港府須配合
+
+根據國安法第50條，中央駐港的國安公署人員，「除須遵守全國性法律外，還應當遵守香港特別行政區法律」。而國安法第60條又稱，國安公署及其人員依據港區國安法執行職務的行為，不受港區管轄；持有國安公署制發的證件或證明文件的人員和車輛等，在執行職務時不受港區執法人員檢查、搜查和扣押。而根據國安法第61條，國安公署履行職責時，港府有關部門須提供必要的便利和配合，對妨礙有關執行職務的行為依法予以制止並追究責任。
+
+<figure>
+<img src="https://web.archive.org/web/20210920061903im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/港版國安法-國安法-20200622211803_ba69_large.jpg" alt="">
+<figcaption>國安法部門架構圖。眾新聞製圖</figcaption>
+</figure>
+
+### 國安委員會作出的決定不受司法覆核
+
+港府將成立香港特別行政區維護國家安全委員會（下稱國安委員會）。國安委員會由特首擔任主席，成員包括三名司長、保安局長、警務處長、警務處維護國家安全部門負責人、入境事務處長、海關關長和特首辦主任，中央人民政府並指派國家安全事務顧問，列席委員會會議，向委員會提供意見。
+
+國安法條文第14條指出，國安委員會的職責包括：分析研判港區維護國安的形勢，制定政策；推進港區維護國安的法律制度和執行機制建設；協調港區維護國安的重點工作和重大行動。條文續指，國安委員會的工作不受港府任何其他機構、組織和個人的干涉，工作信息不予公開，更指明：國安委員會作出的決定不受司法覆核。
+
+律政司會根據國安法設立專門的國家安全犯罪案件檢控部門，負責危害國家安全犯罪案件的檢控工作和其他相關法律事務。該部門檢控官，由律政司長徵得港區國安委員會同意後任命。檢控部門負責人則由特首任命，特首任命前須書面徵求國安公署的意見。部門負責人在就職時應當宣誓擁護中華人民共和國香港特別行政區《基本法》，效忠中華人民共和國香港特別行政區，遵守法律，保守秘密。
+
+<figure>
+<img src="https://web.archive.org/web/20210920061903im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/區旗-國旗-20200630235609_44ea_large.jpg" alt="">
+<figcaption>親中團體昨日在添馬公園，慶祝國安法通過。美聯社照片</figcaption>
+</figure>
+
+### 警務處維護國安部門擁7項權力
+
+根據國安法，港府會成立警務處維護國家安全部門。另外，部門可以在香港特區以外聘請合格的專門人員和技術人員，協助執行維護國家安全相關任務。
+
+國安法訂明，警務處維護國家安全部門在辦理危害國家安全犯罪案件時，可以採取港區現行法律准予執法部門在調查嚴重犯罪案件時的各種措施，並可以採取以下措施：
+
+（一）搜查可能存有犯罪證據的處所、車輛、船隻、航空器以及其他有關地方和電子設備；
+
+（二）要求涉嫌實施危害國家安全犯罪行為的人員交出旅行證件或者限制其離境；
+
+（三）對用於或者意圖用於犯罪的財產、因犯罪所得的收益等與犯罪相關的財產，予以凍結，申請限制令、押記令、沒收令以及充公；
+
+（四）要求信息發布人或者有關服務商移除信息或者提供協助；
+
+（五）要求外國及境外政治性組織，外國及境外當局或者政治性組織的代理人提供資料；
+
+（六）經行政長官批准，對有合理理由懷疑涉及實施危害國家安全犯罪的人員進行截取通訊和秘密監察；
+
+（七）對有合理理由懷疑擁有與偵查有關的資料或者管有有關物料的人員，要求其回答問題和提交資料或者物料。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920061903/https://www.hkcnews.com/aboutus/#subscribe)

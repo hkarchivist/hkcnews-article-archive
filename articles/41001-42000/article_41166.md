@@ -1,0 +1,87 @@
+---
+title: "打完新冠疫苗後有不良副作用，個人保險保唔保㗎？"
+date: "2021-05-12"
+last_updated: "2021-05-18 19:08:02"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "疫苗接種"
+  - "保險界"
+  - "個人意外保險"
+url: "https://web.archive.org/web/20210925040114/https://www.hkcnews.com/article/41166/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41475/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41166/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41475/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 打完新冠疫苗後有不良副作用，個人保險保唔保㗎？
+
+<figure>
+<img src="https://web.archive.org/web/20210925040114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/疫苗接種-保險-20210512022912_215e_large.png" alt="">
+</figure>
+
+【撰文：保險代理公司主席保險仔】
+
+剛接種過疫苗，依照姑娘指示，到休息區接受注射後觀察。期間，腦海中盤旋着一件事情：「去錯地方打錯針！」
+
+按保險仔親身經歷，由收到接種疫苗預約的確認通知，其後又在接種疫苗前一天送來提示，到實際接種，可謂重重把關。單是核對身分，以及接種前，姑娘詳細查問個人資料、打那種疫苗、病歷、身體狀況等等，都有條不紊，實在不應有出錯機會。保險仔對早排發生的幾宗去錯地方打錯針的情況，真係百思不得其解！
+
+當我行到去等候區，正打算搵個位坐吓，咦！呢個咪係我老死「險中求」，等我去打個招呼先。「喂！啊求！你都嚟打針呀？」佢竟無反應！唯有推了他幾下。「走得嗱？」險中求半睡半醒。「走你個頭！仲以為你打完支針瓜咗𠻹！」我揶揄道。「乜係你呀，保險仔！」險中求話。我哋吹咗陣水，講起最近新聞提到打完疫苗之後有可能死亡或出現嚴重副作用，啊求就問：「打完針後，如果因此而釘咗，又或者變重症，你地保險有冇得賠㗎？」
+
+<figure>
+<img src="https://web.archive.org/web/20210925040114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/疫苗接種-20210226160727_1155_large.jpg" alt="">
+<figcaption>疫苗注射後若死亡或出現嚴重副作用，保險如何理賠？</figcaption>
+</figure>
+
+嘩！呢個險中求呀，啱啱先打完針，咁快就識得問咁貼身利益嘅問題，唔怪之佢咁富貴啦。果然係富貴險中求！
+
+### 賠償與否視乎購買產品和合約
+
+「講呢啲！你估我開賭場咩，賠唔賠？」我揶揄道。「認真㗎！𠵱家周不時有報導話，打完疫苗後，有啲瓜咗，又有啲要入院，什麼血栓塞、中風、面癱……乜都有。至怕係半死不活，啲醫藥費都好襟計喎！」險中求嘅疑慮都好合理，咁我作為保險仔都好應該專業地釐清佢嘅疑慮。
+
+不知不覺，原來觀察時間已到，工作人員通知我哋可自行離開。反正險中求和我都放半晝唔使返公司，又未食晏，見肚餓，去整返碗米線加凍檸茶先！
+
+<figure>
+<img src="https://web.archive.org/web/20210925040114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/01/流感-衛生署-流感疫苗-20180119170316_19d8_large.jpg" alt="">
+<figcaption>接種任何疫苗，不能視為意外事故。</figcaption>
+</figure>
+
+「你先前問有冇得賠？咁，你買咗啲乜嘢保險先？」我問道。
+
+「有個人意外險、醫療保險，人壽保險，家傭保險，仲有全年旅遊保險。」險中求其實一啲都唔犯險，仲好穩陣𠻹！有關個人保險類別的，都買得幾齊全。
+
+「醒喎！你應該改名叫「穩中求」而唔係「險中求」！既然你咁穩陣，個人保險都買得咁齊全。咁，我就逐一講解一下。
+
+1. 個人意外保險： 這個保險範圍，是障身體因意外遭受外在力量肇因，導致死亡、殘廢*、受傷*。 **若因接種疫苗而導致死亡、殘廢或受傷，一概不在受保之列。** 接種任何疫苗，都潛在已知的各種不同程度的險和副作用，故不能視為意外事故。（*理賠準則，因應不同保單條款而定。）
+
+2. 醫療保險： 早前，自願醫保計劃辦事處表示， **自願醫保可涵蓋因接種新冠疫苗而導致不良反應所衍生的醫療費用，包括住院和日間手術等等。** 至於其他醫保或住院現金保障，原則上都會理賠，但也不能夠一概而論。因為，不同保險公司的保險條款有別，甚至有些保單明文，不受保：「預防性質疫苗」衍生後續的醫療費用。
+
+3. 人壽保險： **一般壽險，都會對任何原因導致的死亡作出賠償** ，因接種疫苗導致的死亡也不例外。
+
+4. 家傭保險： 家傭在接種疫苗後，導致不良反應而產生善後的醫療開支， **要視乎不同保單否列為保障範圍而定，不能一概而論。** 但若家傭因此而去世，其遺體遣送原居地及補聘新家傭的費用，應獲得賠償。
+
+5. 旅遊保險： **接種疫苗後，導致身體不適，不能夠成行出發，有關的機票、洒店等費用，一概不會獲得賠償。** 除非是投保人因身故，身患重疾，身受重傷，又或遇上黑色旅遊警示或目的地發生自然災難等原因，而不能夠成行，這些情況，將可獲得賠償。
+
+### 了解保障範圍　保障消費者權益
+
+「上面所講，只就一般情況而言。最好檢視一下各保單有冇涵蓋接種新冠疫苗嘅描述、索償有冇時間限制等。遇有不明或任何疑問，都應該向有關嘅保險中介人或所屬嘅保險公司查詢。多啲了解保障範圍，有益無損，呢啲都係消費者權益，亦係銷售者嘅責任。」講到呢度，飲番啖凍檸茶先。
+
+「見你保險仔講解得咁詳盡，算喇！呢餐我嘅！」險中求狀甚滿意！
+
+「多謝晒喎！」雙方言笑晏晏，繼續吹水。
+
+**作者簡介：** 保險仔，從事一般保險中介服務達四十年，期間，經歷保險市場及政府對行業的行為規管，隨時日不斷改進，日益成熟。目前，現職保險代理公司主席。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925040114/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20210925040114im_/https://www.hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

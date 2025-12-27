@@ -1,0 +1,70 @@
+---
+title: "【疫境自救】街坊發起「黃店團購」掀熱潮　小店跨區外送同路人"
+date: "2020-09-13"
+last_updated: "2020-09-13 00:51:50"
+author: "實習記者黎卓欣"
+category: "眾聞"
+tags:
+  - "黃色經濟圈"
+url: "https://web.archive.org/web/20210805050829/https://www.hkcnews.com/article/33727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33811/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33811/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【疫境自救】街坊發起「黃店團購」掀熱潮　小店跨區外送同路人
+
+**疫情下本港實施多項防疫政策，如限聚令、禁堂食等，使無數商家損失慘重，生意跌入谷底。重災區的飲食業，即使紛紛推出多種外賣優惠，仍難令生意起死回生。太古區有市民主動發起「黃店團購」，收集同區鄰里的貨單，一次過向小店大量訂貨，冀為同路人打支「止痛劑」。店家在社交專頁出文道謝後，意外引發連鎖效應，多區街坊「唔輸蝕」紛紛仿傚，壯大「黃色經濟圈」。眼見此計行之有效，陸續有小店「不求人」自行推出團購服務，讓街坊網上自助落單，一程車多做幾倍生意。**
+
+「太古同怒人」成員Iris憶述，8月初有街坊在Facebook群組，邀請他人一起「夾單」買燒賣，於是便成立了第一個用作團購的Whatsapp 群組。結果街坊們吃過燒賣番尋味，又有街坊再在群組提議夾份買西餐，於是又一次過向店家訂了15份訂單。漸漸，每天到Facebook查看新團購計劃、分享外賣食物照片、提議下次團購的餐廳，成為群組內的太古街坊日常事，更吸引越來越多太古人參與團購。一眾成員決定成立Telegram群組，以便即時聯絡，處理訂單事宜，現時「太古同怒人」有近1200人，每天至少有一張訂單成團。
+
+<figure>
+<img src="https://web.archive.org/web/20210805050829im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/黃色經濟圈-20200910141025_218c_large.png" alt="">
+<figcaption>現時「太古同怒人」有近1200人，每天至少有一單團購。（社交網站截圖）</figcaption>
+</figure>
+
+一般而言，街坊先在群組建議新一輪團購的餐廳，由統籌人聯絡店家，商討外賣菜式及送貨安排。為免錢銀爭拗，統籌人不會經手訂購費用，而是讓群組內街坊填寫網上表單後，直接網上付款給餐廳；亦有街坊看到一些本已有送貨服務的餐廳，會在群組主動邀請他人湊單，例如早前集體訂購灣仔「後街牛扒」，一班「同怒人」的單次訂購額曾高達2.6萬元。
+
+**多達1200人的群體，人人喜好很難一致，亦難免有溝通磨擦。不過Iris稱目前為止，所有街坊都很守規矩，從未出現無故棄單情況。她又指，街坊都抱著「人人為我、我為人人」的心態，分工合作。即使有正職在身，仍會盡量抽空，利用下班或午膳時間，處理網上訂單、與店家聯絡等。群組內更有人主動提出幫忙出車到店取貨，充當外送義工。**
+
+Iris笑指，「同怒人」最喜歡幫襯「告急黃店」。他們曾經團購「兩姊妹涼皮 」，單次訂單金額達1.3萬元，以每個品項約30多元計算，即高達400多碗，當日餐廳要因此落閘，專心做團購訂單。至今最高金額則為訂購「燒賣皇后」，共訂了120包的6磅裝燒賣，金額達3.2萬元。
+
+<figure>
+<img src="https://web.archive.org/web/20210805050829im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/黃色經濟圈-20200910140313_14d1_large.jpg" alt="">
+<figcaption>「太古同怒人」的訂單為店家帶來即時現金流，不少餐廳特意在社交專頁出文道謝。（社交網站截圖）</figcaption>
+</figure>
+
+Iris指，團購一次的金額大，能為店家帶來即時的現金流，解決交租、水電煤等的燃眉之急。街坊本身未必認識區外黃店，但每次團購後，成員都會在群組上載食物照片、寫真實食評，其他人便能透過此途徑，知道更多有口碑、質素好的餐廳。
+
+除了宣傳效果，Iris亦難忘大坑其中一位餐廳老闆所說的話： **「佢話大坑依家幾乎零生意，開唔開舖都無分別。但自從有我哋『同怒人』每日都去訂佢哋嘅嘢食，佢就知道每日都至少有一車order，令佢有動力繼續返去開舖。」** Iris說︰「嗰下覺得，原來我哋真係幫到人！」
+
+不過，Iris坦言，當初街坊發起團購，並非有何遠大的理想或目標，只是很單純地覺得，太古區內除了連鎖「藍店」餐廳，例如美心、富臨集團等，便苦無他選。街坊往往要跑到西灣河、鰂魚涌覓食，十分不便。她認為，太古區的團購之所以有聲有色，終歸是因街坊需求極大：「太古根本就係『美食沙漠』，依家唔駛搭車出去就有跨區、熱辣辣嘅外賣食，不知幾好！」
+
+黃店涵蓋各行各業，Iris指，「同怒人」將與餐廳合作，推出「1加1計劃」。由於曾有餐廳表示可提供大量訂貨的折扣，街坊便提議不如照以正價購買餐點，但折扣的差價，店家則可捐到其他零售黃店，如「Paul 818酒舖」、「靜月」、「麥子啤酒」等，再以現金券形式，供已訂購餐點的街坊使用。她說，現在計劃仍在試行階段，希望運行順暢後，社區的力量能幫助更多黃店渡過難關。
+
+### 小店自組團購　每周出車跨區送貨
+
+香港人做生意靈活有腦，能將危機化為機遇。有小店就決定「不求人」，自行開設團購，供消費者自助落單。店家先在社交專頁，公佈未來數天的團購安排，街坊只需到網站填表、過數，便能享受跨區美食。
+
+位於旺角的「陸陸雞煲」，主打火鍋料理，疫情下市民不敢在外打邊爐，受限聚令影響，堂食生意更是一落千丈，即使推出外賣自取半價優惠，仍然無法收支平衡。老闆黃先生指，就算政府放寬晚市堂食至10時，仍幫助不大，因為客人通常下班後光顧，變相只能做一轉生意，加上每台人數有限制，每日營業額僅得約5000元。
+
+黃老闆發現不少社區群組，都會主動聯絡店家做團購，但因自己對相關群組不太熟悉，又未必能聯絡上所有地區，便決定自行開團，每星期輪流到各區送貨。
+
+自組團購以來，黃老闆說，最多試過達到訂購上限的50單，最少都有10單，為餐廳每天多帶來幾千元生意，在疫情下也尚算可達收支平衡。現時堂食及團購生意各佔約四成半，剩下一成是自取。至於單次外送速遞，因為客人團購便取消單次服務，每天只剩兩、三單訂購。
+
+<figure>
+<img src="https://web.archive.org/web/20210805050829im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/黃色經濟圈-20200910134836_90d2_large.jpg" alt="">
+<figcaption>「陸陸雞煲」自行開團，每星期輪流到各區送貨。（受訪者提供）</figcaption>
+</figure>
+
+大量送貨往同一區，雖可節省運輸成本，但黃老闆坦言，團購多數會給予額外折扣，拉上補下後，與單次速遞送貨成本其實差不多。不過，他認同Iris所指，開辦團購後，不少街坊得知餐點可送到住家附近，都想訂購一試，有助餐廳找到潛在客戶，開托新客源。「好多區都係美食沙漠，冇乜黃店。將軍澳有居民登報紙，問有冇黃店可以進駐。」黃希望團購能為其他地區的居民帶來選擇，當食物質素受到認可，更能贏得口碑，吸引長期顧客。
+
+如果每次出車的訂購數量不足，是否變相「蝕本」？黃老闆覺得從服務同路人的角度看，不會蝕本：「唔會覺得少嘅，如果純粹諗要搵錢咪少囉，但如果諗住係服務同路人，就算一單都冇所謂，我哋仲諗緊會去埋長洲、愉景灣，呢啲你想像唔到嘅地方！」
+
+****
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805050829/https://www.hkcnews.com/aboutus/#subscribe)

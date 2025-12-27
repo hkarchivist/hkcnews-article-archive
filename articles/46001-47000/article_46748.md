@@ -1,0 +1,67 @@
+---
+title: "參考外國經驗　加快電動車普及化"
+date: "2021-10-22"
+last_updated: "2021-10-22 18:32:38"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "空氣污染"
+  - "二氧化碳排放"
+url: "https://web.archive.org/web/20211202162401/https://hkcnews.com/article/46748/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46789/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46748/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46789/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 參考外國經驗　加快電動車普及化
+
+<figure>
+<img src="https://web.archive.org/web/20211202162401im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/專業和你傾-二氧化碳排放-電動車-20211022181626_3135_large.png" alt="">
+</figure>
+
+【撰文：前政府高級公務員周家俊】
+
+[世界衛生組織](https://web.archive.org/web/20211202162401/https://www.who.int/zh/home) （WHO）最近公布了新一份 [《全球空氣質量指南》](https://web.archive.org/web/20211202162401/https://www.who.int/zh/news-room/q-a-detail/who-global-air-quality-guidelines) ，指空氣污染每年在全球奪走700萬條性命，希望各國鼓勵使用清潔能源，減少民眾死於空氣污染疾病。可惜本港推動清潔能源發展緩慢，汽車所排放的廢氣更是空氣污染主要源頭。施政報告提及要發展綠色運輸，積極推動各種電動及其他新能源公共交通工具和商用車的發展，但港府1994年推出稅務優惠推廣電動車後，雖成功引入特斯拉（Tesla）等電動車廠進駐，可是無以為繼，往後電動車的普及情況放緩，其中一大原因就是缺乏電動車叉電站。
+
+<figure>
+<img src="https://web.archive.org/web/20211202162401im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/充電設施-叉電站-電動車-20211021191643_b1ad_large.jpg" alt="">
+<figcaption>港府曾推出稅務優惠推廣電動車。</figcaption>
+</figure>
+
+政府停車場、私人屋苑，以至房委會和領展管理的停車場中，電動車充電位都嚴重不足。去年有媒體報導指出，領展管理的56,000多個車位中，僅提供86個充電車位，只佔其全部車位0.15%；政府停車場的充電車位亦僅得1,119個，即平均近17架電動車搶一個充電位。
+
+<figure>
+<img src="https://web.archive.org/web/20211202162401im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/電動車-充電設施-叉電站-20211021191538_2ad5_large.jpg" alt="">
+<figcaption>港府推動電動車的普及情況放緩原因之一是缺乏電動車叉電站。</figcaption>
+</figure>
+
+香港政府取態亦被動保守，直至今年3月17日，才公布首份 [《香港電動車普及化路線圖》](https://web.archive.org/web/20211202162401/https://www.enb.gov.hk/sites/default/files/pdf/EV_roadmap_chi.pdf) ，卻只決定2035年或之前停止新登記燃油私家車，以配合爭取於2050年前實現碳中和的目標。但其他車輛包括商用車、公共交通工具，都不在限制之列。相反，歐洲推動電動車普及化都進取得多，英國已訂定於2040年禁止非電動車銷售；挪威就更為進取，打算於2025年成為全球首個禁止非電動車銷售的國家。
+
+挪威推動電動車普及化的政策積極，在2005年起允許電動車司機使用專用道路，更曾讓電動車可免費停泊市政停車場，以及減收或直接豁免公路和汽車渡輪過海收費。稅務優惠方面，則包括寬免增值稅、進口稅、車輛登記稅、道路使用稅等，以極多優惠政策吸引市民轉用電動車。據挪威當局統計，該國去年電動車銷量已首次超越汽油、柴油和混能車輛的總數，佔新車銷售量的54.3%。   
+   
+ 港府可參考挪威做法，除了提供更多稅務優惠，亦應考慮豁免或寛減其道路收費、可免費或優惠價停泊指定地點等，從而提高駕駛者轉用電動車的意欲。而擴大目前的電動車充電網絡，增加公營及私營充電設施，是電動車普及化能否成功的一大關鍵。《香港電動車普及化路線圖》提出了2025年前增加不少於15萬個私人充電設施，以及不少於5,000個公共充電設施的目標。
+
+<figure>
+<img src="https://web.archive.org/web/20211202162401im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/香港電動車普及化路線圖-充電設施-電動車-20211021191618_1a1e_large.jpg" alt="">
+<figcaption>《香港電動車普及化路線圖》提出增加私人及公共充電設施的目標。</figcaption>
+</figure>
+
+政府早前提出，研究在中長線逐步把部分現有的加油站及加氣站，轉型至快速充電站的可行性。這絕對應該盡快進行，石油巨企Shell近年已積極在加油站加裝充電器，將會在英國100家超市提供充電服務，料2025年前可在英國安裝5萬座公共充電器。
+
+環境局局長剛剛公布 [《香港氣候行動藍圖2050》](https://web.archive.org/web/20211202162401/https://www.climateready.gov.hk/files/pdf/CAP2050_booklet_tc.pdf) ，力爭在2035年前把香港的碳排放量從2005年的水平減半，要達到這個「進取」的目標，政府必須先搞電動車充電設施，制訂時間表，以避免路線圖、藍圖到最後變成口號式的方案。
+
+**作者簡介：** 周家俊，前政府高級公務員，現任公營機構顧問。公餘喜愛運動，尤其熱愛單車及籃球，年青時屢次入選校隊，曾立志投身運動界，後來為生計只好於公餘時間才追夢。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202162401/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20211202162401im_/https://hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

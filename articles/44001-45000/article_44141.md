@@ -1,0 +1,72 @@
+---
+title: "即使結果未如理想，盡力過已無悔"
+date: "2021-08-08"
+last_updated: "2021-08-09 14:31:07"
+author: "Pazu薯伯伯"
+category: "眾說"
+tags:
+  - "李慧詩"
+  - "東京奧運"
+  - "薯伯伯"
+url: "https://web.archive.org/web/20211027131245/https://hkcnews.com/article/44141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44171/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44171/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 即使結果未如理想，盡力過已無悔
+
+<figure>
+<img src="https://web.archive.org/web/20211027131245im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/東京奧運-李慧詩-20210808125532_2a67_large.jpg" alt="">
+<figcaption>東京奧運最後一天，李慧詩在場地單車女子爭先賽摘銅，取下港隊今屆奧運第6面獎牌。美聯社</figcaption>
+</figure>
+
+成長於牛頭角下邨的 Sarah，阿爸做小販，她就幫手賣紙巾，有次被捉，她就哭了出來，她的成長就是平平無奇，而且天生貧血，每次訓練後都比其他人用更多時間恢復元氣。在 2006 年的訓練中受傷，手腕骨裂，三次手術未能成功，教練勸她退役，但她不甘放棄，受傷包紮左手仍堅持訓練，最終感動沈教練讓她留隊。2010 年在亞運中打破亞洲紀錄，首次奪金。到了 2012 年，倫敦奧運凱林賽贏得銅牌，為香港取得歷來第三面奧運獎牌。在 2013 年的世界場地單車錦標賽，以 0.023 秒之差力壓德國選手奪金，是香港首位女子單車比賽世界冠軍。
+
+在 2016 年里約奧運是香港全民焦點，李慧詩卻在次輪比賽中與澳州車手美雅絲碰撞炒車。當年不少香港人印象深刻的一張照片，是她離開賽道時，頭上撞得紅紅的落魄神情。炒車後，不少人抱著疑問，到底對手有否犯規，反而李慧詩卻說碰撞是意外，強調對方沒有過線，不屬犯規，不會上訴。其後在爭先賽事中，李慧詩騎著單車，在賽道上拖著美雅絲的手，盡顯風度及體育精神，是當屆奧運其中一張最令人印象深刻的照片，「是友誼的表現」。
+
+<figure>
+<img src="https://web.archive.org/web/20211027131245im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/李慧詩-里約奧運-美雅絲-20210808173547_1b39_large.jpg" alt="">
+<figcaption>2016年里約奧運，李慧詩（左）與美雅絲在賽事中相撞錯失晉級機會，其後二人在爭先賽賽道上拖手。美聯社/資料圖片</figcaption>
+</figure>
+
+炒車失資格，她卻不忘感謝科研工作人員，說自己最初只是一個「很蠢、死踩」的運動員，學會用頭腦分析數據、研究戰術。又多謝照顧她的醫生，還有多謝她的教練、陪練，更難能可貴，她還特別提到要多謝記者的付出。
+
+那年里約衛冕銅牌失敗，香港人當然失望，但 Sarah 更記掛身邊人，她說：「一定要同屋企人講唔駛擔心，同埋向教練講唔好意思，大家都盡咗好大⋯⋯」出征空手而回，還要負傷，每廿分鐘塗麻醉藥膏，Sarah 說：「你問我痛不痛，我個心真的好痛，我覺得傷口沒所謂，我忍到，但我付出了很多，我沒想過一撞就失去了決賽資格。」
+
+對 Sarah 更大的打擊，卻是在出征里約奧運失敗後，一直陪伴她出戰的教練普林俊因心臟病離世，李慧詩未能趕及見其最後一面，在追悼會上哭成淚人。李慧詩說過：「普教練每次推我上道時，他都給我信心。」
+
+今次東京奧運因疫情延後一年，期間只能留在香港封閉式訓練，對運動員的心理壓力更大。李慧詩由起初的賽事連敗，到轉回強勢，勇奪銅牌，完了上屆奧運空手回的遺憾。李慧詩當然想取金牌，但她說，明白大家對她有很大期望，她同樣想爭取金牌，但人生就是這樣，用力完成了，即使結果未如理想，盡力過已無悔。
+
+運動員的衣服總易成為焦點，李慧詩就說：「現在已經十三年，如果沒有你們陪我走，我不能走到頒獎台上，我真正感覺到我穿上香港隊戰衣，有你們這麼多人的力量在我的單車上，有時會很大壓力，都知大家不想給我太大壓力，所以想將你們每一句加油轉化為動力。」她早在今年 6 月，已在其 Instagram 寫道：「感謝同路人不斷支持我，給我力量，我才能堅持到今天，追求在獎牌背後，更值得我珍重的這些態度。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027131245im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/東京奧運-李慧詩-觀塘APM-20210808174633_8755_large.jpg" alt="">
+<figcaption>8月4日，李慧詩首度亮相東京奧運，大批市民在觀塘APM觀賽打氣。資料圖片</figcaption>
+</figure>
+
+遠在香港為她到商場看大電視打氣的人，有人說她由「牛下女車神」到參加奧運，本身就是傳奇，「只要堅持就有希望」這句話，再次在媒體上散播開來。
+
+李慧詩之所以是「女神」，不是因為天生光環，而是在她的成長路上、挫敗經歷、堅忍硬頸、成就故事，以及她對同路人之間的相知相遇，在不少香港人的心中，都能泛起共鳴的漣漪。「李慧詩」這三個字，寫下了香港人的傳奇，畫出了香港人的寫照。
+
+李慧詩說：「即使結果未如理想，盡力過已無悔。」
+
+這句話，會在未來很長的日子裡，成為香港人的座右銘。
+
+*原文刊於 [作者Patreon](https://web.archive.org/web/20211027131245/https://www.patreon.com/posts/54657012)*
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027131245/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Pazu薯伯伯](https://web.archive.org/web/20211027131245im_/https://hkcnews.com/uploads/avatars/001d8f85-a098-4d95-b480-83af95b083b9.png?562121451)
+
+**博客 | Pazu薯伯伯**
+
+【Pazu薯伯伯・旅遊寫作人】薯伯伯為最早一批在網上連載遊記的香港人，多年來足迹遍佈歐、亞多國，在喜馬拉雅山麓、東南亞、南亞等地區生活。著有《風轉西藏》、《北韓迷宮》、《西藏西人西事》及《不正常旅行研究所》，分別在香港、北京及首爾出版。
+作者 Facebook：https://www.fb.com/pazukong；
+Patreon 頻道：https://www.patreon.com/pazu

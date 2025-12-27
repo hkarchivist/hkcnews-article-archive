@@ -1,0 +1,69 @@
+---
+title: "【武漢肺炎】相隔23日新增2宗本地確診　徐德義：暫無須回復較嚴緊措施"
+date: "2020-05-13"
+last_updated: "2020-05-14 02:46:43"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "高永文"
+  - "KO Wing-man"
+  - "徐德義"
+  - "復課"
+  - "本地個案"
+url: "https://web.archive.org/web/20211028181232/https://www.hkcnews.com/article/29845/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29853/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29845/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29853/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【武漢肺炎】相隔23日新增2宗本地確診　徐德義：暫無須回復較嚴緊措施
+
+本港新增3宗確診個案，其中2宗為本地個案，打破23日來本地零確診的紀錄。食衛局副局長徐德義表示，暫時無須回復3月底起實施的較嚴緊措施。教育局局長楊潤雄則表示，目前仍然維持本月27日復課的安排。
+
+<figure>
+<img src="https://web.archive.org/web/20211028181232im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/HK-武漢肺炎-口罩-20200513232524_1cc3_large.jpg" alt="">
+<figcaption>本地個案再現，打破23日來本地零確診的紀錄，市民仍續戴口罩。美聯社圖片</figcaption>
+</figure>
+
+新增2宗本地個案，為居於荃灣梨木樹邨5座的66歲女子，與其居於荃灣街市街10號卓明樓的5歲孫女，二人確診前沒有外遊紀錄。祖母先病發，上周五開始發燒，周六日在家休息，沒有出外慶祝母親節，本周二到普通科門診求醫，留下深喉唾液樣本化驗，檢測呈陽性。祖母平日會到楊屋道街市買菜，及到卓明樓的兒子家中照顧5歲孫女，外出時有戴口罩。
+
+孫女本周一開始咳嗽，在祖母身體不適後，搬到大角咀富榮花園的外婆家暫住，曾在母親節前夕與10多名家人聚餐。女童於本月2日及9日到過荃灣沙嘴道289號「日朗坊」教育中心補習，中心已關閉進行消毒。
+
+衛生防護中心傳染病處主任張竹君表示，祖母的感染源頭未明，8名密切接觸的家人，除已確診的孫女外，有6人出現初步病徵，已送院治療，暫時檢測結果均呈陰性；至於祖母無病徵的丈夫，則已安排入住檢疫中心。有傳媒晚上引述消息指，丈夫亦初步確診。
+
+張竹君表示，再出現本地個案，顯示社區有隱形傳播鏈，不排除會再出現本地個案或大型社區爆發，中心會盡力擴大檢查範圍。
+
+其餘1宗確診個案，為由巴基斯坦返港的34歲男子，屬輸入個案。
+
+### 政府：無須回復3月時較嚴緊措施
+
+對於本港再出現本地個案，食物及衛生局副局長徐德義表示非常關注，呼籲市民絕不能鬆懈，要做好防疫措施。徐德義指，現階段政府認為暫時無須回復3月底起實施的較嚴緊措施，本月8日更新的措施繼續有效，政府會檢視情況作適度調整。政府3月底起實施限制社交距離措施，包括禁止4人以上群組聚集、餐廳顧客數目不得超過座位總數一半、健身中心等6類場所須關閉。政府上周五放寬部分社交距離措施，其中群組聚集放寬至禁止多於8人，戲院、健身中心、美容院、酒吧等可重新營業。
+
+就如何考慮放寬或收緊減低社交接觸的措施，徐德義表示，政府會視乎整體疫情走勢，並非一定以計算28日為考量，會以公共衛生風險為首要考量，同時會考慮措施對經濟及民生的影響，按疫情發展調整措施。
+
+學校復課方面，早前教育局已宣佈27日開始分階段復課。教育局局長楊潤雄被問到，會否因為再出現本地個案，而有機會延期復課，楊潤雄指，目前仍然維持復課安排，教育局會因應疫情發展決定需否改變安排。教育局向學校發出詳細的復課指引，包括以半日上課為原則、所有員工及學生均須戴口罩、離家前及進入學校前要量體溫等。
+
+<figure>
+<img src="https://web.archive.org/web/20211028181232im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/食物及衛生局-徐德義-20200513225223_2c34_large.png" alt="">
+<figcaption>徐德義表示，現階段政府認為暫時無須回復3月底起實施的較嚴緊措施。港台影片截圖</figcaption>
+</figure>
+
+### 梁卓偉：是否要重新計算28日　值得商榷
+
+政府抗疫專家顧問之一、港大醫學院院長梁卓偉接受傳媒專訪時表示，本港再出現新確診個案，反映社區隱形傳播鏈一直存在，須盡快找出隱形傳播鏈，方法包括大幅提高病毒測試的數量，以及做大型血清測試，以找出病毒的傳播廣泛程度。
+
+梁卓偉指，現時本港3項主要抗疫措施，包括：邊境措施、檢疫隔離措施及社交距離措施，目前最有條件考慮放鬆的，是社交距離的限制，認為若然未來數星期社會有共識，可以朝這方向嘗試。但他強調，3項措施不能同步放鬆，例如邊境措施和社交限制措施不應同時改變，否則疫情一旦逆轉，就無法精準找出原因。
+
+本地個案再現，令人關注用以考慮放寬限制措施的零本地個案28日期限準則，是否需要重新計算。梁卓偉認為，28日期限的說法值得商榷，因為新型肺炎有大量隱形傳播者，故不大可能完全消除病毒，質疑是否每出現一宗新個案就要重新計算。他認為要考慮何時收緊或放鬆各項措施，須視乎本地感染個案，以及病毒即時繁殖率，疫情不能令醫療系統超出負荷，亦須顧及政府每日可以做到多少個案追蹤工作。
+
+梁卓偉表示，相信疫情會成為「新常態」，估計未來半年、1年甚至更長時間，在本港社區未有足夠免疫前，疫症都不會離開，需要思考限制措施的嚴密程度，因為當中涉及經濟、就業、社會接受度等因素。
+
+
+{{< video src="https://web.archive.org/web/20211028181232if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F842859959453065%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028181232/https://www.hkcnews.com/aboutus/#subscribe)

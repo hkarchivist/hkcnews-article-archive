@@ -1,0 +1,57 @@
+---
+title: "市民投訴「被申請」港康碼　突收開戶短訊　資科辦：疑有申請者錯誤輸入電話號碼所致"
+date: "2021-12-21"
+last_updated: "2021-12-21 02:27:47"
+author: "記者盧珮瑤"
+category: "眾聞"
+tags:
+  - "資訊科技辦公室"
+  - "港康碼"
+  - "安心出行"
+url: "https://web.archive.org/web/20220630040314/https://www.hkcnews.com/article/49135/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49396/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49135/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49396/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 市民投訴「被申請」港康碼　突收開戶短訊　資科辦：疑有申請者錯誤輸入電話號碼所致
+
+港康碼系統於本月10日起開放申請，截至上周六有逾58.6萬名市民申請，為方便用戶上載出行紀錄到港康碼系統與簡化申請流程，新版「安心出行」亦於今（21日）推出。特首林鄭月娥曾形容市民對港康碼反應良好。不過，眾新聞接獲市民投訴，從未申請港康碼卻突然「被提交申請」，並指先後收到兩則由「HKSARG」發出的SMS短訊，分別指明正在處理其帳戶登記申請及已經開立帳戶。涉事市民已致電政府熱線1823投訴，對方回覆將會有專人跟進。
+
+港康碼由本月10日起開放申請，市民「木訥堅持」（化名）向眾新聞表示，於港康碼開放申請後兩日（本月12日）的凌晨1時許 ， 突然收到一則來自香港特區政府英文簡稱「HKSARG」的短訊，內容指政府已收到其港康碼帳戶申請，並會作進一步處理。3日後，該市民再收到另一則短訊，指其港康碼的帳戶已順利開立。
+
+<figure>
+<img src="https://web.archive.org/web/20220630040314im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/港康碼-20211220185102_1eb2_large.jpg" alt="">
+<figcaption>木訥堅持（化名）於本月12日及15日，分別收到兩則有關港康碼帳戶開立事宜的短訊。受訪者提供圖片</figcaption>
+</figure>
+
+該市民指，肯定其身邊的親友沒有為其申請港康碼，自己亦完全沒有打算申請，因認為現時「未有必要」，而其收到短訊的手提電話，亦沒有安裝「安心出行」應用程式。   
+   
+ 對於突然「被申請」港康碼，該名投訴市民指感到憤慨，「我自己覺得兩個可能，一係政府做數，一係政府或者陌生人拎咗我個人資料申請」。投訴人亦擔心自己的個人資料已從其他渠道洩漏，如政府或其他商業機構等。該市民直至昨晚終決定致電政府熱線1823投訴，對方先詢問短訊內的參考編號和其姓氏，並指稍後於辦公時間內會有專人跟進。   
+   
+ 截至上周六（18日），港康碼已有逾58.6萬名市民申請註冊帳戶，當中約33.6萬人已啟動帳戶。林鄭月娥早前於行政會議前見記者時，形容市民對港康碼「反應良好」，更笑稱市民不需急於啟動帳戶。
+
+### 系統只要求可收短訊電話　不核對機主身份
+
+眾新聞就有關投訴向資訊科技總監辦公室查詢，包括收到多少宗相關投訴、有關事件會否影響港康碼的整體申請數字等。資科辦未有回應相關數字，惟指此情況或是有另一名「港康碼」帳戶申請人，錯誤輸入該名市民的流動電話號碼註冊。
+
+現時市民如欲登記和啟動港康碼，要經過多重步驟申請。在登記方面，港康碼採取實名登記，市民需填寫個人資料，包括姓名、身份證號碼和簽發日期、聯絡電話號碼、居住地址等。申請人亦需上傳在港住址證明，以供核實身份之用。
+
+<figure>
+<img src="https://web.archive.org/web/20220630040314im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/港康碼-20211220190546_1b20_large.png" alt="">
+<figcaption>市民申請登記港康碼時，需填寫多項資料，包括可接收短訊的電話號碼。政府圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220630040314im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/港康碼-20211220190528_296e_large.png" alt="">
+<figcaption>填妥申請表後，申請人會收到一則開立帳戶短訊，當中包括6位數字的個人識別碼。政府圖片</figcaption>
+</figure>
+
+完成以上步驟後，申請人會收到成功開通帳戶的短訊，當中附有「個人識別碼」。有關申請人首次登入港康碼系統後，必須輸入「個人識別碼」開通，就可以啟動帳戶。之後，市民便需於新版本的「安心出行」上載出行紀錄到港康碼系統，當中亦必須輸入身份證號碼及帳戶登入密碼，期間，港康碼亦會以短訊發送一次性驗證碼，讓用戶同意及提交上載紀錄。
+
+<figure>
+<img src="https://web.archive.org/web/20220630040314im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/港康碼-20211220190514_8667_large.png" alt="">
+<figcaption>在啟動港康碼帳戶時，申請人需輸入在短訊中顯示的個人識別碼。政府圖片</figcaption>
+</figure>
+
+不過，由於現時系統只要求申請人提供一個可接收短訊的電話號碼，不會核對機主的身份，意味假如原申請人錯誤輸入他人的電話號碼，便會造成「被申請」情況，發給原申請者的短訊便會轉發到錯誤輸入的號碼。至於原申請人，則會因為收不到短訊中的個人識別碼而未能啟動帳戶，意即往後所有步驟均未能完成。   
+   
+ 資科辦指，市民如遇上相類情況，可將相關資料或短訊截圖，電郵至 [[email protected]](/web/20220630040314/https://www.hkcnews.com/cdn-cgi/l/email-protection) ，資科辦將會盡快處理。

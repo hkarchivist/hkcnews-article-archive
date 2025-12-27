@@ -1,0 +1,45 @@
+---
+title: "12港人案的3個啟示"
+date: "2021-01-06"
+last_updated: "2021-01-06 21:09:08"
+author: "王永平"
+category: "眾說"
+tags:
+  - "12港人"
+  - "偷越邊境"
+url: "https://web.archive.org/web/20210916212718/https://www.hkcnews.com/article/37029/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37039/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37029/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37039/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 12港人案的3個啟示
+
+12名棄保潛逃，企圖前往台灣的港人在海上被內地海警截獲，兩人被控「組織他人偷越邊境」罪，分別判刑2至3年，8人被控「偷越邊境」罪，判刑7個月，而其餘兩人因案發時未成年，獲當局決定不起訴，被移交予香港警方。
+
+這場轟動香港及美英等外國勢力的案件，根據內地官方的表述，包含兩個重點。第一，此案的處理是完全依照內地的法律行事；第二，鑑於組織偷渡的被告不是主謀，而全部被告都認罪，因此刑期較輕，未成年者甚至不予起訴。
+
+<figure>
+<img src="https://web.archive.org/web/20210916212718im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/移交逃犯-12港人-20201230141630_2e34_large.png" alt="">
+<figcaption>兩名被捕時未成年的港人，獲內地當局不起訴，移交香港警方。《蘋果日報》資料照片</figcaption>
+</figure>
+
+我認為這宗案件對港人有3個啟示。第一，此案的處理讓港人對內地的法律體制和司法制度有深刻的體會。犯案港人被捕後至上庭時的4個月期間，不獲准與家人會面。從習慣香港的個人權利標準的角度看，這自然是不理想。不理想的情況也包括被告不能自行聘用律師，只能由官派律師辯護。此外，案件雖然聲稱公開審訊，而法院也稱有家屬到場聽審，但事實是有不少家屬未獲准入內。上述情況反映內地與香港對疑犯的法律保障和司法程序的重大差別。從正面角度看，港人應該更加珍惜香港尚存的法治和人權。
+
+第二，香港特區政府在此案的整個過程中，完全沒有為犯事港人或其家屬提供任何實質的人道支援。從尊重內地司法管轄權的角度看，這個立場可以理解。但從特區政府須向港人負責的憲制責任角度看，港府未能或沒有向內地當局爭取到疑犯在拘留期間與家人或父母會面的機會，未免令人失望。港人自此應該接受港人在內地犯事時，不能期望特區政府伸出援手的現實。至於理論上代表港人的的港區人大代表，是否有能力或意願去協助犯事港人或其家屬，港人也不宜有幻想。
+
+第三，今次內地處理這宗案件的手法，顯示在依法的情況下，其實存有可寬可嚴、可告可不告的空間。內地是一黨領導三權，沒司法獨立，港人在內地涉嫌犯事，內地如何處理，是按情況決定，但肯定較香港有更多不可測的因素。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916212718/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20210916212718im_/https://www.hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

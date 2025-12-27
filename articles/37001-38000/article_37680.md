@@ -1,0 +1,110 @@
+---
+title: "【封區零確診】麗港城住戶怒斥：極之擾民　「好似係我哋引起暴動佢要take action咁囉」"
+date: "2021-02-01"
+last_updated: "2021-02-01 17:09:57"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "第四波疫情"
+  - "封區強制檢測"
+  - "麗港城"
+url: "https://web.archive.org/web/20210918134206/https://www.hkcnews.com/article/37680/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtake-action%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37680/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDtake-action%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【封區零確診】麗港城住戶怒斥：極之擾民　「好似係我哋引起暴動佢要take action咁囉」
+
+政府昨晚突擊封鎖藍田麗港城第5座及第7座，強制進行武漢肺炎病毒檢測，行動於今早7時30分完成，有大約460名居民接受檢測，當中沒有發現新確診個案。有受檢疫的住客批評當局檢疫過程紊亂及緩慢，質疑為何傳媒會比住客更早得悉零確診的消息，批評政府是次行動「極之擾民」。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/麗港城-封區強制檢測-20210201154008_24eb_large.jpg" alt="">
+<figcaption>政府昨晚宣布，晚上7時起將麗港城第5座及第7座列為「受限區域」。    曾港深攝</figcaption>
+</figure>
+
+麗港城的強制檢疫行動較原定的結束時間延遲約半小時，居民需出示陰性檢測結果、電話短訊或配戴手環，以證明已接受強制檢測，登記個人資料後，可以經由指定出口離開受限區域。而政府亦在「受限區域」內派員到訪約394戶，扣除住戶被撤離的5座E室單位，約60戶在過程中沒人應門，包括一些確診個案和可能已經接受隔離的住戶，亦有可能部分單位是空置；當局又指出，昨晚有一名政府工作人員在「受限區域」內執行工作期間被一名受檢人士遇襲受傷，政府向受傷同事致以慰問並譴責有關暴力行為，呼籲受檢人士合作。
+
+### 封區住戶：傳媒８點知結果　居民９點半才知陰性
+
+從事物業管理，居住於麗港城第5座的黃女士，她昨晚8時左右回到家，得悉兩座大廈要進行強制檢測，隨即下樓詢問有關工作人員，但現場職員卻沒有交代何時進行，她只好回家等待。直至凌晨接近1時，才有職員拍門叫她下樓進行檢測，她質疑「點解唔可以一早同我哋講幾點做檢測？淨係叫我地等，又唔知等到幾點！」
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/封區強制檢測-麗港城-20210201153958_1c05_large.jpg" alt="">
+<figcaption>第5座住客黃女士批評當局做法「極之擾民」，不理解為何傳媒於8點左右便報道了兩座0確診的消息，她卻遲了兩小時才收到檢測結果的短訊。    曾港深攝</figcaption>
+</figure>
+
+黃女士表示自己今天要9時10分上班，但由於她公司需要她展示陰性檢測結果的短訊才可以上班，所以就算第5座今晨7時半左右獲解封，但她仍遲遲未收到短訊，她唯有再下樓問，卻被民政署職員打發她走，只叫她繼續上樓等短訊。最後，黃女士直到9時24分才收到陰性檢查結果的短訊，惟已過了9時10分原定的上班時間，需要自費乘的士上班。
+
+她批評當局行政紊亂及緩慢，又指傳媒於8點左右便報道了兩座0確診的消息，為何住戶卻遲了兩小時才收到檢測結果的短訊，「點解你之前有資料可以公開俾所有傳媒話無陽性，但我哋就咁遲先收到通知？完全擾民囉，公司會懷疑你真定假，係咪真係有檢測㗎嘛，根本成件事就簡單複雜化，係極之擾民！」。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/麗港城-封區強制檢測-20210201153917_1946_large.jpg" alt="">
+<figcaption>黃女士向記者展示衛生署向她發放的檢測結果短訊，時間為09：24。    曾港深攝</figcaption>
+</figure>
+
+  
+ 另外，她又批評到場協助檢疫的政府工作人員態度惡劣，令她整個強檢過程均感到十分不愉快，「我尋日同今朝落去問佢哋，佢哋都係冇答覆比到我之餘，仲要係咁打發我走，又不斷好大聲咁叫我『走啦走啦走啦』，態度唔好囉。」
+
+黃女士亦不滿警方昨晚如臨大敵，拉走不滿居民，形容警方對待住客好像對待犯人一樣，「呢個係私人地方，你執行公務我係明白，但係你個反應點解係咁對啲居民？我覺得佢哋似係我哋引起暴動佢要take action咁囉，多過佢要安撫居民。」。
+
+另外，有不少受影響的麗港城住戶都批評政府圍封行動擾民，而且亦批評當局的行動較原定結束時間延遲約半小時。住客李先生表示自己早上6點30分左右已經下樓等解封，因為政府本身說7點開放住戶出入，但結果卻等了半小時，對此感到不滿及無奈。他認為這次圍封行動沒有太大意思，建議政府效法內地把整區封閉才有用，「封一座、兩座無咩意思，要封就封晒咁多座。一座有幾多人？得嗰幾百人。你一係就好似內地咁封晒成區，但又做唔到。」。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/封區強制檢測-麗港城-20210201154021_7a2c_large.jpg" alt="">
+<figcaption>麗港城受強制檢測的住戶昨晚獲派湯包、罐頭、杯麵等物資。    麗港城地區主任張洛淋Facebook圖片</figcaption>
+</figure>
+
+不過，亦有住客認為有關當局的行動出發點是為市民安全著想。同住於第5座的鄺先生認為早前在油麻地的強制檢測行動需時3日，今次一日內完成，也是合理。但他指，政府在原定較遲的時間才完成行動，影響學生上學考試，希望下次可以在目標時間內處理。對於檢測行動未有發現確診個案，他認為現時是大時代，市民應盡量配合，「唔檢驗嘅話都唔會知道有無確診啦」，又指政府在大廈外設立採樣站，方便居民，不需要到其他地方檢測，對政府的是次行動感覺正面。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/麗港城-封區強制檢測-20210201154034_2d26_large.jpg" alt="">
+<figcaption>第5座及第7座獲完全解封後，警員將圍封的鐵馬逐一收回，所有人可以自由進出該區。   曾港深攝</figcaption>
+</figure>
+
+直至中午約11時45分，第5座及第7座獲完全解封，所有人可以自由進出該區。現場所見，本來被警方設置的鐵馬及膠帶圍封的第5座及7座，現已解封，多名警員合力將鐵馬抬回貨櫃車中。而兩座大廈外泊的三架流動檢測車、六個巨型帳篷，以及檢測承辦商在空地位置設立臨時採樣站亦已逐一清拆。現場亦有工作人員協助收拾未派發完的物資及食物，記者觀察所得，有大量派剩的物資及食物，有些食物的箱子甚至未曾開封。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/麗港城-封區強制檢測-20210201154345_2bc2_large.jpg" alt="">
+<figcaption>協助檢疫的工作人員，將現場一箱箱未開封的維他奶收拾離開。   曾港深攝</figcaption>
+</figure>
+
+
+{{< video src="https://web.archive.org/web/20210918134206if_/https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F198321275355996%2F&show_text=false&width=560" >}}
+
+
+### 四次封區比較　連續兩次零確診
+
+政府人員在四次封區期間，均會上門檢查住戶有否進行檢測，但沒人應門的住戶比例頗高。比率最高的是油麻地碧街封區，政府到306戶家訪，其中有93戶沒人應門，比例高達30%；其次是今次北角封區，政府派員到660戶家訪，扣除C座已撤離的6及7號單位，190戶沒人應門，比例為29%；而今次圍封藍田麗港城第5、7座，政府派員到394戶家訪，扣除被撤離的5座E室單位，60戶沒人應門，比例為15%；至於在佐敦封區期間，政府到3,650 戶家訪，其中有473戶沒人應門，比率為12%。
+
+<figure>
+<img src="https://web.archive.org/web/20210918134206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/北角東發大廈-封區強制檢測-20210129141245_7472_large.jpg" alt="">
+</figure>
+
+
+| 政府四次封區檢測行動比較 |  |  |  |  |  |  |  |
+| --- | --- | --- | --- | --- | --- | --- | --- |
+|  | 區內大廈首需   
+ 強檢日期 | 封區日期 | 日期相距 | 強制檢測   
+ 人數 | 檢測確診   
+ 個案 | 陽性比率 | 沒人應門比率(戶數) |
+| 佐敦   
+ （1月23-25日） | 1月8日   
+ (新填地街   
+ 26號唐樓) | 1月23日 | 15日 | 逾7000人 | 13宗 | 0.17% | 12% |
+| 油麻地碧街   
+ （1月26-27日） | 1月15日   
+ (碧街15至27號) | 1月26日 | 11日 | 330人 | 1宗 | 0.3% | 30% |
+| 北角東發大廈   
+ （1月28-29日） | 1月25日   
+ （C座） | 1月28日 | 3日 | 475人 | 0宗 | 0% | 29% |
+| 藍田麗港城第5、7座   
+ (1月31-2月1日) | 1月21日   
+ (第5、7座) | 1月31日 | 11日 | 460人 | 0宗 | 0% | 15% |
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918134206/https://www.hkcnews.com/aboutus/#subscribe)

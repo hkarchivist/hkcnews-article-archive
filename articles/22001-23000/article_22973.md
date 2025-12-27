@@ -1,0 +1,52 @@
+---
+title: "梁金成遇襲被警告勿「搞事」　 遊行申請人受威嚇"
+date: "2019-08-20"
+last_updated: "2019-08-20 00:03:40"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "遇襲"
+  - "光復上水"
+  - "梁金成"
+url: "https://web.archive.org/web/20210924100253/https://www.hkcnews.com/article/22973/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22974/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/22973/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22974/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 梁金成遇襲被警告勿「搞事」　 遊行申請人受威嚇
+
+7月13日「光復上水」遊行申請人、北區水貨關注組召集人梁金成，周日晚在沙田住所附近被人用懷疑藤條毆打，背部及臀部多處被鞭傷。案件被列作襲擊致造成實際身體傷害及刑事恐嚇，交由沙田警區重案組第一隊跟進，暫未有人被捕。協助梁金成的「光復元朗」遊行申請人鍾建平認為，近日一些針對遊行申請人的威嚇行為，是散播白色恐怖。
+
+<figure>
+<img src="https://web.archive.org/web/20210924100253im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/光復上水-梁金成-20190819231901_21f5_large.jpg" alt="">
+<figcaption>梁金成是7月13日舉行的 「光復上水」遊行申請人。資料圖片</figcaption>
+</figure>
+
+梁金成已出院休息，由鍾建平代為回應傳媒查詢。鍾建平指，梁金成周日參加完818維園集會後，先去灣仔與友人飲酒，其後回沙田家中，再下樓買東西。約晚上11時20分，梁金成途經城門河畔時，突然被4、5名男子伏擊，先是被人迎面撒不知名白色粉末，他隨即視野不清，之後被數人以疑似藤條毆打，梁金成隨即跌倒在地上，並以雙手護頭，期間施襲者用帶有鄉音的廣東話向他說：「梁金成，你咪X再搞事，今次係一個警告，下次唔會係咁。」
+
+鍾建平續指，施襲者逃去後，梁金成隨即報警，惟到場警員以他未有帶身份證為由，拒絕讓他上救護車，結果梁金成在家人帶來他的身份證後，他才可上救護車送院驗傷。梁金成頭、手、腳受傷，其中以背部及臀部傷勢較嚴重，全身共有20多處被鞭傷的痕跡。另外，《 [明報](https://web.archive.org/web/20210924100253/https://news.mingpao.com/ins/%E6%B8%AF%E8%81%9E/article/20190819/s00001/1566179772242/%E5%85%89%E5%BE%A9%E4%B8%8A%E6%B0%B4%E7%94%B3%E8%AB%8B%E4%BA%BA%E6%A2%81%E9%87%91%E6%88%90%E7%A8%B1%E9%81%87%E8%A5%B2-%E4%BB%8A%E5%8D%88%E8%A2%AB%E5%B8%B6%E5%BE%80%E6%B2%99%E7%94%B0%E8%AD%A6%E7%BD%B2%E8%AA%BF%E6%9F%A5) 》兩名記者周日晚深夜收到神秘男子來電，稱梁金成遇襲受傷及身在威院，着記者前往採訪。
+
+<figure>
+<img src="https://web.archive.org/web/20210924100253im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/遇襲-梁金成-20190819231704_1125_large.jpg" alt="">
+<figcaption>鍾建平引述梁金成指，他遇襲時被人朝面部撒白色粉末。鍾建平提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210924100253im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/梁金成-遇襲-20190819231652_1aa9_large.jpg" alt="">
+<figcaption>梁金成背部留下多條疑似被鞭打造成的傷痕。鍾建平提供</figcaption>
+</figure>
+
+鍾建平表示，梁金成在警員到場後，未有表示要報案，只說會保留追究的權利，待驗傷後再決定。梁金成在周一早上8時出院後回家休息，10時收到一名自稱為沙田重案組的警員來電，梁在鍾的建議下，把電話關掉休息；至下午1時，有警員上門到梁金成住所，要求與梁「傾吓」，及後將梁帶回沙田警署，梁在律師陪同下落口供。鍾指，警察要求「傾吓」的時候，並沒有告知梁金成是拘捕他或是邀請他協助調查，梁是其後才知道他是協助調查。
+
+鍾建平指，梁金成在727元朗遊行當天，感覺到有人跟蹤，但除此之外都沒有留意到可疑情況。他指，梁金成沒有涉及任何個人糾紛或欠債，估計是有人欲「以暴制亂」，不排除行事者為內地人。
+
+除了梁金成外，曾在反送中運動中發起數次遊行集會的劉頴匡，早前曾收到恐嚇訊息，其住所更遭人淋紅油。鍾建平作為「光復元朗」的申請人，亦感覺到自從入紙申請「727光復元朗」遊行後，一直被人跟蹤，當中包括本地人及疑似內地人。他稱，跟蹤他的本地人貌似政府人員，他不太擔心；但對於疑似內地人，他則有點顧慮。他認為，此類行為是純粹想「靠嚇」，針對一些僅是負責申請遊行的人，是散播白色恐怖，認為無須太害怕，但他亦表示會採取措施保護自己，例如保持清醒，感到有危險時會進入有閉路電視的地方等。
+
+鍾建平上月申請「光復元朗」遊行，惟遊行遭警方反對，鍾當時表示會「一個人行街」。不少市民當天仍按計劃前往元朗遊行，鍾在遊行翌日被警方以涉嫌煽惑非法集結拘捕。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924100253/https://www.hkcnews.com/aboutus/#subscribe)

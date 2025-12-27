@@ -1,0 +1,48 @@
+---
+title: "何不食肉糜"
+date: "2021-02-26"
+last_updated: "2021-02-27 16:41:20"
+author: "師潮作者群"
+category: "眾說"
+tags:
+  - "老懵懂"
+  - "董建華"
+  - "財政預算案2021"
+  - "消費券"
+url: "https://web.archive.org/web/20210920062444/https://www.hkcnews.com/article/38562/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021"
+original_url: "https://www.hkcnews.com/article/38562/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38614/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2021"
+---
+
+# 何不食肉糜
+
+【撰文：何巽權】
+
+1999年10月7日，時任行政長官董建華在「施政答問」會上，一位聽眾李先生向特首表示，「我打一個譬喻，表達大多數市民對施政報告的感受，我今天失業，又欠人家錢，居住的環境又差，忽然間有一個推銷員敲門，首先他入來批評我：『你為甚麼現在還燒柴？不行，你安裝一個煤氣爐才行，是否有微波爐？衞生啲』，他又向我推銷：『健康食品好，或者看一下甚麼化粧品』，你估計我怎樣呢？我抑或是叫他：『你過主，麻煩你』，抑或是說：『你給我一碗飯吃，我吃完飯才跟你談』，我只是說這些事，即是我的感受。」
+
+行政長官回應：「李先生，我覺得那位推銷員沒有資格當推銷員，我會拍門來跟你怎樣說呢？第一點，我會說：『我帶了一些月餅來，大家一起．．．』」聽眾李先生說：「我幾天沒有飯吃」。行政長官回應道：「我會跟你說今天所做的一切，是為了你子子孫孫去做的」。聽眾李先生跟着說：「我都沒有飯吃，我理會我的子子孫孫．．．．」。
+
+現今本港失業率創新高，財政司司長陳茂波於2021年2月24日宣讀新一份財政預算案時表示，會向全港18歲以上合資格市民及新來港人士，派發5,000港元電子消費券。他表示，電子消費券將分5個月派發，每月1,000港元，爭取最快暑假開始登記，涉及約360億港元。有指當中6億港元為行政費，包括用以支付承辦商服務費、宣傳等。
+
+<figure>
+<img src="https://web.archive.org/web/20210920062444im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/消費券-財政預算案2021-20210224202302_23cd_large.png" alt="">
+</figure>
+
+在此我不妨引用《晉書・惠帝紀》中有關的事例，供大家參考比較：
+
+帝嘗在華林園（司馬衷曾在華林園遊玩），聞蝦蟆聲（聽到蛤蟆咕呱咕呱的叫聲），謂左右曰（就對侍從們說）：「此鳴者為官乎，私乎（這叫喚的東西是官家的還是私人的）？」或對曰（侍從們說）：「在官地為官（這叫喚的東西在官家地就是官家的），在私地為私（在私人地就是私人的）。」及天下荒亂（到了天下災荒的年歲），百姓餓死，帝曰（司馬衷竟然問）：「何不食肉糜（他們為什麼不吃肉粥呢？」其蒙蔽皆此類也（他的昏聵痴頑都是這種樣子的）。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920062444/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 師潮作者群](https://web.archive.org/web/20210920062444im_/https://www.hkcnews.com/uploads/avatars/8d0a908a-3f23-4698-9dc0-f370e84d7345.png?1393402290)
+
+**博客 | 師潮作者群**
+
+【師潮】我們主要是一群熱愛教學的中文老師，分別任教大、中、小學和幼稚園，並從事語文教學研究工作。我們期望以理論結合實踐，對語文教學問題，以至其他社會關注的教育問題，抒述己見，拋磚引玉，集思廣益，促進教育專業發展。

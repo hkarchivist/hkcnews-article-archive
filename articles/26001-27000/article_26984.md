@@ -1,0 +1,49 @@
+---
+title: "《美國之音》：中國公民運動倡導者許志永被捕"
+date: "2020-02-17"
+last_updated: "2020-02-17 07:57:38"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "拘捕"
+  - "美國之音"
+  - "許志永"
+url: "https://web.archive.org/web/20211128171135/https://www.hkcnews.com/article/26984/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26985/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/26984/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26985/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《美國之音》：中國公民運動倡導者許志永被捕
+
+<figure>
+<img src="https://web.archive.org/web/20211128171135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/大抓捕-許志永-20200108191106_158d_large.jpg" alt="">
+<figcaption>《美國之音》報道，許志永（圖）周六晚在廣州番禺被帶走，已經證實被捕。資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211128171135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/許志永-拘捕-20200217073609_17b9_large.png" alt="">
+<figcaption>許志永被捕前一天在Twitter的貼文。許志永Twitter</figcaption>
+</figure>
+
+《美國之音》報道，中國作家野渡周日晚披露，中國公民運動倡導者、法學博士許志永周六晚約6時許在廣州番禺海鷗島被帶走，已經證實被捕。《美國之音》報道，此前有目擊者稱，廣州女律師楊斌一家三口與一名男子一同被帶走。
+
+《美國之音》引述野渡說，他剛從廣州的朋友處了解到，許志永已經被捕。許志永被指控是去年12月13日廈門聚會的「幕後黑手」。有目擊者說，周日下午，一批警察到楊斌租住的居所（許志永隱居處）搜查取證。中國公民運動的支持者和維權律師群體正密切關注事態發展。據悉，楊斌及其家人被警方關押一天以後，已經放回，但不願透露相關情況，據信已被警告封口。
+
+被捕前的一天，許志永於2月14日在Twitter貼文說，「當人民為李文亮醫生也自己的祖國痛心不已，這幫家夥躲在陰暗處充當耳目，『建議有關部門加大工作力度，迅速甄別謠言和境外勢力的不良企圖，澄清並封殺。』他們心中，沒有是非，沒有良心，沒有底線，沒有人性。只有他們所謂的政治，為權力私欲不擇手段。曬曬這個『沃民高科』」。
+
+《美國之音》的報道指，野渡表示，去年12月26日，當局對參與廈門一次支持公民運動的人士聚會展開抓捕以來，許志永一直在逃亡中。在此期間堅持發聲，而當局在搜捕許志永的過程中，曾多次騷擾跟蹤其家屬和朋友。
+
+武漢肺炎爆發後，許志永2月4日在逃亡中發表文章《勸退書》勸告習近平「讓位」。許志永在《勸退書》開篇指出：習近平並非政治家，因其沒有思想和不清楚治國方向。在「中國夢」、「民族復興」等標語下，強權扭曲市場、經濟每況愈下；邊喊改革開放，邊為馬列招魂；邊講治理現代化，邊強調黨領導一切。許志永並質問習近平要把中國帶往何處，到底是民主法治，還是一尊獨裁？是現代化，還是文革化？《勸退書》最後指：一個修憲永續和瘋狂維穩的習近平正在掏空中國，打造一個人人負債的窮國，而國人正在為此買單。許志永表示，自己為中國的未來深切憂慮，願做「皇帝的新衣」中說出真話的孩子，要求習近平勿逆流而動，而是歸隱休息。
+
+野渡指出，許志永近日在廣州楊斌律師的居所，近期因疫症關係，各社區封鎖排查日趨嚴格，終於在周六晚被捕。去年年末，參與上述廈門聚會或支持公民運動的中國公民丁家喜、戴振亞、張忠順等多人相繼被捕。
+
+野渡認為，廈門聚會只是一些公民一起吃飯聊天，本來是公民有權進行的正常活動，可是當局成立專案組，在疫情如此嚴重之際動用大量資源來抓捕，是很荒謬的事情，「這也證明了我們現在所處的社會在黨國控制社會那種殘酷性，不容許一絲一毫的公民不同聲音不同活動存在。」
+
+現年46歲的許志永曾是北京郵電大學講師，也是憲政學者。他曾參與推動廢除收容遣送制度的三博士公民上書活動，並於2003年和2006年連續當選兩屆北京市海澱區人大代表。2003年創立「公盟」組織，該組織曾為三聚氰胺毒奶粉受害人家長提供援助，推動教育平權，要求官員公示財產。2014年1月26日，北京市第一中級人民法院以「聚眾擾亂公共場所秩序罪」為名，判許志永有期徒刑四年。2017年7月15日許志永刑滿出獄，此後繼續從事促進憲政、法治和公民權利活動。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128171135/https://www.hkcnews.com/aboutus/#subscribe)

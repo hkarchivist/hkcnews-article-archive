@@ -1,0 +1,77 @@
+---
+title: "主教山配水庫增玻璃天窗　下月開放公眾導賞　水務署：除非有一指神功　摸石柱無問題"
+date: "2021-11-25"
+last_updated: "2021-11-25 15:27:18"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "水務署"
+  - "水務處"
+  - "Water Supplies Department"
+  - "water department"
+  - "主教山配水庫"
+url: "https://web.archive.org/web/20220123095533/https://www.hkcnews.com/article/48126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48152/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48152/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 主教山配水庫增玻璃天窗　下月開放公眾導賞　水務署：除非有一指神功　摸石柱無問題
+
+**一級歷史建築主教山配水庫，去年在民眾以身擋挖土機，一遍保育呼聲下得以保留。一年後，水務署最新公布，已完成花費二千萬元的加固工程，配水庫將於下月15日重開，公眾可參加導賞團免費參觀，下周三起可以報名。**
+
+**水務署助理署長鍾永基指，參觀者可在配水庫自己行、自己睇，「行出平台（架高地台）近啲睇條柱絕對無問題。」被問到可否摸？他說，要尊重歷史文物，但「掂下石頭唔會摸爛佢，除非你有一指神功。」**
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135527_1a36_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135204_11e2_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135158_1991_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135221_2faa_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135233_c521_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135536_1b3d_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/主教山配水庫-20211125135213_228d_large.jpg" alt="">
+<figcaption>水務署圖片</figcaption>
+</figure>
+
+### 為期半年公眾導賞　未決定保育方向
+
+擁有過百年歷史的主教山配水庫，去年被挖土機鑿開，意外被市民發現。水務署助理署長鍾永基表示，今年初為配水庫展開加固工程，支撐配水庫頂部混凝土天花、磚拱等可能有潛在鬆脫的結構部分，亦增設臨時排水設施，疏導雨水。至於被鑿開的部分，已加設透光玻璃天窗，可以遮風擋雨，天窗玻璃坡度設計有助減少熱能、降低風阻。為了公眾導賞，配水庫內增設架高地台和樓梯，配水庫外圍另設有保安圍欄及閉路電視。整個加固工程花費二千萬元。
+
+公眾導賞團由下月15日開始，至明年6月14日開放，為期半年，每團有12個名額，再加兩名導賞職員。除公眾假期外，一周七日都可參加導賞，每次導賞約90分鐘，由下月1日起可在水務署的配水庫專頁網上報名，署方預料每月最多可帶1000人參觀。對於參觀人數會否影響保育？署方指出，每次只有12人參觀，相信配水庫絕對容納得到參觀人數。導賞團會由外判公司承包，每團成本價約2000元，整個項目花費約60萬元。
+
+導賞團路線由巴域街開始，再登上配水庫，沿途會參觀1904年已封閉的隧道口、已封閉的天窗、混凝土拱形天花、花崗石柱、仿羅馬紅磚拱券、50年代加建的水管等。鍾永基解釋，參觀者在配水庫範圍，基本上可以自己行、自己睇，「行出平台（架高地台）近啲睇條柱絕對無問題。」被問到可否摸？他說，要尊重歷史文物，但「掂下石頭唔會摸爛佢，除非你有一指神功，否則絕對無問題。」
+
+<figure>
+<img src="https://web.archive.org/web/20220123095533im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/水務署-主教山配水庫-20211125135131_2b57_large.jpg" alt="">
+<figcaption>左起：水務署高級工程師（水塘安全）黃曦諾、水務署助理署長（市區）鍾永基、水務署高級工程師（公共關係）羅偉濠</figcaption>
+</figure>
+
+### 本土花崗石柱　具香港特色
+
+至於哪一部分最有歷史價值、香港特色？水務署高級工程師黃曦諾說，配水庫在1904年落成，由英國工程師採用英國技術，當時未必很有香港元素加入去，但建築物料，包括最顯眼的多條花崗石柱，相信都是出自本土，來自本土山頭或礦場，更不排除是開鑿這座山頭時的石頭，都有香港特色。
+
+受挖土機開鑿影響，整個配水庫有一成二部分受損，四條柱被拆毀，但署方已有保留受損部分的建築材料。對於未來的保育方針，鍾永基表明對配水庫成為公園還是博物館，持開放態度，希望在導賞團中聽取公眾意見。至於公眾需否接種疫苗後才可參與導賞團？他即說：「我哋無啲咁嘅嘢。」不過水務署人員其後補充，以政府場地而言，要用「安心出行」。
+
+主教山配水庫去年被挖土機鑿開，古蹟辦更被揭發在2017年，誤判配水庫為水缸，未有跟進，引來社會保育呼聲。文物保育專員蔣志豪去年12月到場視察後表示不好意思，形容是「掛萬漏一」，古物諮詢委員會今年3月將配水庫評為一級歷史建築。

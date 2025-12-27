@@ -1,0 +1,65 @@
+---
+title: "涉fb發文企圖刑恐聚賭者　前區議員辯稱警方不執法致壓力大　上傳刀具照片因想自殘"
+date: "2021-12-03"
+last_updated: "2021-12-03 19:22:14"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "區議員"
+  - "天耀邨"
+  - "刑事恐嚇"
+url: "https://web.archive.org/web/20220125021852/https://www.hkcnews.com/article/48528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48538/%EF%BF%BD%EF%BF%BD%EF%BF%BDfb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48538/%EF%BF%BD%EF%BF%BD%EF%BF%BDfb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 涉fb發文企圖刑恐聚賭者　前區議員辯稱警方不執法致壓力大　上傳刀具照片因想自殘
+
+今年7月辭職的元朗區議員何惠彬，涉於去年3月在其個人facebook專頁發文，稱收到街坊投訴後，計劃向非法聚賭人士「掃場」，並附上一把刀的照片。何否認企圖刑事恐嚇罪，今（3日）在屯門法院受審。他自辯稱天水圍屋邨非法聚賭問題嚴重，警方接報後不解決，當日他再收到街坊投訴，壓力很大，「執法嘅唔執法，我夾喺中間」，欲提刀自殺卻「拮唔落手」，故上載刀具照片表達心情。他強調並非想威嚇或傷害任何人，因聚賭者也是邨內街坊，「我冇理由會恐嚇一班搭我膊頭、嗌我『彬仔』嘅人」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125021852im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/區議員-刑事恐嚇-20211203163327_28d6_large.jpg" alt="">
+<figcaption>被告何惠彬</figcaption>
+</figure>
+
+### 官質疑涉犯罪的行為已完成　不應告「企圖」恐嚇
+
+被告何惠彬（32歲）被控於去年3月21日企圖威脅他人會使其人身遭受損害，意圖使他人受驚。案件押後至12月21日作結案陳詞，其間被告繼續保釋。
+
+甫開庭，裁判官施祖堯便質疑控告企圖刑事恐嚇罪的基礎，稱涉案帖文已發出，犯罪行為已完成，「點可以返轉頭告『企圖』呀？一係就構成刑事恐嚇，一係就不構成刑事恐嚇」。
+
+惟控方外聘大律師兩度向律政司索取意見後，稱由於沒足夠證據證明有目標受害者看到涉案帖文及照片，並且因而受驚，故不會修改控罪。控方沒有傳召任何證人。
+
+### 被告：從不見警方到場處理聚賭　「唔相信警察會執法」
+
+被告自辯稱，他於前年12月就任元朗區天耀選區區議員後，有居民投訴稱耀興樓地下有人聚賭，他於是向屋邨辦事處反映，並且報警，但從沒見過警員到場處理。
+
+其後他成功解決了耀興樓的聚賭問題，但不久後又發現耀逸樓也有非法賭檔。他直言「自從耀興樓之後，我唔相信警察會執法」，故沒有報警，親自到場勸喻。當時聚賭的街坊搭著他的膊頭表示「得，我哋聽彬仔話」，但未幾又故態復萌。
+
+### 煮食時萌自殘念頭　「我完咗咪唔洗處理囉」
+
+案發當天，被告再收到街坊投訴，對方激動地表示想親自趕走非法聚賭人士。他自言，因感到街坊之間有嚴重矛盾，感到很大壓力，「執法嘅唔執法，我夾喺中間」，哽咽謂：「當時我喺廚房煮緊嘢食，我想自殺，好大嘅衝動想拮落隻手度。」
+
+他稱當時「好想放棄，好想一刀捅落去，我完咗咪唔洗處理囉」，但一想到自殺不能解決問題，便下不了手，故在帖文寫道「拮唔落手」。至於帖文提到「手心手背都會痛」，他稱只是比喻手法，指不論如何處理，都有街坊不滿意。
+
+被告稱，由於當下想不到任何表達方法，故他拍攝了一把刀，「一把我捅唔落自己手嘅刀」，然後放上專頁。他強調沒打算威嚇任何人，「我冇理由會恐嚇一班會搭我膊頭、嗌我『彬仔』嘅人，冇理由恐嚇一班對我友善嘅人」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125021852im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/區議員-刑事恐嚇-20211203163243_230d_large.jpg" alt="">
+<figcaption>涉案facebook專頁帖文（網上圖片）</figcaption>
+</figure>
+
+### 有工具但不打算使用　「警察陀槍一定要開槍？」
+
+至於帖文提到「未諗好帶乜，棍棒刀鋸我都有」；被告解釋稱「我真係未諗好帶乜」，加上投訴的街坊曾揚言會動用掃把「趕佢哋（聚賭者）走」，令他想起自己也有工具。
+
+惟他強調，從沒打算使用任何工具傷人，反問：「警察陀槍係咪一定要開槍？」發帖後不久，警方便來電問他是否將有所行動，他回應稱只打算「落去傾吓偈，叫佢哋唔好再賭」。
+
+被告在控方盤問下表示，沒留意有多少人讚好涉案帖文，「我未自戀到呢個程度」。被問到為何要以「得罪街坊系列：掃賭檔」作為帖文標題，他稱這是警方常用字，不認為有問題，而他擔任區議員期間一直傾向「用啲有力嘅字眼」。
+
+### 沒寫清楚想法　因不欲顯露脆弱一面令街坊擔心
+
+他表示，發佈涉案帖文時沒有深思熟慮，只是在受壓情況下「跟隨意識嘅跳躍去寫」。他不同意控方所指，涉案刀具照片會使人受驚，因只是用來「向自己發洩」，反問：「把刀切金菇㗎喎！驚咩呀？」
+
+控方質疑，他為何不在帖文中清楚交代拍攝刀具照片的原因。他表示不想透露自殘傾向，謂：「點解要將我最脆弱嘅一面顯露喺facebook上面？」他形容這是一種壓抑，不想令街坊擔心，「無論點傷害自己都好，係我嘅私人生活」。
+
+案件編號：TMCC1376/21

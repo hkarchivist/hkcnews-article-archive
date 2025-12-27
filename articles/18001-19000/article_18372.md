@@ -1,0 +1,56 @@
+---
+title: "澳洲留學生英語水平惹州長關注"
+date: "2019-02-10"
+last_updated: "2019-02-10 07:03:39"
+author: "魏德真"
+category: "眾說"
+tags:
+  - "澳洲"
+  - "澳大利亞"
+  - "留學生"
+  - "英語水平"
+url: "https://web.archive.org/web/20220120023422/https://hkcnews.com/article/18372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18406/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/18372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18406/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 澳洲留學生英語水平惹州長關注
+
+留學生來到澳洲升學，由於英語不是第一語言，需要適應無可厚非，但程度如果去到維州州長關注，要去信給全國專上教育聯盟（National Tertiary Education Union），承諾與聯邦政府一同處理，那就真是一個問題了。
+
+聽一些留學中介說，現在申請來澳洲升學，有一條龍式服務，從選校，辦簽證，接機，找住所，都可以代辦，而到埗後，學生都傾向於與「同聲同氣」的社群連結，不用說英語之餘，亦很少接觸澳洲本土文化。除了上課、做論文，在課堂亦很少參與討論（因為思考和表達都不及本地學生反應快，他們從小在課堂就訓練多表達意見），課餘上網live chat，一有假期便返回原居地，根本很少接觸英語，越難就越避，結果可能畢業（如果能順利的話），英語水平與未來留學前，基本上沒有甚麼進步。這是現今部份澳洲留學生的寫照。
+
+<figure>
+<img src="https://web.archive.org/web/20220120023422im_/https://hkcnews.com/news_新聞/hk-discuss/2019/01/中國留學生-澳洲-News-20190125193833_1ea0_large.jpg" alt="">
+<figcaption>到澳洲留學的學生以中國學生佔最多。照片來源：sbs.com.au</figcaption>
+</figure>
+
+又曾經看過網民留言，現在的所謂的澳洲留學生，正職是「走粉」——做奶粉代購，「代購」是指走水貨，往藥房超市入貨，特別是奶粉需求極大，一罐奶粉（最受歡迎的a2 Platinum infant formula）入貨平均每罐$25，最高可以賣$100，但一般情況賣$45，從網上平台對話了解到，每月可賺$800元，有些代購更可達年薪十萬，求學也許巳成副業。
+
+回應維州州長安德魯斯（Daniel Andrews）對留學生英語水平的反應，署理教育廳長馬連奴（James Merlino）認為這種態度有欠公充，留學生對維州教育制度非常重要，如果入讀時水平不足，可以透過一些銜接課程（bridging course）來補救。
+
+全國專上教育聯盟維州主席金巴利（Nic Kimberley）在大學任教，亦是導師，發現很多留學生都缺乏讓他們能夠學習成功的英語程度，所以值得關注。學生需要重讀的時候，會產生羞恥感，他表示並不想看到留學生失敗，可是經常收到學生電郵，乞求加分令他們可以及格，這令到作為大專教師的他很為難。
+
+金巴利亦提出，很多本地學生都避免和留學生一起做小組的研究項目，因為如果和英語很差的同組，會遇上困難和感到困擾。
+
+另外有不願透露身份的學者稱，他在維州大學任教三年，所負責的課程，留學生人數增加了三倍，其中很多的英語能力，應付課程會有困難。可是大學的管理層表示，在政府撥款不穩定的情況下，留學生可以提供大學就業及研究方面急需的資金，即使他知道很多留學生沒有足夠的英語能力，可以積極參與課堂的學習，或者完成一份有水平的作業。
+
+他又坦言，如果課堂有超過半數的留學生，會面對很大的壓力，對教師來說，當然希望學生可以給學生及格的評核，因為如果學生做得不好，對老師來說也是一件蒙羞的事。
+
+故全國專上教育聯盟希望，可以由審查學生簽證英語水平著手，以及大學應為不同課程設定語文標準，並為留學生提供英語輔導服務。
+
+目前澳洲聯邦政府要求學生簽證申請者的雅思（ [International English Language Testing System](https://web.archive.org/web/20220120023422/https://en.wikipedia.org/wiki/International_English_Language_Testing_System) ）總成績最低為5.5分（9分滿分），而大多數大學要求要有6-7分，但如果留學生在大學課程開學前，修讀20個星期的英語強化課程，只要得4.5分就可獲批學生簽證。
+
+4.5分屬一般水平，雖然他們必須通過英語強化課程的測試，但不用再考雅思，而有約四份一留學生是通過這方式入讀澳洲大學。
+
+一名留學生透露，抵達墨爾本之後，英語水平連在食店落單也不成，每次都是指著餐牌。他報讀了一個為期18個月的英語課程，希望可以改善。他在大學的時候，經常為到要聽明白講師，及撰寫論文而掙扎，更遑論在導修堂參與討論，後來更由文科轉成理科，希望可以應付。
+
+另一位學生就因英語水平不足而有幾科不及格，與他組成小組研究的幾位都是以英語為第一語言的學生，在小組中根本不明白討論的內容。他在澳洲已經五年，最初兩年在高中就讀，現在仍然為英語掙扎，漸漸更影響了精神健康，經常感到孤單和疏離。   
+ 澳州大學聯盟（Universities Australia）行政主任積遜（Catriona Jackson）表示，澳洲大學設定的英語語言要求，是和其他世界領先的教育部門相當。而且部分大學的學科，水平更比獲批學生簽證的最低要求高。她認為通過銜接課程的學生，應該具備了完成高等教育的資格，並取得可以完成學科所需的英語技能。
+
+---
+
+![博客 | 魏德真](https://web.archive.org/web/20220120023422im_/https://hkcnews.com/uploads/avatars/ec16f860-ba84-45ae-9760-70226bbb3da6.png?1436977809)
+
+**博客 | 魏德真**
+
+【魏德真・南之國境】作者生於香港，留學澳洲，現居墨爾本──世界最宜居城市之一，並享有咖啡之都美譽，每天讀新聞、寫日記和喝咖啡。

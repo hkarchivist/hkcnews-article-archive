@@ -1,0 +1,71 @@
+---
+title: "【無家者告政府】康文署否認將申索人床褥衣物丟垃圾車　經理：「你可以睇係垃圾車，我哋叫運載工具」"
+date: "2021-11-10"
+last_updated: "2021-11-10 19:57:08"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "露宿者"
+  - "無家者"
+  - "小額錢債審裁處"
+url: "https://web.archive.org/web/20220127085450/https://www.hkcnews.com/article/47522/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47538/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47522/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47538/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【無家者告政府】康文署否認將申索人床褥衣物丟垃圾車　經理：「你可以睇係垃圾車，我哋叫運載工具」
+
+十多名無家者就前年12月警方及康文署人員，在沒有事先通知的情況下，將他們的個人物品清走一事索償，案件今（10日）在小額錢債處續審。負責當日行動的康文署通州街公園經理稱，無人認領的物品，按一貫程序會保留三日。至於被社協代表質問為何露宿者的物品被放在垃圾車及垃圾房，經理反駁：「你可以睇嗰樣嘢係垃圾車，我哋叫運載工具......嗰個唔係垃圾房，係（壁球場）後門位置。」
+
+<figure>
+<img src="https://web.archive.org/web/20220127085450im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/無家者-小額錢債審裁處-康樂及文化事務署-20211110172200_20fb_large.jpg" alt="">
+<figcaption>康文署通州街公園經理王先利今日作供。鄭靖而攝</figcaption>
+</figure>
+
+十多名無家者在社區組織協會協助下向政府提出索償，指前年12月21日下午，警員及康文署職員在深水埗通州街公園，以反罪惡行動為由，在沒有事先通知下，把申索人的家當丟棄，損失物品包括衣物、輪椅、回鄉證、現金等，索償介乎2,000元至13,290元。申索方及律政司一方已完成舉證，審裁官林希維將案件押後至明年1月22日作結案陳詞。
+
+康文署通州街公園經理王先利今日作供時指，當天是警方及康文署的聯合行動，警方負責反罪惡及掃毒，而康文署則負責場地清潔。他指，由勸喻露宿者清走物品到開始清場，大約相隔20至30分鐘，他不同意露宿者指僅有約3分鐘時間收拾，認為已給予足夠時間對方處理個人物件。
+
+代表申索方的社協盤問時，問及有關通州街公園露宿者的情況，王指該處約有65至70名露宿者，年齡主要為約50、60歲，部分人要坐輪椅或用拐杖，而最多人在公園的時段為晚上。王先利指，當日下午行動時，現場約有20多名露宿者，其餘約一半人不在場，他說當時已叫在場的露宿者幫忙通知其餘不在場的人，認為這是最可行的方法。
+
+### 按程序保留三日　「有價值啲嘅物品會交畀警方」
+
+王指，署方會按一貫程序，將無人認領的物品放在壁球場後門位置，保留三日。社協幹事陳仲賢問，若署方檢到無人認領的手機，會否亦是同樣做法，王說：「唔同嘅，有價值啲嘅物品會交畀警方處理。」至於沒將露宿者的物品交予警方處理，是否認為物品沒有價值，王只重覆稱，無人認領的物品會放在壁球場後門。社協幹事吳衛東指物品被放在垃圾房，王更正：「嗰個唔係垃圾房，係（壁球場）後門位置。」   
+   
+ 王同意，存放物品的地方很少會上鎖，理論上任何人都可去到。吳追問，當露宿者的物品放在沒有蓋好的垃圾桶時，會否有機會被天雨弄濕、有否職員看顧，但審裁官林希維打斷，指本案集中在露宿者物品被取走，之後的保管事宜與本案無關。
+
+社協幹事陳仲賢提到署方那天將露宿者物品放在垃圾車，王亦更正：「你可以睇嗰樣嘢係垃圾車，我哋叫運載工具。」
+
+王於書面口供提到，康文署每季都會進行一次大型清‌潔行動，雖然法例並無規定須事先通知，但署方在可行情況下都會張貼告示知會露宿者，惟事發時由於是警方進行反罪惡行動，必須保密，故之前沒張貼告示通知會有清場行動。
+
+### 露宿者：「清潔」及「清場」相距甚遠
+
+其中一名露宿者劉嘉曦親自盤問，他認為對露宿者來說，「清潔」及「清場」相距甚遠，質疑康文署為何會以「清場」形容，王稱是「手民之誤」，當天是配合警方進行清潔行動。
+
+王先利指，若露宿者希望尋回家當，職員樂意提供協助。惟劉追問，若露宿者不在場，如何向職員提出請求，王先靜默數秒，後指壁球中心有職員當值。劉說當天有要求協助，惟並沒有人幫他。
+
+### 事隔兩年開審　14名申索者有人去世有人失聯
+
+案件事隔兩年開審，原本有14名無家者入禀，當中1人於上月去世、2人失聯，只剩下11位無家者繼續控告政府。昨日案件開審，最終再有2人失聯，被剔除申索；另外1人留醫，1人正還柙，只有7人出庭，其中過半數人須坐輪椅。
+
+<figure>
+<img src="https://web.archive.org/web/20220127085450im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/小額錢債審裁處-露宿者-無家者-20211110172140_2de4_large.jpg" alt="">
+<figcaption>案件事隔兩年終開審，惟其中一名露宿者馬月榮已離世。持照者為其表弟周雄光，並為申索人之一。周雄光昨日開庭前說，這次官司是希望可以討回一個公道。黎家威攝</figcaption>
+</figure>
+
+7名露宿者昨日作供，審裁官盤問時主要問及遺失物品的詳情、如何估算物品的價值；在政府人員清場時有否檢走自己的物品、事後到壁球場尋找物品的過程等。部分露宿者表示清場時不在場，其後才得悉家當被移到壁球場外垃圾房。部分在場的露宿者則指，警方指只給他們3分鐘收拾，「3分鐘點執？唔知拖得床褥好定咩好」，有人表示拖走摺床後再折返，家當已經被清走。
+
+### 審裁官指露宿者索償　有責任減低損失
+
+多名露宿者均提到，得知物品被送到壁球場附近垃圾房後，到該處嘗試看看垃圾車有否其物品，但只見部分從翻倒的垃圾車散落的物品如床褥衣物等，已被污水弄髒，「又腥又臭」，他們更被清潔工趕走；部分人行動不便要坐輪椅或年紀老邁，亦無力翻查。   
+   
+ 審裁官仔細問及露宿者花了多少時間、如何尋找其物品，及如露宿者行動不便無法親自翻查，有否找人幫忙。其中有露宿者指沒找人協助，「搵到都冇用，又濕又污糟，廢事啦」。審裁官聞言即指，露宿者申請索償，有責任減低損失，
+
+> **你唔去睇，點減低損失？你可以拎去洗。你冇去搵，又唔搵人幫手，就當唔見咗去申索，唔可以咁㗎喎。**
+
+
+### 康文署：配合警方反罪惡行動   
+ 警方：配合康文署清理行動
+
+當天負責行動的深水埗警區特別職務隊主管吳彥柏昨日亦有作供。他指，當天帶領3名警長及19名警員到通州街公園，主要是配合康文署行動，由康文署職員清走無人認領的物品，他與其餘警員由下午3時40分起開始勸喻露宿者清理個人物品，至4時05分康文署人員開始清理物品，兩者相隔25分鐘，並非如露宿者所說的3分鐘。他亦指，行動中沒有無家者反映被清理的為其物品，指康文署所清理的是無人認領的物品。
+
+社協吳衛東盤問時問到，康文署證供指是配合警方反罪惡行動，但警方卻稱是配合康文署清理行動，而警方亦沒有在公園清場行動中拘捕任何人。吳彥柏指，整天來看，當天警方有在清場行動前於該區拘捕5人，均與販運或管有毒品有關；至三時半則開始配合康文署清理行動。

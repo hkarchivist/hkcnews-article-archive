@@ -1,0 +1,43 @@
+---
+title: "推動Lesser Evil的替代品"
+date: "2018-03-18"
+last_updated: "2018-03-20 21:39:48"
+author: "張秀賢"
+category: "眾說"
+tags:
+  - "電動車"
+  - "電子煙"
+url: "https://web.archive.org/web/20220124040347/https://www.hkcnews.com/article/10821/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-10905/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDlesser-evil%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/10821/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-10905/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDlesser-evil%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 推動Lesser Evil的替代品
+
+  
+ 因為大家眾所周知的原因，我差不多整年都沒寫《眾新聞》這邊的專欄。隨住補選完結，我會每星期都在這裡撰文，分享我對經濟政策和社會議題的看法。
+
+這個題目我想寫很久，就是討論電動車免稅額應否重設。在今年度的財政預算案，陳茂波就增加了電動車的首次登記稅寬免額度，本身電動車購置劃一減免9.75萬元稅項， 而新年度將會在此基礎上增加「一換一」計劃，舊車換新電動車將可獲總共25萬元的稅項寬免。之前取消電動車額外稅務寬免，令不少電動車趕於上財政年度開始前登記，出車量急增，而現時則有不少油動車新登記，令政策與原先的減排政策背道而馳。
+
+<figure>
+<img src="https://web.archive.org/web/20220124040347im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/03/ニュース-電動車-20180309125210_2d04_large.jpg" alt="">
+<figcaption>香港政府推動電動車的政策反覆。香港電台照片</figcaption>
+</figure>
+
+電動車這樣的交通工具，本身是油動車的Lesser Evil版本，減少路面排放，因而改善路面空氣質素。現時政府延續商用電動車的稅務優惠，正是呼應現時政府的減排政策。可是，路面使用主要的車輛都是以私家車為主，減低路面排放理應先由私家車減排開始，盡量透過適當的稅務優惠，增加車主將現時使用油動車改為使用電動車的誘因。 之前的稅務寬免政策，可能過份刺激了電動車的購買意欲，令路面更多車輛使用。現時推動「一換一」計劃，可以令車主增加以舊換新，以電動車取代油動車的意欲，推動電動車在香港進一步普及。推動市民使用Lesser Evil的替代品，需要政府政策配合，才能收效。
+
+<figure>
+<img src="https://web.archive.org/web/20220124040347im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/10/行為經濟學-塞勒-電子煙-20171009222929_f76e_large.jpg" alt="">
+<figcaption>政府計劃規管電子煙。</figcaption>
+</figure>
+
+上星期，食衛局局長陳肇始就表示即將就加熱煙和電子煙進行規管。加熱煙都是煙草制品的一種，當然對人體造成健康的傷害。可是，在原理上，加熱煙是將煙草加熱，而不是傳統香煙般直接燃燒，因此焦油和一氧化碳也難以透過高溫燃燒下釋放出來，而不少研究似乎都支持此點。加熱煙在外國大行其道，而香港仍未合法售賣，但現時香港已出現不少加熱煙煙彈的售賣，可見現時沒規管反而助長了私煙的出現。因此，與時並進盡快規管加熱煙和煙彈在香港有序出售，並禁止18歲以下人士購物，方為正道。同時，政府亦可以思考是否將傳統香煙的稅項增加，以令煙民可以選擇Lesser Evil一點的加熱煙，值得大家考慮。
+
+推動Lesser Evil的替代品，如以前提出以能源標籤鼓勵市民購買高能源效益的家電，以至電燈膽等，都需要政府政策和配套配合，才可以有效在香港推動符合政策目標和公眾利益的措施和行為。
+
+---
+
+![博客 | 張秀賢](https://web.archive.org/web/20220124040347im_/https://www.hkcnews.com/uploads/avatars/631d939c-8bea-450c-8d07-fe8a0c3ece1a.png?867003147)
+
+**博客 | 張秀賢**
+
+【張秀賢・王佐之策】評論人、Start-up人、劇場人、學生、文化人、半個音樂人，最緊要係香港人，曾經喺學民思潮、學聯、中大學生會路過，而家半路出家學人搞Start-up。

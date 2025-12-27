@@ -1,0 +1,42 @@
+---
+title: "有關港人持外國國籍衍生的問題"
+date: "2021-01-20"
+last_updated: "2021-01-20 16:26:10"
+author: "王永平"
+category: "眾說"
+tags:
+  - "BNO"
+  - "bno passport"
+  - "bno 護照"
+  - "國籍法"
+url: "https://web.archive.org/web/20211208155602/https://hkcnews.com/article/37384/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-37386/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37384/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bno-37386/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 有關港人持外國國籍衍生的問題
+
+中央對英國容許BNO港人來英定居及入籍的措施，表明會採取反制行動後，有行政會議成員建議循此途徑取得英籍的港人，應根據中國《國籍法》第9條自動喪失中國國籍。從香港回歸後，港人須愛國，更不應戀英的角度看，這個建議百分百政治正確。問題是，此舉可能令透過其他途徑取得英國或其他外國國籍的港人擔憂，日後會否需要作出某類顯示愛中國的抉擇。
+
+<figure>
+<img src="https://web.archive.org/web/20211208155602im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/香港赤化-中國國旗-Hong%20Kong-20190920200454_3386_large.jpg" alt="">
+</figure>
+
+先從《國籍法》及國家政策說起。除了上文提到的第9條外，《國籍法》第3條明確規定「中華人民共和國不承認中國公民具有雙重國籍」。因此，在年前的銅鑼灣書店事上，雖然英國確認當事人之一的李波擁有英國國籍，但中國外長王毅嚴正聲明他「首先是中國公民」。換句話說， **本身屬中國國籍的港人（除非按《國籍法》第10條經申請獲批准退籍），無論持有甚麼外國國籍，都會被視為中國公民，而他們在中國（包括香港）境內，亦不會獲得其所屬外國政府的協助。值得留意的是，中國國籍定義非常寬鬆，例如《國籍法》第5條列明，父母一方為中國公民且非定居外國，即使本身出生在外國，亦算具有中國國籍。**
+
+現將持有外國護照的港人，估計接近100萬人，其中持加拿大和澳洲護照的分別約有50萬和30萬人。視乎香港的政治形勢和中央可能採取的反制措施，利用BNO身份移居英國的港人，在未來數年估計有數十萬人。不過，與其他「外籍」港人不同，BNO人士須在英國連續居住6年後才可申請入籍。因此，倘若在他們正式取得英籍後才取消其中國國籍，這項措施不足以令他們放棄移民英國的機會。 **至於針對BNO護照持有人的權利的措施，例如禁止他們擔任公職，或令其喪失投票權，卻衍生一個更廣泛、更政治正確的原則性問題，就是應否對所有持有外國護照的港人一視同仁，藉此提防這批外籍華人被外國勢力挾持或利用而做出損害國家（中國）和香港利益的行為。事實上，隨著當局積極推廣愛國教育，有愛國人士看到針對BNO人士的措施後，趁機要求對其他外籍港人採取相類行動，是合理推測。** 至於此事演變下去會否波及香港「裸官」的問題，另文討論。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211208155602/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20211208155602im_/https://hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

@@ -1,0 +1,75 @@
+---
+title: "新屋嶺前世今生　由六七暴動到黃雀行動　近日扣押示威者疑團未解"
+date: "2019-08-30"
+last_updated: "2019-08-30 03:39:02"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "銀髮族"
+  - "811多區示威"
+  - "新屋嶺拘留中心"
+url: "https://web.archive.org/web/20210724194501/https://www.hkcnews.com/article/23200/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-811%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23200/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-811%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23204/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 新屋嶺前世今生　由六七暴動到黃雀行動　近日扣押示威者疑團未解
+
+銀髮族昨發起「新屋嶺恐怖囚室導賞團」，希望讓更多人了解上水新屋嶺拘留中心的歷史，以及關注811警民衝突中54名被捕者當日在內的情況。導賞團發起人譚國新提出多項質疑：為何警方當日只拘捕54人，卻不送去市區的警署；為何警方聲稱被捕人士激烈反抗致重傷，卻不立刻將他們送去醫院；為何有示威者被捕時安然無恙，最後卻腦出血等。譚國新希望透過導賞團，呼籲大眾尋找真相。
+
+新屋嶺，在港英年代有著不平凡歷史：專門處理大陸偷渡來港的非法入境者、六七暴動期間拘留被捕人士、八九六四之後在黃雀行動中暗地給民運人士發「行街紙」......
+
+<figure>
+<img src="https://web.archive.org/web/20210724194501im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/811多區示威-新屋嶺拘留中心-20190830002954_3531_large.jpg" alt="">
+<figcaption>銀髮族發起「新屋嶺恐怖囚室導賞團」，警員在門外築起防線，不准進入。周滿鏗攝</figcaption>
+</figure>
+
+自8月起，在各區警民衝突被捕的示威者中，有人被送到新屋嶺拘留中心，距離文錦渡口岸只有1.7公里。8月5日，有70多人在天水圍被捕，然後被被送至新屋嶺；8月11日，在銅鑼灣被捕者，亦被送至新屋嶺，連同尖沙咀等多區的被捕人士，當晚共有54人被送往新屋嶺。警方在周三 （28日）的例行記者會上表示，8月11日該54名被捕人士中，1人即場送院，有30人到達新屋嶺後送院治療，6人骨折。有義務律師指，當晚超過10名律師等候會見被捕者，但個別被捕人士要求見律師逾50次不果，有人苦候了十多個小時。
+
+相關報道： [8.11被捕者送新屋嶺　1/3沒律師陪同錄口供　大部分律師卻在外乾等](https://web.archive.org/web/20210724194501/https://www.hkcnews.com/article/23147/%E8%A2%AB%E6%8D%95-%E5%8F%8D%E9%80%81%E4%B8%AD-%E7%BE%A9%E5%8B%99%E5%BE%8B%E5%B8%AB-23147/%E8%A2%AB%E6%8D%95)
+
+曾舉辦銀髮族遊行的退休教師譚國新，昨日舉辦「新屋嶺恐怖囚室導賞團」，介紹新屋嶺的歷史以及811事件。導賞團下午2時在九龍塘站集合，約30名參加者除了傳媒，大部分是長者。坐上旅遊巴來到文錦渡的缸瓦甫路，譚國新首先帶大家走上恐龍坑，由高處俯瞰整個新屋嶺拘留中心，見到淺綠色的頂蓋，旁邊有重重的鐵絲網圍住，約9至10米高，遠眺就是一河之隔的深圳。
+
+<figure>
+<img src="https://web.archive.org/web/20210724194501im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/新屋嶺拘留中心-811多區示威-20190830002932_652e_large.jpg" alt="">
+<figcaption>從恐龍坑山上俯瞰的新屋嶺拘留中心。周滿鏗攝</figcaption>
+</figure>
+
+之後走出文錦渡路，沿路向北走，走過沙嶺墳場便見到有路口豎起一塊牌，寫著「香港警察新屋嶺」，這裡附近是警方邊界區警察總部、警察搜查隊訓練學校和警犬隊總部。參加導賞團期間，記者的手機訊號不時只維持「3G」，或是「沒有服務」。
+
+<figure>
+<img src="https://web.archive.org/web/20210724194501im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/新屋嶺拘留中心-香港警隊-20190830002852_270c_large.jpg" alt="">
+<figcaption>從文錦渡路向北走會見到小路，有個牌寫著「香港警察新屋嶺」。周滿鏗攝</figcaption>
+</figure>
+
+譚國新講述新屋嶺拘留中心的前世今生。譚說，1898年新界租借予英國後，中港仍沒有任何邊界限制，及後至1949年國共內戰，港英政府為免戰火波及香港，遂於6月開始設置邊界，建立邊境管制站，至1951年完善邊界。譚說，雖然文獻未有記載新屋嶺拘留中心建成的日子，但六七暴動期間，已用作拘留部分被捕人士。
+
+譚稱，新屋嶺拘留中心過去的主要用途，是拘留非法入境、逾期居留的人士，之後將他們遣返內地。後來1974年港英實施抵壘政策應付大陸偷渡客，如偷渡人士到達九龍界限街以南市區，便可到當時的人民入境事務處登記正式成為香港居民，若中途被警截獲，則需要被遣返大陸。當時的遣返工作，便由新屋嶺扣留中心處理。
+
+眾新聞早前 [報道](https://web.archive.org/web/20210724194501/https://www.hkcnews.com/article/20970/%E9%BB%83%E9%9B%80%E8%A1%8C%E5%8B%95-%E5%85%AD%E5%9B%9B30%E5%B9%B4-%E6%B8%AF%E8%8B%B1%E6%94%BF%E5%BA%9C-20970/%E9%BB%83%E9%9B%80%E8%A1%8C%E5%8B%95%E6%B8%AF%E8%8B%B1%E8%A7%92%E8%89%B2%E6%9B%9D%E5%85%89-%E6%9A%97%E5%8A%A9%E5%9C%B0%E4%B8%8B%E9%80%9A%E9%81%93%E9%81%8B%E4%BD%9C%E6%95%91400%E4%BA%BA) ，1989年六四屠城後，港人發起「黃雀行動」獲港英政府暗地幫忙，助內地民運人士逃亡。港督副政治顧問柏聖文（Stephen Bradley）當時建議，民運人士來港後，先把他們送去人民入境事務處，再送新屋嶺審查。之後港英政府會發給他們俗稱「行街紙」的臨時身分證明書，在香港生活等候往外國。
+
+據譚國新搜集的資料所得，新屋嶺拘留中心總共有12間牢房，可供約250人使用。在2005年韓農示威期間，警方曾經一日之內拘捕超過1000多人，多區警署爆滿，有少部分被捕者被送到新屋嶺拘留中心。
+
+譚國新解釋，舉辦導賞團是希望令更多市民關注反送中運動、811當天的54名被捕示威者，以及他們受傷情況。他亦提出多項質疑：「點解54個咁少都唔去市區？」、「如果警方係話拘捕時好激烈反抗，導致咁重傷，點解唔係即刻送去醫院，而是送來咁偏遠的地方呢？」、「大家記得有一個示威者被捕，被警方放一些削尖的竹枝入袋，最後家屬發現佢腦出血，究竟發生咩事呢？」
+
+譚國新希望市民透過導賞團，繼續尋找真相。他之後與導賞團參加者，在新屋嶺拘留中心外拉起「不徇私，不懷惡意，不敵視他人」的橫額，他希望警察記得曾經宣誓的誓詞，能夠公正執法。
+
+<figure>
+<img src="https://web.archive.org/web/20210724194501im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/新屋嶺拘留中心-銀髮族-20190830002823_d2c7_large.jpg" alt="">
+<figcaption>導賞團發起人譚國新（前排右二）拉起「不徇私，不懷惡意，不敵視他人」的橫額。周滿鏗攝</figcaption>
+</figure>
+
+導賞團參加者、35歲的陳小姐表示，希望藉此活動了解新屋嶺的環境，雖然未能進入拘留中心，她接受訪問時多次哽咽：「未去睇之前，google睇嗰陣......都會好......」「（係咪想到被捕人士入去之後的情況？） 係......想了解番係一個點嘅地獄。」
+
+她形容地方如此偏僻，牢房內不可能接收到訊號，被捕者釋放後更難以有車離開。「覺得好心痛，我哋雖然唔係被打嗰個，感受一定好唔同，但在鏡頭見到每一個手足被捕......真係好唔同。」陳小姐憶起這三個月來的種種事情，再次哽咽：「6月9日之後，我諗香港人的身份真係好唔同......97年回歸，香港人繼續搵食做生意，但我覺得6月9、6月12、6月16日之後，我feel到香港人真係共同體，見到邊個手足被捕、被打，其實一樣咁心痛。」
+
+陳小姐育有一兒，6月9日是她首次參加遊行，之後不少遊行集會都有出席，雖然不會在前線勇武，但她會在其他崗位支持示威者，「嗰一刻我唔知佢哋係邊個，但每一個付出嘅，我哋都非常認同支持。我會講多啲成件事係點，向外國朋友send英文文宣，同內地朋友、客人都講番成件事。」
+
+反送中運動前，試過參與遊行而被警方以「非法集結」拘捕的24歲葉先生，曾被送去北大嶼山警署，最終無條件釋放。他認為，新屋嶺拘留中心應該用作扣留非法入境者，而非香港市民。他又質疑811事件中，大部分被捕者的傷勢是在盤問期間發生。「如果真的因反抗而有咁大受傷嘅話，警察唔會皮外傷都無，點解絲毫無損，而被捕者又受咁大傷害呢？」他又質疑，警方選擇新屋嶺拘留中心，是避免市民包圍警署，「一般警署喺市區，啲人幾時放出來、有無放出來，都好容易觀察到，如果將啲人放喺新屋嶺就唔同。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724194501/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,49 @@
+---
+title: "立法會選舉提名期前夕　多名建制派議員現身中聯辦"
+date: "2021-10-29"
+last_updated: "2021-11-04 18:51:34"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中聯辦"
+  - "西環"
+  - "2021立法會選舉"
+url: "https://web.archive.org/web/20221127061539/https://www.hkcnews.com/article/47029/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47029/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47286/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 立法會選舉提名期前夕　多名建制派議員現身中聯辦
+
+經北京「完善」選舉制度後的立法會選舉提名期周六開始，眾新聞今早在西環目擊多個資深建制派人士，分別隻身入到中聯辦大樓內逗留。他們均乘坐私家車出入，沒有與記者交代會面內容。同一時間民建聯就搶先公布18人參選名單。
+
+朝早未夠九時，建制派班長廖長江已經到達中聯辦、逗留約大半個小時後離開。緊接是體育及演藝及文化出版界的議員馬逢國，私家車約九點五十分到場，之後建築、測量界的謝偉銓半小時後約十時廿分現身中聯辦，逗留時間最長，個多小時才離開。香港01昨日也目擊民建聯黃定光現身中聯辦，事後又向記者稱將交棒給全國政協委員黃英豪，並詢問是否需要安排合適人選參選。
+
+<figure>
+<img src="https://web.archive.org/web/20221127061539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/中聯辦-廖長江-20211029120823_1ece_large.png" alt="">
+<figcaption>建制派班長廖長江未夠九時已現身中聯辦。郭日朗攝</figcaption>
+</figure>
+
+記者致電廖長江及發訊息，他已讀不回。謝偉銓電話在會面期間則無訊號，他會後接受查詢時表示，中聯辦官員問及他參選的意願，並無勸退他，又引述對方肯定他延任期間在立法會的表現。謝偉銓表示，席上問及界別參選的競爭情況，自己仍積極考慮是否參選，亦說除了選委會選舉，過去每次選舉都遇上競爭，今次可能都不例外。
+
+<figure>
+<img src="https://web.archive.org/web/20221127061539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/馬逢國-中聯辦-20211029133854_1e07_large.png" alt="">
+<figcaption>馬逢國被問及到中聯辦時，他笑言自己經常都去，今日是討論人大代表事宜。郭日朗攝</figcaption>
+</figure>
+
+馬逢國被問及有否到中聯辦時則說，「中聯辦？我成日都去啦！」他稱，今日討論人大代表事宜，並說早前曾表達不參選，先前也曾向中聯辦表達意見。「我自己唔傾向參選，哈哈哈，好坦白，我大把嘢搞，一早已經講左唔選，睇情況、睇需要啦。」
+
+<figure>
+<img src="https://web.archive.org/web/20221127061539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/西環-謝偉銓-20211029120802_2ada_large.png" alt="">
+<figcaption>建築、測量界議員謝偉銓入中聯辦時有望向記者。郭日朗攝</figcaption>
+</figure>
+
+政界傳建制協調名單一再押後，不過民建聯今日搶閘公布18人參選名單，在地方選區中全數都各派一人參選；該黨現任議員中李慧琼、陳克勤、周浩鼎、鄭泳舜繼續在地方選區參選，何俊賢在漁農界尋求連任，行會成員張國鈞、葛珮帆將轉換跑道循選委會參選，港區人大陳勇則參選人大政協及全國性代表。民建聯中黃定光、梁志祥、蔣麗芸及柯創盛等則不會參選。
+
+民建聯主席李慧琼回應黃定光現身中聯辦時說，協調過程中「聽取不同持份者意見」，相信個別成員有去中聯辦開會，請他們幫忙，聽他們意見。記者追問是否民建聯找中聯辦幫忙，李說記者搞錯了，強調參選名單是民建聯執委會通過。
+
+李慧琼又承認，由於議席增加，與其他黨派協調時間及過程比過去稍長。她又聲稱，今次選舉投票率與過去不同，不能也不應直接比較。被問及繼續循直選參選，是否志在立法會主席，她笑說：「想得太多，會全心全意打好選舉。」
+
+<figure>
+<img src="https://web.archive.org/web/20221127061539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/2021立法會選舉-民建聯-李慧琼-20211029132135_a9c9_large.jpg" alt="">
+<figcaption>民建聯派出18人參選，李慧琼繼續循地方選區參選。黎家威攝</figcaption>
+</figure>

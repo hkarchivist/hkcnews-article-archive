@@ -1,0 +1,69 @@
+---
+title: "播毒的紙船"
+date: "2021-02-14"
+last_updated: "2021-02-17 12:15:22"
+author: "楊穎宇"
+category: "眾說"
+tags:
+  - "大公報"
+  - "大公报"
+  - "西貢海濱公園紙船"
+  - "東江縱隊港九獨立大隊"
+url: "https://web.archive.org/web/20210731021844/https://www.hkcnews.com/article/38192/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38192/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 播毒的紙船
+
+2003年落成的西貢海濱公園紙船上，被發現有「香港」、「獨立」等字眼，國安法之下建制傳媒將之讀成「香港獨立」，說這是一艘「港獨船」。康文署近日採取行動，將紙船改裝成花槽，並用盆栽遮去「敏感」字眼。此舉無疑政治正確，但追本溯源，卻可能是九七以來最大宗的黑色幽默。
+
+<figure>
+<img src="https://web.archive.org/web/20210731021844im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/東江縱隊港九獨立大隊-大公報-西貢海濱公園紙船-20210214163723_e151_large.jpg" alt="">
+<figcaption>上圖為西貢海濱公園紙船今年以一月的模樣，下圖二月拍攝，紙船已補了漆，還變成了花槽。照片來源：空城記 Empty City Facebook專頁</figcaption>
+</figure>
+
+這裡「獨立」是指「東江縱隊港九獨立大隊」。三年零八個月期間，它接受中共領導，活躍於西貢一帶。正因為它與西貢關係密切，西貢海濱公園進行改善工程時，建築師馮永基便以此為主題，使用與東江縱隊相關的舊報紙裝飾幾隻小船，藉此讓西貢人、香港人留住歷史記憶。   
+   
+ 港九獨立大隊的負責人，不少於中共建政後成為國家幹部，其中一例是政治委員 [陳達明](https://web.archive.org/web/20210731021844/https://zh.wikipedia.org/zh-hk/陈达明) 。日本投降後，他曾參與解放戰爭，後來被授予上校、大校軍銜。1983年調任新華社香港分社副社長，主管文教事務，是先父的老上司。他於1992年退休後，以其親身經歷，撰寫 [《大嶼山抗日游擊隊》](https://web.archive.org/web/20210731021844/https://hkca.org.hk/2002/08/02/出版/) 一書。筆者仍留有陳先生的贈書。
+
+<figure>
+<img src="https://web.archive.org/web/20210731021844im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/陳達明-大嶼山抗日游擊隊-20210214174930_2c88_large.jpg" alt="">
+<figcaption>照片由筆者提供</figcaption>
+</figure>
+
+除了海濱公園，西貢還有烈士陵園、抗日英烈紀念碑等抗日史蹟，後者剛於去年抗戰勝利75周年紀念日入選中國國家級抗戰紀念設施遺址名錄。換言之，西貢是反法西斯戰爭的光輝典範，根正苗紅，功昭日月。   
+   
+ 如此抗日史蹟、如此孕育出國家幹部的抗日力量、如此簡潔地呈現抗戰史實的藝術紙船。抗日戰爭是中共政權合法性的重要源頭，康文署竟在抗戰頭上動土，黑色幽默盎然。   
+   
+ 黑色幽默最少有四點。第一，抗戰本應是安全的課題，但客觀處理抗戰原來也可以「弊多於利」，不啻對歷史教育又一記悶棍。第二，馮建築師使用的舊報紙是1998年的《大公報》，取材本應穩陣，卻引來建制傳媒評為「港獨船」；建制傳媒抗戰文章crossover昔日漁村孩童玩紙船的簡樸情懷，結果卻變成「打着紅旗反紅旗」。第三，建制傳媒說紙船「一直為人詬病為『港獨船』」、「17年來一直未為港府所正視」，但心水清者都知道，2003年公園進行工程時，「港獨」的概念和爭議當未出現；說「2005年（應為2003年）竟獲香港建築師學會年獎」，等於是用清朝尚方寶劍斬明朝的官。   
+   
+ 第四，也是最「黑」的一點，觸發文革的名篇 [〈評新編歷史劇《海瑞罷官》〉](https://web.archive.org/web/20210731021844/https://zh.wikipedia.org/zh-hk/评新编历史剧《海瑞罢官》) ，批評《海瑞罷官》一劇並非芬芳的香花，而是一株毒草。康文署將紙船改裝成花槽，花香滿溢，象徵意義十分明顯：用香花為抗戰藝術毒草除毒，將毒草修正為香花，客觀上將之當成「破四舊」的對象。   
+   
+ 那麼，誰才是毒草之淵？   
+   
+ 是港九「獨立」大隊？這個名字太偉光正，就算含「獨立」一詞，罪名絕不能加諸其身。是《大公報》？它並非港大學苑《香港民族論》，亦非黃之鋒的文字，所以不能也不可。結果，只能將罪名加在建築師身上。「其實可以用其他的摺法，設計師何必要摺成這些感敏字句呢。」康文署的決定，等於是強行代表建築師向批鬥者認罪，承認該設計犯了政治錯誤。   
+   
+ 連根正苗紅的歷史和歷史藝術作品也可成為改造對象，日後香港還有沒有真歷史、創作與歷史相關作品的空間，難免令人疑慮。   
+   
+ 順帶一提，海濱公園於2003年所獲獎項為香港建築師學會「會長獎狀」，當年會長為王寶龍。「毒船」被「會長」加持，這麼「牛鬼蛇神」的事若發生於文革年代，必定上綱上線，禍及王先生。現在，王先生分毫無損。多麼可喜可賀。有關方面宜創造性地運用邏輯界新星葉劉氏的「新疆紅星」新論，藉此大力宣傳香港並沒有文革2.0、香港居民仍享有神聖不受侵犯的人權。
+
+<figure>
+<img src="https://web.archive.org/web/20210731021844im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/新疆紅星-葉劉淑儀-20210214164220_7983_large.png" alt="">
+<figcaption>葉劉淑儀Twitter截圖</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210731021844/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 楊穎宇](https://web.archive.org/web/20210731021844im_/https://www.hkcnews.com/uploads/avatars/338117ee-b0a5-43f6-8d65-8f63f1ff1e2e.png?187544535)
+
+**博客 | 楊穎宇**
+
+【楊穎宇．談史論道】1970年出生於香港。香港大學歷史系文學士、哲學博士。曾任教於本地中學、大學。2005-2020年全職為歷史科考評挺胸打拼。人生格言是「有一分史料說一分話」。相信凡事都有廣闊的討論空間。

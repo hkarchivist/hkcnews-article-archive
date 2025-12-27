@@ -1,0 +1,73 @@
+---
+title: "【劉家棟上訴】辯方指謙卑舉手求警減慢　官：行為屬阻撓，問題程度上是否犯法？　明年2月宣判"
+date: "2020-12-18"
+last_updated: "2020-12-18 18:23:16"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "社工"
+  - "阻差辦公"
+  - "劉家棟"
+url: "https://web.archive.org/web/20210802051135/https://www.hkcnews.com/article/36546/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36546/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【劉家棟上訴】辯方指謙卑舉手求警減慢　官：行為屬阻撓，問題程度上是否犯法？　明年2月宣判
+
+首名因反修例運動被判監的社工、24歲劉家棟，今年6月被裁定阻差辦公罪成，他不服定罪及刑期提出上訴。辯方指，案發時上訴人沒有拉扯、推撞、站立不動，也沒有用身體阻礙警員，一直手持社工證舉起雙手，並向警員鞠躬，態度謙卑地懇求給予時間讓後面的人退走，行為並不是控罪的立法原意。
+
+高院法官黃崇厚指出，警方打算推進，即使上訴人希望警方減慢，其目的和行為原理上都屬於阻撓，只是程度上是否構成犯法，決定押後至明年2月宣判。本著有機會監禁的最壞打算走入法庭，劉家棟如今可與家人共渡聖誕和生日，暫鬆一口氣，但他不忘說「要承受的不只我一個人」，呼籲大家關注其他在囚手足。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/劉家棟-20201218171818_c550_large.png" alt="">
+<figcaption>劉家棟在社福界立法會前議員邵家臻陪同下上庭。張凱傑攝</figcaption>
+</figure>
+
+### 片段有男聲稱：可否畀啲時間我們一齊退
+
+原本一頭長髮的劉家棟，半年前因罪成入獄被剷短，他說過：「我的長髮沒了，我還是那個劉家棟。」半年之後，剷短的頭髮已變得厚密，但他依然是他。家棟披上黑色外套、帶著一張心意卡上庭，其家人亦有陪同到庭。
+
+呈堂片段顯示，上訴人劉家棟身穿T-Shirt、腰間有黃頭盔，並沒有蒙面，與其他社工站在警方和示威者中間，舉高雙手，向警鞠躬。劉身旁的男子稱：「可否畀啲時間我們一齊退，退得比較慢，退緊退緊，全部都退緊」，期間一直舉起雙手，舉起社工證，又表明「我們沒有衝擊，希望警員不要推進住。」警方則喊：「我現在命令你走」、「行開」。劉家棟其後被拘捕，並被警員按在地上。
+
+### 辯方：上訴人無用身體阻礙警員
+
+辯方資深大律師彭耀鴻指出，上訴人的行為最多只是不便、令警員稍加費力，從各方畫面可見，警員向前、上訴人向後，警員亦可繞過上訴人繼續推進。上訴人並沒有用身體阻礙警員，亦沒有拉扯、推撞、或站立不動，證據並沒有顯示上訴人有阻撓成分。
+
+辯方進一步指，被告態度謙卑、期間鞠躬、舉起雙手、手持社工證，是懇求警員給予時間讓後面的人退走，而警方案發時曾衝前亦導致兩人倒地。上訴人所作的行為，並不是阻差辦公的立法原意。
+
+高院法官黃崇厚指出，警方是否正當執行職務或許有爭議，但無爭議的是，警方前進正是執行職務，有權力，並主導行動。被告行為明顯想警方不要推進或慢一點推進，目的和行為上都是阻撓，只是程度上是否犯法。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/社工復興運動-劉家棟-20200617182228_1b66_large.jpg" alt="">
+<figcaption>劉家棟去年7月27日在元朗被捕，並被警員按在地上。資料圖片</figcaption>
+</figure>
+
+### 辯方：上訴人想避免衝突、受傷
+
+辯方亦認為，如果警方不合法或過度使用武力，如朱經緯案，相信警方犯法而出手阻止，就不構成有意圖阻撓，問題是本案中是否完全無合理疑點。原審出現法律原則錯誤，否定上述觀點，是錯誤理解警方行使武力的權衡。如果上訴人想避免衝突、受傷，控罪是否法律的原意？辯方認為這是有合理辯解。
+
+就刑期上訴方面，原審判劉家棟即時監禁12個月。辯方指出，上訴人是社工、沒有刑事紀錄，原審並沒有考慮本案，上訴人實際的行為是否真的很阻撓？辯方指出上訴人的動機和後果也不是嚴重行為，質疑「是否要監禁？仲要12個月？」
+
+### 控方：任何幫助示威者都不是合理辯解
+
+控方則指，當時現場有過百人集結，有人佔路、擲物、使用鐳射筆，行為破壞社會安寧，警方有責任驅散。上訴人的後退幅度很少，身邊的人說話反映上訴人的意圖很清晰，就是阻撓和拖慢警方推進，質疑「點會容許一個外人進入警方防線」、「任何幫助示威者都不是合理辯解」，本案亦沒有證據顯示警方非法執行職務。
+
+控方再引用黃之鋒案、鍾嘉豪案，指出在大型集會中，考慮阻嚇和懲罰的比重更為重要，個人情況較次要，甚至可以不用看。他稱任何人阻撓警方理所當然會被拘捕，更形容本案是「嚴重阻撓」。
+
+辯方反駁，鍾嘉豪案與本案性質不同，鍾嘉豪涉及參與非法集結，背包有木棍，顯示出積極參與，即使如此，參與非法集結的量刑起點都只是由六個月起。
+
+<figure>
+<img src="https://web.archive.org/web/20210802051135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/劉家棟-20201218171825_2b17_large.png" alt="">
+</figure>
+
+法官黃崇厚聽罷雙方陳詞後，押後至明年2月23日早上10時半宣判。劉家棟散庭後坦言，在庭上重看案發片段很累、心理壓力很大，但可以和家人過聖誕和生日，暫時鬆了一口氣。他說，收到在囚手足的祝福，他們的支持很重要，作為社工必定會與他們同行，明言「承受的不只我一個」，呼籲要關注其他手足。
+
+案件編號：HCMA137/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802051135/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,138 @@
+---
+title: "【南韓直擊】「逆權攝記」39年前冒死記錄光州抗爭　 相片納入聯合國《世界記憶名錄》"
+date: "2019-04-19"
+last_updated: "2019-04-28 14:08:34"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "韓國"
+  - "大韓民國"
+  - "南韓"
+  - "光州事件"
+  - "民主運動"
+url: "https://web.archive.org/web/20210923181705/https://www.hkcnews.com/article/19852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20161/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD39%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19852/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20161/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD39%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【南韓直擊】「逆權攝記」39年前冒死記錄光州抗爭　 相片納入聯合國《世界記憶名錄》
+
+八九六四、雨傘運動，近日又再浮現，當香港人有感看不到前路之際，看看1980年南韓的光州抗爭，或許會引發多點思考。眾新聞記者上月赴南韓光州採訪，揭開39年前光州抗爭運動背後的南韓人性。
+
+電影《逆權司機》讓世人認識到一場推進南韓民主的重要運動：光州抗爭。故事講述1980年一個首爾（時稱漢城）的士司機接載一名德國記者到光州採訪，兩人目睹示威市民、學生被軍方無情鎮壓，最終司機甘願冒死護送德國記者返回漢城機場，使軍隊殘酷鎮壓光州民眾的真相得以呈現世人眼前。
+
+電影故事裡的南韓傳媒全是官方喉舌，和平示威、手無寸鐵的市民被說成暴徒。軍隊毆打、屠殺百姓的新聞遭到封鎖，光州人民都期望外國記者能紀錄、公開真相，民眾願意在宵禁時收容外國記者、大學生為外國記者撿拾底片而被打死、的士司機為掩護外國記者離開，無畏中彈或翻車犧牲。
+
+在現實中，有光州攝影記者當年在民眾唾棄、軍隊威脅之下，偷偷地用鏡頭紀錄抗爭始末，並將照片收藏於家中天花板或託付外國記者保管，忍辱負重7年後、1987年才將照片公諸於世，以真相抗衡獨裁政權。
+
+相關文章：
+
+[【南韓直擊】光州抗爭大學生被虐打險死　創傷逾廿年　分享經歷釋懷](https://web.archive.org/web/20210923181705/https://bit.ly/2UvFnvK)
+
+[【南韓直擊】光州今昔對比　紀念館展民眾笑臉　鐘塔每天響抗爭之歌](https://web.archive.org/web/20210923181705/https://bit.ly/2DnfRTW)
+
+[【南韓直擊】南韓90後大學生：光州人民教我抗爭精神](https://web.archive.org/web/20210923181705/https://bit.ly/2UsZ2wl)
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/羅庚沢-光州事件-20190415144541_21aa_large.jpg" alt="">
+<figcaption>羅庚沢曾任《全南日報》攝影記者，在1980年5月持續拍攝光州事件的經過。吳婉英攝</figcaption>
+</figure>
+
+1980年5月，軍人出身的全斗煥透過政變奪權，引發全國大學生示威聲討，軍隊控制的政府宣布全國戒嚴，並逮捕社運領袖金大中及金泳三等人。然而，國內長久以來都有 [地域對立](https://web.archive.org/web/20210923181705/https://zh.wikipedia.org/wiki/%E9%9F%93%E5%9C%8B%E5%9C%B0%E5%9F%9F%E5%B0%8D%E7%AB%8B) （韓國以「道」為行政區，例如京畿道、慶尚道、全羅道等），位處朝鮮半島西南端的全羅道，與當權者（包括朴正熙、全斗煥等）出身、東南端的慶尚道有矛盾，在全國戒嚴之下，全羅道內光州市的民眾持續示威抗議，在5月18日與軍隊爆發衝突，引發持續10日的光州抗爭。事件中的死傷數字，官方及民間莫衷一是，至今未有一個受廣泛認可的，盧泰愚政府1989年公布的死者數字為287人，惟民間估計有過千人遇難。
+
+當時，30出頭的羅庚沢在光州的報章《全南日報》任攝影記者，一心想拍照紀錄光州發生的事。他記得，示威早期是和平進行的，直至18日，學生與戒嚴軍開始爆發衝突。當時，大批大學生守在校門，阻擋軍隊入校園，被持械軍人暴力毆打。羅憶述，19日是星期一，連普通市民、學生出門上班、上學，亦被軍人捉住打，光州愈來愈混亂……
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-光州-20190415143313_2bd7_large.jpg" alt="">
+<figcaption>1980年5月16日，光州市民在全南道廳前、錦南路的圓形噴水池舉行集會。羅庚沢形容，初期的集會和平有序。羅庚沢攝／5.18紀念基金會提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-光州-20190415143322_1062_large.jpg" alt="">
+<figcaption>1980年5月18日，軍隊操至光州天主教中心附近。羅庚沢攝／5.18紀念基金會提供</figcaption>
+</figure>
+
+### 高層毀印刷機阻報道　年輕記者集體辭職
+
+《逆權司機》有一幕講述光州報館的編輯記者在印刷廠，等待刊載真相的報紙印刷出來，此時，老闆帶同手下破門而入，打爛印刷器材，更斥責他們險拖累報館執笠。最終，只有為政府塗脂抹粉的報道能在電視播出。
+
+電影情節在羅庚沢中口得到證實。羅庚沢指，當年政府早已下令封鎖消息，全國的報紙一句都不能寫光州發生的血腥鎮壓，他任職的《全南日報》同樣對軍方惡行隻字不提，「年輕記者曾經嘗試報道光州發生的事，但高層、管理層不惜破壞印刷機器。年輕記者便拿著拍下來的照片、寫好的文章，希望找到一個地方自行印報。」羅庚沢憶述，當時他們跑遍整個光州，但市內的印刷廠都關閉了，他們在光州附近一處找到一間印刷廠，但印刷廠老闆拒絕幫他們。
+
+> **光州的記者最終無法發布任何有關光州起義的報道。我們親眼見著這些事發生，卻連一行字都不能寫出來，於是，所有記者一起辭職。**
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-光州屠城-20190415144646_14b0_large.jpg" alt="">
+<figcaption>大批大學生守在全南大學門前，阻擋軍隊入校園。羅庚沢攝／5.18紀念基金會提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州屠城-光州事件-20190415143331_416f_large.jpg" alt="">
+<figcaption>手無寸鐵的市民被軍隊打傷，血流披面。羅庚沢攝／5.18紀念基金會提供</figcaption>
+</figure>
+
+光州市民不理解記者的困境，以為光州以至全南韓的記者都是官方喉舌，對記者的態度愈來愈差。羅庚沢憶述：「之前我們尚可和平地拍照，但後來不行了。市民、學生、示威者……所有人都開始討厭記者。」當時，兩間公營電視台MBC、KBS不但沒有報道戒嚴軍屠殺光州人民，反而為政府粉飾太平，結果引起公憤，兩間電視台的光州分台，分別在20、21日被縱火焚燒。
+
+### 驚聞開火指令　謎團埋心中39年
+
+有志盡攝影記者職責的羅庚沢，可謂兩面不是人。他記得：「所有照片都是躲藏起來拍的。5月21日，我躲在全南道廳（相當於全南道的政府總部），在那裡拍照。」當日，他一度收起攝影器材，走出全南道廳，混入人潮之中，這讓他無意中偷聽到軍方即將對群眾發動開火攻擊的驚人消息。羅庚沢記得，那是中午時份，他聽到一個軍官詢問負責電報的士兵「開火指令」一事，士兵最初回覆說：「尚未收到指令」，但沒多久，該士兵就向軍官報告：「我們剛收到開火指令了。」
+
+「大批空降部隊到達現場（全南道廳附近、錦南路一帶），然後開始大規模射殺。我是唯一聽到開火指令的人。」羅庚沢及後與另外兩名來自漢城的記者，在全南道廳附近一間旅館的5樓拍照，親眼目擊軍方直昇機飛近錦南路。大約1時開始，部隊從高處向街上聚集的群眾開火掃射，錦南路血流成河，死傷枕藉。他聽到道廳傳出很多爆炸聲，相信廳內的人盡遭殺害。事發至今39年，有關那場血腥槍擊的許多基本事實，仍是羅庚沢心中的謎團，「我們仍然不知道究竟是誰下令開火、何以有那場集體射殺。」
+
+21日軍方的炮火攻擊，激起光州民眾猛烈還擊，示威群眾搶奪當地警察局及軍火庫的槍械彈藥，武裝成市民軍，與戒嚴軍駁火，逼使戒嚴軍退至光州市外，市民軍佔領全南道廳。羅庚沢當日退至一間教堂躲藏，直至翌日，他用修女給他的購物袋藏著相機，跑到全南道廳一帶拍照。
+
+在戒嚴軍撒退後，光州市一度回復平靜，民眾22日開始自發清理街道，23日更有商店開門營業。不過，羅庚沢舉機拍照仍屢遭白眼，「有市民說我是北韓間諜。當時我也受過苦頭。」他忍辱負重，沒有停止紀錄歷史。
+
+> **那時候，我不得不藏起有關政府、傘兵、士兵等照片。那些照片不能發布，還不是時候。我將它們收在家中的天花板，也有些交給外國記者保管。**
+
+### 照片藏家中天花板　7年後重見天日
+
+26日清晨，戒嚴軍在坦克開路下重返光州，翌日在市內進行全面鎮壓，光州完全受軍方掌控。「光州起義告一段落，當局開始搜索事件的照片。有軍官來到我家，向我要照片。」羅庚沢憶述，軍官當時對他說，他們需要他的照片找出肇事者調查事件。他固然不相信軍官所言，他甚至預料到軍方會找到他，因此早將所有照片複製，而軍方焦急想找到的照片，他更已託付給外國記者朋友。結果，軍方問他索取照片時，他只給他們一些已沖曬出來的照片，沒有交出底片。
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-光州屠城-20190415143300_9802_large.jpg" alt="">
+<figcaption>光州抗爭期間死亡的人民，棺木放於尚武體育館內，讓市民致祭。羅庚沢攝／5.18紀念基金會提供</figcaption>
+</figure>
+
+事發後多年，光州抗爭一直被官方否定，被定性為「內亂」、由共產主義者煽惑的事端，事件的真相在韓國是禁忌，連年有公民因舉行或參與追悼會、示威抗議而被拘捕。由羅庚沢拍攝、紀錄光州抗爭的重要照片，多年來都沒有公開。直至事發後7年、1987年，其教會神父表示要為光州抗爭印製書刊，他才將當年拍下的所有照片送給神父。透過天主教的網絡，那本書在韓國國內廣泛傳開。
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-羅庚沢-20190415144534_4263_large.jpg" alt="">
+<figcaption>羅庚沢在光州抗爭期間拍攝的照片，於1987年經天主教組織製作成書冊刊登，並在全國傳開。羅庚沢正向記者展示該書冊。吳婉英攝</figcaption>
+</figure>
+
+當時正值1988年漢城奧運會前夕，全斗煥的獨裁政權飽受國際壓力，與此同時，國內爆發街頭抗爭，逼使全斗煥下台，繼承者盧泰愚亦要回應民意，推動國內的民主化，並將光州抗爭正名為「光州民主化運動」。1995年，在金泳三政權下，全斗煥及盧泰愚被收柙，翌年遭起訴，經法庭審訊後被裁定「軍隊叛亂和內亂罪」、「內亂目的殺人罪」、「叛亂、內亂主要任務從事罪」等控罪罪成，全、盧分別被判處死刑及22年半徒刑。二人年內上訴，分別被改判無期徒刑及入獄17年。1997年底，二人獲得特赦，脫離牢獄。
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/光州事件-全斗煥-盧泰愚-20190415144548_243a_large.jpg" alt="">
+<figcaption>前總統全斗煥（右）及其繼承者盧泰愚（左）在1996年面對法庭審訊。美聯社圖片</figcaption>
+</figure>
+
+光州抗爭在8年間得到正名，肇事的獨裁領袖在15年內被審判。韓國走上轉型正義的道路，公民對真相鍥而不捨的追求為重要的推力。
+
+現在南韓的教科書中，均有教光州民主運動，惟未觸及具體細節。羅庚沢指，目前海內外的韓國年輕人都未必深入了解光州事件，所以他會盡其所能，讓下一代知道真相。被問到政府是否未有做足，羅庚沢回應指：「教育下一代的角色不在政府，而在我們及5.18紀念基金會。」
+
+羅庚沢如今年過70，已從攝影記者崗位退下來，卻從沒有停止為向世人訴說光州民主運動的真相，「只要有人找我講解5.18，我哪裡都會去。」這些年來，他不但國內搞攝影展，還遠赴歐美設展。他的照片廣泛見於與光州民主運動相關的書籍、展覽、影片等，作文化傳承、公眾教育之用。在2011年，羅庚沢的照片，連同光州抗爭相關的文件紀錄、受害者證詞及醫療紀錄等，一併獲聯合國教科文組織錄入 [《世界記憶名錄》](https://web.archive.org/web/20210923181705/http://www.unesco.org/new/en/communication-and-information/memory-of-the-world/register/full-list-of-registered-heritage/registered-heritage-page-4/human-rights-documentary-heritage-1980-archives-for-the-may-18th-democratic-uprising-against-military-regime-in-gwangju-republic-of-korea/) 。
+
+### 「無論中國還是韓國，真相始終會獲得勝利。」
+
+前年的5.18，總統 [文在寅出席光州事件37週年悼念集會](https://web.archive.org/web/20210923181705/https://news.now.com/home/international/player?newsId=221682) 時，向公眾承諾重新調查光州事件，要揭開光州屠殺的完整真相 ，並找出為事件負責的人。調查委員會陸續公布調查結果，包括證實軍方曾動用直升機，向光州市民進行掃射；戒嚴軍曾對光州婦女作出強姦、性侵、性虐待、性騷擾等 [暴行](https://web.archive.org/web/20210923181705/https://www.koreatimes.co.kr/www/nation/2018/11/356_258314.html) 。
+
+<figure>
+<img src="https://web.archive.org/web/20210923181705im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/05/文在寅-光州事件-20170518162932_6bb9_large.jpg" alt="">
+<figcaption>現任總統文在寅（右）前年出席光州事件悼念集會，承諾重新調查光州事件。美聯社圖片</figcaption>
+</figure>
+
+然而，在過去的調查及審訊時，軍隊內的主要涉事人物毀滅了大批文書證據，更被指製造偽證，互相掩飾罪行，因此，當日下令開火的元兇始終未能查明，而官方公布的死傷人字亦一直不受民間認受。被視為光州血腥鎮壓元兇的全斗煥，至今仍然拒絕承認責任。他前年出版的回憶錄，被指誹謗光州民主化運動中的受害者， [案件](https://web.archive.org/web/20210923181705/http://english.hani.co.kr/arti/english_edition/e_national/889373.html) 在光州地方法院審理當中。對於真相被查至水落石出，羅庚沢是否感樂觀？他明言：「還有很長的路，我不感樂觀，但我們會試，大家努力找出真相。」
+
+39年前光州人民的抗爭，令人想起同屬亞洲發生，中國的六四、台灣的二二八、香港的雨傘運動。羅庚沢提到，他有一個攝影師朋友1989年身在北京，親歷六四事件。
+
+羅庚沢寄語：
+
+> **黑暗不能戰勝光明。無論中國還是韓國，真相始終會獲得勝利。**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923181705/https://www.hkcnews.com/aboutus/#subscribe)

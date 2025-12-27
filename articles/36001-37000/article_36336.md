@@ -1,0 +1,56 @@
+---
+title: "國際特赦組織促收緊警察裝備貿易管制　列舉各國虐待事件　包括港警葵芳站內射催淚彈"
+date: "2020-12-11"
+last_updated: "2020-12-11 16:28:03"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國際特赦組織"
+  - "香港警察"
+url: "https://web.archive.org/web/20210729030316/https://www.hkcnews.com/article/36336/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36336/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36365/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 國際特赦組織促收緊警察裝備貿易管制　列舉各國虐待事件　包括港警葵芳站內射催淚彈
+
+國際特赦組織和英國歐米茄研究基金會（Omega Research Foundation）發表最新報告 [《Ending the Torture Trade: The Path to Global Controls on the ‘Tools of Torture’》](https://web.archive.org/web/20210729030316/https://www.amnestyusa.org/wp-content/uploads/2020/12/Ending-the-Torture-Trade-tools-of-torture-FINAL.pdf) ，其中列舉各國在拘留設施內的虐待事例，以及警察在街頭不當使用裝備的虐待事件（torture and other ill-treatment），當中提到香港去年有警員在葵芳港鐵站發射催淚彈、6.12直朝男子面部噴胡椒噴霧等例子。
+
+該報告提出「反酷刑貿易框架」，呼籲各國收緊對警察裝備貿易的管制，以確保裝備不會落入濫用者手中。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030316im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/香港警察-國際特赦組織-虐待-20201210202353_2f82_large.png" alt="">
+<figcaption>報告封面是在香港街頭，一個警員舉起警棍的照片。報告截圖</figcaption>
+</figure>
+
+報告指，過去5年國際特赦組織記錄了140多個國家，對在囚或被拘留人士作出酷刑或虐待事件，指受害人除了在獄中及拘留設施有機會遭受酷刑外，在世界各地的示威者在街頭上，亦會因執法部門暴力鎮壓示威者，被催淚彈、橡膠子彈等傷害。
+
+報告分別提及在拘留施設以及街頭示威的酷刑及虐待情況，其中列舉的例子，包括香港，以及黎巴嫩、蘇丹、智利、美國、法國及白俄羅斯。該報告的封面，亦是一張在香港街頭拍得一個警員舉起警棍的照片。
+
+### 舉例去年葵芳港鐵站發射催淚彈　或等於虐待
+
+報告在街頭示威的章節中，指在許多情況下，執法部門使用催淚彈、胡椒噴霧、橡膠子彈等清理示威現場，有些情況執法人員的行為可謂等同酷刑或虐待。
+
+報告提到香港去年的反修例運動，隨著示威行動升級，警方使用到大量化學刺激物，曾經單日使用800枚催淚彈，某些情況的使用可能相當於虐待（ill-treatment）。報告列舉例子，包括去年8月11日，警察在狹窄的葵芳港鐵站內，多次發射催淚彈；去年6月12日在龍和道，警員近距離直朝一名坐在花槽邊的男子面部噴射胡椒噴霧，但該名男子並沒有構成威脅，形容警方噴射胡椒噴霧是明顯不必要並不合比例。
+
+<figure>
+<img src="https://web.archive.org/web/20210729030316im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/國際特赦組織-香港警察-虐待-20201210202333_5e61_large.png" alt="">
+<figcaption>報告提到港警去年8月11日在葵芳港鐵站內發射催淚彈。報告截圖</figcaption>
+</figure>
+
+另外，報告亦提到，警方在公眾活動的執法行動中，橡膠子彈、警棍等裝備不時被濫用，有些情況下等如酷刑或虐待。據國際特赦組織記錄，香港去年的示威活動中，警方曾非法使用這些裝備，毆打沒有構成威脅的示威者，有時在示威者已被制服或正試圖離開時，仍然毆打。報告舉例引述一名去年7月在上環示威中被捕的年輕女子稱，她逃跑時被警察從後用警棍棒打，她遭撞倒在地，雙手被綁，之後警員繼續毆打她。
+
+### 促收緊警察裝備貿易規管
+
+報告續指，警察以完全不適當的方式，使用「低致命武器 (less lethal)」武器，某些情況下可能構成酷刑或虐待，包括以橡膠子彈故意及重複地瞄準和平示威者、無理及懲罰性地對沒有威脅的人使用化學刺激物如胡椒噴霧、在密閉空間使用大量催淚彈等。
+
+報告指，有迫切需要收緊對警察裝備貿易的管制，呼籲各國須制定具有法律約束力的文件，以規管有關裝備的貿易。組織提出「反酷刑貿易框架」，規定各國必須採取的措施，以監管執法裝備及死刑裝置的貿易，包括禁止有關虐待裝備的貿易，如帶尖刺的警棍、電擊腰帶及加重腳鐐；禁止用於死刑的刑具；以及對常用警察裝備，包括手銬、胡椒噴劑、泰瑟槍、警棍和催淚彈的貿易，實施嚴格管制。
+
+這份報告推出之際，正是「零酷刑貿易聯盟（Alliance for Torture-Free Trade）」在聯合國開會之時。零酷刑貿易聯盟由歐盟、蒙古、佛得角和阿根廷帶領倡議，於2017年9月啟動。會議將探討全球執法裝備貿易的規管，國際特赦組織表示，報告提供「反酷刑貿易框架」框架，希望協助討論進程。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729030316/https://www.hkcnews.com/aboutus/#subscribe)

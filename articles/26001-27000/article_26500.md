@@ -1,0 +1,77 @@
+---
+title: "【武漢肺炎大爆發】北大嶼山醫院「高危」　上周至少3病人轉院隔離前逃走　去向不明"
+date: "2020-01-31"
+last_updated: "2020-01-31 21:08:24"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "北大嶼山醫院"
+url: "https://web.archive.org/web/20201020053420/https://www.hkcnews.com/article/26500/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E5%8C%97%E5%A4%A7%E5%B6%BC%E5%B1%B1%E9%86%AB%E9%99%A2-26500/%E3%80%90%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E%E5%A4%A7%E7%88%86%E7%99%BC%E3%80%91%E5%8C%97%E5%A4%A7%E5%B6%BC%E5%B1%B1%E9%86%AB%E9%99%A2%E3%80%8C%E9%AB%98%E5%8D%B1%E3%80%8D-%E4%B8%8A%E5%91%A8%E8%87%B3%E5%B0%913%E7%97%85%E4%BA%BA%E8%BD%89%E9%99%A2%E9%9A%94%E9%9B%A2%E5%89%8D%E9%80%83%E8%B5%B0-%E5%8E%BB%E5%90%91%E4%B8%8D%E6%98%8E?__cf_chl_jschl_tk__=ce826065d4ad53a8c9f4f30c2d1bfd4f978e3b73-1580439931-0-AdUCH4UlnLk-ImxDZ3Y3VPA1ioNKMSKNuZj3r6ccEKRjjGLoqmR21xEMriEvNiYBHg9mPQzJG5hXurZHeQB34m8MKAbOtCDrJ-PQVrHjlOUKf_JoCipcfKywmzzf23EQbehprf6bJhsnEP2Fartu4259IM2mpTvna6J6f4t53Pr8NZXuPCXuQlkHCxBw-BEQZsrFxQT9M9D3DmAMDZI-AZLs6YzBF-Azz13jSOHmIrCsxIGHEuffB3koCqCOvCS7_Y7xdI1mNcIUTcDv71mwoHQaJskOjMptvQzK2wmjnK2s1dJSLeJbg8IGoRj6S3hXCvEo3ItAKJUzyZHyVkhPKRTO5yn6CCjE3-PGHtjcF8dpBAgDSx95PPStytT4Ku1gw4jQlDq8h7sBQZzjQ2tIwewin_Y7nKk_aydOYdJaY3hgZONcCkqEicGUGfi_5TOtFn1w116F9kj_28Fa4JJNbMIdDeA-LXkH4736LuNsrk6N1X3uUtA_z_4QDCc817DZTYhCX8XfzN6lKU6VTly7t0xU-eC4Sv-H3iJDlNFJh313upezeV9a1qDHqZnuR5Eeabd_jRQsF8pYa9gRCi-QqaVZ1ISIvLFVGRU2BDXnLHwUyM_1pGjGcgBszt5jaBpTjNe5Z2JHjtf4xHVvAKJRaQV-1uZRwRtoFEy6d45s1kYtJ2ykNgMtV2-MP0DPjMV566JkKvEGypMNmr_AmICDN6yfRxo_QCCkcCGMwmt1nYm53k4TBGRXiI9Y5RHesZqFjEqLdn2p4ilWdbgn-lWu0oszDt2clbXaPGvxEN3J-eAZ1XmICs8h2i8NNRkjxbDdY-6VF-VZjyU4SfUGprwzbKY"
+original_url: "https://www.hkcnews.com/article/26500/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E5%8C%97%E5%A4%A7%E5%B6%BC%E5%B1%B1%E9%86%AB%E9%99%A2-26500/%E3%80%90%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E%E5%A4%A7%E7%88%86%E7%99%BC%E3%80%91%E5%8C%97%E5%A4%A7%E5%B6%BC%E5%B1%B1%E9%86%AB%E9%99%A2%E3%80%8C%E9%AB%98%E5%8D%B1%E3%80%8D-%E4%B8%8A%E5%91%A8%E8%87%B3%E5%B0%913%E7%97%85%E4%BA%BA%E8%BD%89%E9%99%A2%E9%9A%94%E9%9B%A2%E5%89%8D%E9%80%83%E8%B5%B0-%E5%8E%BB%E5%90%91%E4%B8%8D%E6%98%8E?__cf_chl_jschl_tk__=ce826065d4ad53a8c9f4f30c2d1bfd4f978e3b73-1580439931-0-AdUCH4UlnLk-ImxDZ3Y3VPA1ioNKMSKNuZj3r6ccEKRjjGLoqmR21xEMriEvNiYBHg9mPQzJG5hXurZHeQB34m8MKAbOtCDrJ-PQVrHjlOUKf_JoCipcfKywmzzf23EQbehprf6bJhsnEP2Fartu4259IM2mpTvna6J6f4t53Pr8NZXuPCXuQlkHCxBw-BEQZsrFxQT9M9D3DmAMDZI-AZLs6YzBF-Azz13jSOHmIrCsxIGHEuffB3koCqCOvCS7_Y7xdI1mNcIUTcDv71mwoHQaJskOjMptvQzK2wmjnK2s1dJSLeJbg8IGoRj6S3hXCvEo3ItAKJUzyZHyVkhPKRTO5yn6CCjE3-PGHtjcF8dpBAgDSx95PPStytT4Ku1gw4jQlDq8h7sBQZzjQ2tIwewin_Y7nKk_aydOYdJaY3hgZONcCkqEicGUGfi_5TOtFn1w116F9kj_28Fa4JJNbMIdDeA-LXkH4736LuNsrk6N1X3uUtA_z_4QDCc817DZTYhCX8XfzN6lKU6VTly7t0xU-eC4Sv-H3iJDlNFJh313upezeV9a1qDHqZnuR5Eeabd_jRQsF8pYa9gRCi-QqaVZ1ISIvLFVGRU2BDXnLHwUyM_1pGjGcgBszt5jaBpTjNe5Z2JHjtf4xHVvAKJRaQV-1uZRwRtoFEy6d45s1kYtJ2ykNgMtV2-MP0DPjMV566JkKvEGypMNmr_AmICDN6yfRxo_QCCkcCGMwmt1nYm53k4TBGRXiI9Y5RHesZqFjEqLdn2p4ilWdbgn-lWu0oszDt2clbXaPGvxEN3J-eAZ1XmICs8h2i8NNRkjxbDdY-6VF-VZjyU4SfUGprwzbKY"
+---
+
+# 【武漢肺炎大爆發】北大嶼山醫院「高危」　上周至少3病人轉院隔離前逃走　去向不明
+
+武漢肺炎疫情蔓延。香港確診病例累計達12宗，累積懷疑個案近600宗。政府昨日（30日）起實施「局部封關」。不過，出入境旅客量最多的機場、羅湖、深圳灣、港珠澳大橋等，仍維持開放。醫護工會綜合前線人員資料指，鄰近機場及港珠澳大橋兩個關口的北大嶼山醫院最為「高危」， 每日接收發燒內地病人數以十計，而上周更有3人在被送往瑪嘉烈醫院隔離之前偷走，去向不明。
+
+與此同時，相繼有病人被揭發曾經隱瞞甚至謊報個人資料，包括謊報來源地、外遊紀錄、工作崗位等，令醫護人員安排檢測困難，亦無法做足感染防範措施。醫管局行政總裁高拔陞呼籲，所有病人須將所有病情相關資料如實告訴醫護，醫管局會嚴肅跟進不負責任、 隱瞞病史或者已知風險的人士， 並將有關個案呈交執法機構。
+
+<figure>
+<img src="https://web.archive.org/web/20201020053420im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/北大嶼山醫院-醫管局-20200131004459_115b_large.jpg" alt="">
+<figcaption>北大嶼山醫院。醫管局圖片</figcaption>
+</figure>
+
+鄰近機場及港珠澳大橋兩個關口的北大嶼山醫院，被視為形勢最「高危」的公立醫院。香港專職醫療人員及護士協會幹事、公立醫院護士劉凱文指，北大嶼山醫院急症室每日收200至300個症，據分流站護士估計，約三分一個案來自中國內地，當中不少有發燒等符合呈報準則的病徵。劉引述伊利沙伯醫院急症室分流護士指，一更8小時之中，接收大約3、4個來自內地、發燒的病人；而北大嶼山醫院急症室分流站，一更起碼有雙位數字的來自內地、發燒個案，一日可以收到數以十計的高危病人。
+
+由於北大嶼山醫院沒有內科病房或隔離病房，當醫護發現該類高危病人，便會將他們送往瑪嘉烈醫院作隔離檢查。劉凱文引述前線醫護人員向工會匯報的情況指出，單計上星期，已有至少3宗內地、有發燒或急性呼吸道感染徵狀或肺炎病徵的病人逃走，「佢哋喺等待被轉送（往瑪嘉烈醫院）、喺負壓房等緊期間偷走，攔唔到佢哋。」劉表示，該3名逃走病人，1人報稱來自上海，1人報稱來自深圳北，1人不確定來源地。3人去向不明，有機會仍潛伏在社區。
+
+### 病人隱瞞謊報外遊史　 醫生反覆問診始揭發
+
+此外，劉凱文引述前線醫護人員指，病人向醫護人員隱瞞或謊報病歷、外遊紀錄的情況非常普遍，「（求診者）死都唔肯話自己係武漢嚟，同我哋講話係深圳北過嚟。有啲（來自）嚴重疫區嘅，都係死都唔認，例如上海，會話自己唔係（來自）上海，係第二度嚟。」
+
+有不願具名的前線醫生亦形容，醫院可謂「草木皆兵」，部份來自武漢的病人，會抗拒向醫護承認來自武漢；另一方面， 部份並非來自武漢、具備類似武漢肺炎病徵的病人，卻會向醫護謊稱自己來自武漢，期望接受進一步檢測。他指出，病人謊報資料，不但加重醫護人員的工作量，亦令武漢肺炎的篩查更為困難。
+
+該些病人往往最初不會向分流站護士如實交代病情、外遊紀錄，到入院後再被醫生問症，才改變說法。「醫生chok吓chok吓佢又講啲，chok吓chok吓佢又講啲。」劉凱文續指，病人隱瞞、謊報，一般在他們病情惡化、醫生反覆問診後才揭發，而最初收症的分流站護士最終未必會知道曾「受騙」，公立醫院病人隱瞞、謊報的個案無從統計，亦防不勝防，「（分流站醫護人員）梗係淆底啦，所以一定要最高規格嘅full PPE、全副裝備。」
+
+#### 據悉，周四（30日）其中1宗新增初步確診個案，是瑪嘉烈醫院內科病房一名男病人，他在內科病房留醫6日，至第7日初步確診後，才承認曾經到過內地，令病房一片風聲鶴唳，醫護人員有感「凶多吉少」，憂慮已受感染。本周較早前，聯合醫院新生嬰兒深切治療部及特別護理部接收的一名發燒男嬰，其父母亦被指隱瞞職業，經醫護人員多次詢問，才承認曾於廣州醫院工作，接收過武漢肺炎個案。
+
+<figure>
+<img src="https://web.archive.org/web/20201020053420im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/武漢肺炎-武漢人-確診病例-20200130175852_41c6_large.jpg" alt="">
+<figcaption>本港第9及第10宗武漢肺炎確診感染個案是一對來自武漢的夫婦（圖中為丈夫被送院隨離）。衞生防護中心傳染病處主任張竹君形容，二人不太合作，中心未能確定他們在港期間，確實到過什麼地方。</figcaption>
+</figure>
+
+### 醫護倡封關阻截病源
+
+杏林覺醒成員、公立醫院心臟專科醫生黃任匡接受眾新聞查詢時說，病人不對醫生講真話並非新鮮事。他舉例指，過往禽感流爆發時，有個案在急症室、病房都被反覆問病歷時，都表示沒有接觸家禽，到病人病情轉差，在插喉之前，才承認在內地買過雞來煮食。黃任匡認為，沒有方法解決病人不誠實報告病歷、外遊紀錄的情況，如以懲罰阻嚇病人謊報，則會令病人對醫生的信任減少，他對此有所保留，並重申醫生及病入之間互相信任非常重要。
+
+黃任匡認為，封關是目前最徹底阻截患者湧港的方法。他指出，封關不僅為保護香港，也為保護整個世界，因為香港作為一個國際都市，一旦出現社區爆發，便淪為病毒的其中一個主要轉口港，這樣香港對全球亦是極不負責任。
+
+該名不願具名的醫生批評，政府因為政治不封關，反而讓更多內地人來港求醫。他續指，富庶地方如美國，用機械人上前線治療病人；窮國如菲律賓，要求武漢的入境航班原機折返；惟香港政府繼續中門大開，令前線醫護淪為「生化機械人」，「因為政治因素，而畀個mission impossible你（前線醫護）。」
+
+### 醫管局：嚴肅跟進隱瞞病史者　將交執法機構
+
+醫管局行政總裁高拔陞周三（29日）在 [網誌](https://web.archive.org/web/20201020053420/https://www.ha.org.hk/visitor/ha_visitor_index.asp?Content_ID=254708&Lang=CHIB5) 表示，過去一星期，先後有幾位病人或病人家屬未有如實將病歷、接觸史及旅遊紀錄等重要資料告訴醫護人員，令醫護人員在診斷、隔離和安排相關測試時出現不必要的困難，更重要是這些行為大大增加了醫護人員和其他病人感染的風險。
+
+高拔陞呼籲，所有病人必須將所有跟病情有關的資料如實告訴醫護，讓醫護人員可盡快安排所需的隔離治療和測試。他重申：「對於一些不負責任，隱瞞病史或者已知風險的人士，我們會嚴肅跟進，並將有關個案呈交執法機構，以免使醫護人員曝露於不必要的風險，同時增加社區感染的機會。」
+
+<figure>
+<img src="https://web.archive.org/web/20201020053420im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/醫護人員-防護措施-醫管局-20200131004446_1608_large.jpg" alt="">
+<figcaption>醫護人員（右一、二）穿著基本PPE（Personal Protective Equipment，個人保護裝備）照顧病人。醫管局圖片</figcaption>
+</figure>
+
+### 大律師：謊報或構成故意妨礙醫護工作
+
+法政匯思召集人、大律師李安然分析指，如果病人不向醫護人員誠實交代病歷、外遊史等，令醫生未有做足夠隔離，及後揭發病人說謊，才即時自我隔離14日，已肯定是妨礙醫護工作，故可循 [《醫院管理局附例》 第9條妨礙行為](https://web.archive.org/web/20201020053420/https://www.elegislation.gov.hk/hk/cap113A!zh-Hant-HK?xpid=ID_1438402604058_003) ：「任何人不得故意妨礙院方職員合法執行其職責或故意妨礙、擾亂、打擾或煩擾他人合法使用醫院或醫院所提供的任何設施」作出追究。
+
+李安然提到，病人可能意識不到說謊的嚴重性或影響力，未必構成「故意」。他表示，醫管局可以做多一步，一發現懷疑個案，便向患者作出警告，例如：「如果講大話會有機會令醫護人員防護不足，如果日後發現虛假資料，而導致醫護人員需進行額外的自我隔離，病人有機會違法」等，警告後才問病歷，並在病歷印上類似警告字句，要求病人簽名作實，則應該證據充分。
+
+然而，李安然指，上述做法相當麻煩，他不認為應由醫護人員去做。他指出，政府有權按 [《預防及控制疾病條例》 第8條](https://web.archive.org/web/20201020053420/https://www.elegislation.gov.hk/hk/cap599!zh-Hant-HK?xpid=ID_1438403500541_003) 去立法，即行政長官會同行政會議認為任何情況屬公共衞生緊急事態的情況，可為防止、應付或紓緩該公共衞生緊急事態的影響，及為保障公眾健康，訂立規例，盡快處理病人謊報的情況。「其實政府有權做得好快，快到好似立《禁蒙面法》咁。」他補充指，《預防及控制疾病條例》第(3)(a)條：「規定任何人披露或提交任何攸關處理公共衞生緊急事態的狀況的資料」，這條文能處理市民謊報的情況。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20201020053420/https://www.hkcnews.com/aboutus/#subscribe)

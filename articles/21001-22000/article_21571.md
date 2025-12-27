@@ -1,0 +1,62 @@
+---
+title: "反送中運動的儒家精神"
+date: "2019-06-25"
+last_updated: "2019-06-25 17:52:58"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "反送中"
+  - "616大遊行"
+  - "撤回惡法"
+url: "https://web.archive.org/web/20210918072934/https://hkcnews.com/article/21571/616%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21599/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/21571/616%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21599/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 反送中運動的儒家精神
+
+【撰文：楒行】
+
+為反抗威權施行惡法，二百萬港人合力破了世界紀錄。儒家有云：「 天下興亡，匹夫有責」。有這樣一份擔當的香港人，此時不表態，更待何時？
+
+孟子說：「窮則獨善其身，達則兼善天下」（孟子，盡心上），一個人在得志的時候能以天下為己任，而在困窘之時還不放棄個人修養，還能心懷天下，這就是君子。這次修訂條例能夠刹停，有賴二百萬跨階層、跨世代、深愛香港的港人和平有序地上街向威權說不，用汗水和腳步爭取自由，期間没有任何搶掠，更沒有燒毁一個垃圾桶， 贏得國際社會的掌聲，對北京構成壓力，不得不喝停林鄭葬送香港。這次事件的性質已超越捍衛一國兩制，一如西方傳媒所言，香港已掀起另一波全球對抗强權暴政的普世價值浪潮， 這歸功於每一位曾上街的港人。
+
+<figure>
+<img src="https://web.archive.org/web/20210918072934im_/https://hkcnews.com/news_新聞/hk-discuss/2019/06/撤回惡法-616大遊行-林鄭下台-20190617171949_2dae_large.jpg" alt="">
+<figcaption>6.16反送中撤惡法大遊行。美聯社照片</figcaption>
+</figure>
+
+孔子說：「士而懷居，不足以為士矣」。（論語，憲問），一個人如果每天想的都是個人私利，那麼就不能成為一個真君子。為反對逃犯修訂條例挺身而出的，是不計較個人得失的善良市民，有受盡催淚彈、橡膠子彈、布袋彈洗禮的群眾，有無懼兇猛警棍的年青人，有不幸以身殉港的義士梁淩傑，有在暴警前以死相勸的城姐，還有其他數之不盡的感人故事，他們為香港不顧自身安危而擔起重任，表現出堅強的意志，所謂：「士不可以不弘毅，任重而道遠。仁以為己任，不亦重乎？死而後已，不亦遠乎？」（論語，秦伯）。此外，泛民也有多位在示威區現場奮不顧身的議員，包括直面摧淚彈的胡志偉，聲嘶力竭勸喻義士梁淩傑的鄺俊宇等，這與建制派終日為盤算個人利益而只顧奉迎上意，堅持逆民意強推惡法，形成強大反差。
+
+<figure>
+<img src="https://web.archive.org/web/20210918072934im_/https://hkcnews.com/news_新聞/hk-discuss/2019/06/警察-612金鐘大衝突-示威-20190617182514_1e53_large.jpg" alt="">
+<figcaption>6.12市民挺身包圍立法會，遭遇防暴警察武力驅趕。美聯社</figcaption>
+</figure>
+
+論語有云：「君子懷德，小人懷土。君子懷刑，小人懷惠。」（論語，里仁），君子和小人每天心中惦記的事情是不同的。相比於上街的港人，林鄭政府與建制派議員無視百萬人遊行抗惡法，堅決通過修訂條例，與民意對著幹，及至中央迫於形勢下叫停，行政會議成員陳智思、葉劉淑儀、林正財和建制派議員李慧琼等紛紛急轉軚，群醜不堪入目，他們在這些日子每天的心思意念都只是聖上所給予的恩惠，為了維護和擴大這一點點個人利益而不顧道德，妄顧港人人身安危、企業走資以至香港金融中心地位不保等後果，聯手將香港推向與國內城市無異之境況，自私自利的醜態再清楚不過地看在香港市民眼裏，建制派此等全無個人意志只懂唯利是圖之輩，定必在未來的選舉為選民所唾棄，可嘆彼等「既自以心為形役，奚惆悵而獨悲。」
+
+子曰：「君子道者三，我無能焉：仁者不憂，知者不惑，勇者不懼。 」所謂勇者無懼，指「兩強相遇勇者勝」，當內心足夠勇敢，就有一種勇往直前的力量，自然不再害怕。示威者的信念是， 一旦惡法通過，以往所愛的香港將不復存在，面對悍警全副武裝，仍然堅持和平非暴力示威，佔盡道德高地，縱使捱打，吃盡催淚煙，嚐透橡膠子彈，他們也坦言無懼，他們的勇敢曝露了香港這個國際級大都會實質已成為警察城市，警察使用過份暴力令全城怒吼，以至國際社會的關注，港府管治陷入了道德淪喪的地步而被唾罵，終致北京不得不叫停以緩和局勢，顯然港人已勝了一仗，受傷和被捕並有機會控以暴動罪的示威者縱然犧牲，他們對追求公義的勇敢，昂然高舉的正義旗幟，博得香港及國際社會的同情，令逃犯修訂條例得以暫緩，力挽狂瀾於既倒。
+
+子曰：「君子不器」（論語，為政）， 君子所承擔的社會責任比職業有更高一層的理想，民間有逆權廚師曾因搞工會被炒魷及被列入黑名單，他的信念是只為把美好的香港交給下一代，為反惡法發聲而影響個人事業及生計也在所不計。君子不在於他的所為，而在於他的所為背後的動機，即是要作社會良心。相比之下，一眾貪圖俸祿的問責高官、行政會議成員、建制派議員、行政長官，雖然身居高位，但為保權位只顧奉迎上意，妄顧港人利益，為人所唾罵，最終相信也只是過河卒子被主子唾棄。
+
+<figure>
+<img src="https://web.archive.org/web/20210918072934im_/https://hkcnews.com/news_新聞/hk-discuss/2019/06/616大遊行-逃犯條例-20190618125710_2cd2_large.png" alt="">
+<figcaption>6.16獅子山頭出現「保衛香港」直幡。讀者莫先生提供</figcaption>
+</figure>
+
+反對逃犯修訂條例這場風波，透見香港人心不死， 並寫下香港民主發展的重要一頁， 當中暗含的儒家精神讓港人變得美麗，盡顯人性的光輝，事件正在發酵當中，其對日後中國內地以至全球社會所起的啟蒙作用暫未可逆料。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918072934/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20210918072934im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

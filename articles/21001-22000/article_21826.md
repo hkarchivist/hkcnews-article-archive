@@ -1,0 +1,67 @@
+---
+title: "被示威青年罵「左膠、政棍」　張超雄：我係Out !"
+date: "2019-07-05"
+last_updated: "2019-07-18 23:57:46"
+author: "實習記者林倩茹"
+category: "眾聞"
+tags:
+  - "張超雄"
+  - "Fernando CHEUNG"
+  - "工黨"
+  - "Labour Party"
+  - "反送中"
+  - "衝擊立法會"
+url: "https://web.archive.org/web/20210928051858/https://www.hkcnews.com/article/21826/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDout-"
+original_url: "https://www.hkcnews.com/article/21826/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22197/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDout-"
+---
+
+# 被示威青年罵「左膠、政棍」　張超雄：我係Out !
+
+近日多個反送中抗議行動現場，都見到62歲的張超雄身影，但他卻被一些示威青年斥責是「政棍」、「左膠」、「難民之父」，甚至要求他離開。張超雄承認，他與年輕一代有鴻溝：「我的確很Out，係老一輩嘅泛民Old Seafood。」他指，會接受批評，「成個抗爭出發點一致，唔會計較呢啲嘢。」
+
+張超雄出任立法會議員多年，明年立法會選舉他將退下，不會排第一出選。他自言「從來都係幫弱勢」，經常為新移民、難民等弱勢社群爭取權益，卻與近年的本土氣候出現矛盾。在近日的反修例風波中，張超雄有份發起社福界反送中大罷工，他於6月21日包圍警察總部行動時，呼籲示威者讓警車先離開卻被指罵。7月1日，示威者在立法會外撞玻璃，張上前阻擋時，被人拖走並遭批評「阻住晒」。
+
+張超雄是和理非的icon，面對抗爭新一代，議員、社工、左翼，又如何？
+
+<figure>
+<img src="https://web.archive.org/web/20210928051858im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/立法會議員-張超雄-胡志偉-20190705034352_23a6_large.jpg" alt="">
+<figcaption>七一下午示威者撞立法會玻璃時，張超雄（右二）和郭家麒（右一）、胡志偉（左一）、尹兆堅（左二）一度擋着。鄭靖而攝</figcaption>
+</figure>
+
+張超雄記得，七一下午他在立法會大樓，知道入口處有人撞玻璃，便立刻落樓阻止，擋在玻璃門前，呼籲示威者不要衝擊。有人對他呼喊：「100萬人出嚟，200萬人出嚟，300萬人出嚟都冇用啦。」、「你唔好阻住晒。」示威者不斷用鐵籠車來回撞擊，張超雄和數名議員一度阻擋，張憶述：「佢哋好用力，將議員逐個拉走，我都出盡力。」後來有人用力將他拖至群眾身後，當時他情緒激動，一邊哭一邊大叫：「唔好咁樣啦，我哋唔係暴徒，唔好俾佢哋有藉口講。」
+
+他有感，當日的示威者是希望為6.12被捕者討回公道，但卻在做相反的事情。但示威者沒有聽從他的勸告，只以「我哋都預咗」回應被捕風險。張說，當日背部曾經扭傷，去到最後已經用盡全力。
+
+張超雄曾質疑，當日立法會沒有會議，「衝嚟做咩？」他覺得，行動需要有具體目標，衝擊立法會對整個運動來說並不理想，「點都失分」。但示威者沒有理會他的勸告，把他拉走，他形容，當時示威者「整體嘅意志都好強」，「而我就好悲憤、悲哀、擔心，驚佢哋後果好嚴重，但又咩都做唔到。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928051858im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/張超雄-工黨-立法會議員-20190705034410_1eb8_large.jpg" alt="">
+<figcaption>6.12之後，張超雄繼續以和理非方式發聲。張超雄Facebook圖片</figcaption>
+</figure>
+
+對於有示威者責備民主派議員阻擋他們，他感到無奈：「我好想佢哋知道，我哋唔想佢哋受傷，但佢哋唔理，我又阻止唔到，好無助，無晒力量去做。」他表示，某程度上知道示威者很絕望，明白他們不是想用暴力的人，希望他們明白「我幾時都會同佢哋一齊」，指如果下次有類似的衝突，他的立場一樣，態度不會轉變。
+
+當晚，示威者衝入立法會會議廳後，張超雄也在場，他向傳媒質疑警方的做法：「警方要清場的話，多大場面都清到，竟然不斷退縮，最後在立法會擺『空城計』，引大家入來，撞甚麼都不理你，任你喜歡怎樣就怎樣。這個景象是警方特地『放水』造成。」他這番話，翌日備受建制派及撐警陣營批評，警方連日反駁「空城計」論。
+
+做議員最緊要，抵得鬧。
+
+採訪社福新聞多年的記者，不少人都欣賞張超雄這位博士和註冊社工，對弱勢社群的關注，經常為被主流社會忽視的一群發聲。但本土思潮興起之後，新一代青年卻批評張超雄是「左膠」、「政棍」，指他浪費香港資源幫助新移民和難民，揶揄他是「難民之父」。
+
+面對這些說法，張超雄承認他與年輕一代有鴻溝，知道不少青年，都覺得他是「老一輩嘅泛民Old Seafood」，又承認他和年輕人相比較為守舊，指自己的確很「Out（落伍）」，會盡量緊貼資訊。張表示，聽到批評時難免會難受、矛盾，但他會盡量做好自己。張超雄認為，不少批評都是基於對他的誤解，他憶述，有次被年輕人指罵時，盡量向年輕人解釋，而對方亦願意接受。他亦表示，不會介意批評，「我唔需要大家認識我，而且成個抗爭出發點一致，唔會計較呢啲嘢。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928051858im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/衝擊立法會-張超雄-20190704223546_1245_large.jpg" alt="">
+<figcaption>3年前，曾有人冒張超雄與工黨名義掛「難民之父」橫額，諷刺他「致力為南亞難民提供援助」。張超雄Facebook 圖片</figcaption>
+</figure>
+
+張超雄表示，今次《逃犯條例》修訂，「唔係佢哋出咗嚟，我哋喺議會都阻止唔到。」稱讚年輕人創造奇蹟，非常欣賞他們的想像力和創造力，帶來了有效的行動。同時，他認為不同人有不同崗位，要做不同的事。
+
+他舉例，議員可以監察警方、保護示威者，這些只有他們可以做到，故不同崗位的人要互相合作，「和理非同勇武要互相配合先可以提升到個運動，帶到改變，唔會話邊方面好啲。」他覺得，現在社會已經變得更成熟，市民會考慮事件的來龍去脈，明白是政府多次不回應，令年輕人無路可走，才會發生衝擊事件。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928051858/https://www.hkcnews.com/aboutus/#subscribe)

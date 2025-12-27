@@ -1,0 +1,63 @@
+---
+title: "【庭外的親屬】4日4夜未見上一面　朱凱廸太太盼家屬互相扶持、冀香港人支持"
+date: "2021-03-05"
+last_updated: "2021-03-08 23:29:02"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "家屬"
+  - "國安法"
+  - "初選大起訴"
+url: "https://web.archive.org/web/20210729223228/https://www.hkcnews.com/article/38867/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39012/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38867/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39012/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【庭外的親屬】4日4夜未見上一面　朱凱廸太太盼家屬互相扶持、冀香港人支持
+
+
+{{< video src="https://web.archive.org/web/20210729223228if_/https://www.youtube.com/embed/lwNzCn_nmDM" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20210729223228im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/林卓廷-20210304214129_dffe_large.jpg" alt="">
+<figcaption>林卓廷媽媽（中）得悉兒子須被還柙至5月，在親友攙扶下離開法庭。周滿鏗攝</figcaption>
+</figure>
+
+初選47人案保釋聆訊結束，其中15人獲批保釋，但律政司立刻上訴，全部被告須即時還柙。47名被告，47個家庭，作為親人，這次聆訊也只能凝視直播屏幕，看看自己的丈夫、太太、兒子是否安好。朱凱迪太太區佩芬表示希望世界、香港人繼續關注案件，「我哋係同坐一條船，希望可以同舟共濟。我哋家屬都係，希望可以互相扶持，亦都希望可以得到香港人嘅支持，多謝大家。」
+
+劉頴匡的女朋友Emilia Wong形容保釋條件已經非常嚴苛，令被告儼如「社會性死亡」，「根本上佢哋唔會喺公共領域上存在，基本上等於唔再存在社會咁滯。究竟呢個政權怕啲咩呀？怕啲死人會危害國家安全？我重申呢啲保釋條件，已經嚴苛到社會性死亡咁滯，都唔可以俾佢哋去保釋，見吓屋企人。」
+
+<figure>
+<img src="https://web.archive.org/web/20210729223228im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-20210304214451_1a3c_large.jpg" alt="">
+<figcaption>左起：朱凱廸太太區佩芬、岑敖暉太太余思朗、民陣召集人陳皓桓、梁國雄太太陳寶瑩。周滿鏗攝</figcaption>
+</figure>
+
+國安法指定法官、總裁判官蘇惠德主理的這宗保釋申請，日以繼夜地的進行了4天，終於在昨夜頒下裁決——15人獲批保釋，其餘須還柙。法院地下有支持者拍掌呼掌，同一時間的庭內，律政司代表、副刑事檢控專員（特別職務）楊美琪站起來，向法庭提出覆核申請。結果，全部被告即時還柙等候上級法庭處理律政司的上訴。原本獲准保釋的15人，亦都要再度被羈留。
+
+[呂智恆的養母](https://web.archive.org/web/20210729223228/https://www.hkcnews.com/article/38852/%E5%91%82%E6%99%BA%E6%81%86-%E5%88%9D%E9%81%B8%E5%A4%A7%E8%B5%B7%E8%A8%B4-%E5%88%9D%E9%81%B8%E5%A4%A7%E6%90%9C%E6%8D%95-38861/%E3%80%90%E8%A3%81%E6%B1%BA%E4%B9%8B%E5%BE%8C%E3%80%91%E5%91%82%E6%99%BA%E6%81%86%E9%A4%8A%E6%AF%8D%E8%B7%AA%E5%9C%B0%E7%97%9B%E5%93%AD-%E5%8B%89%E6%B8%AF%E4%BA%BA%E5%88%A5%E6%94%BE%E6%A3%84-%EF%BC%9A%E3%80%8C%E6%AD%A3%E7%BE%A9%E4%B8%80%E5%AE%9A%E6%9C%83%E5%8B%9D%E9%81%8E%E8%85%90%E6%95%97%E3%80%8D) 在法院地下嚎哭，又有其他被告的親友悲慟不已，甚至暈倒送院。這時候，幾名家屬仍然選擇與民陣陳皓桓站出來面對傳媒。
+
+<figure>
+<img src="https://web.archive.org/web/20210729223228im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-呂智恆-20210305005609_1599_large.jpg" alt="">
+<figcaption>呂智恆的養母在法院地下嚎哭。周滿鏗攝</figcaption>
+</figure>
+
+岑敖暉新婚太太余思朗首先多謝連日來聲援的人、家屬及傳媒，對於保釋被拒有心理準備，但得悉結果時仍感傷心，亦批評審訊4日來被告都無法見親人，「就算佢嘅親人日日嚟旁聽都無見過佢。」她最後表示，案件押後三個月再訊，這段期間都要還柙，對被告與家屬們都很不合理、不合比例、不公平，「我係非常傷心同憤怒，最後想呼籲大家繼續支持他們，香港加油、香港人加油。」
+
+朱凱廸太太區佩芬表示，希望世界、香港人繼續關注案件，「我哋係同坐一條船，希望可以同舟共濟。我哋家屬都係，希望可以互相扶持，亦都希望可以得到香港人嘅支持，多謝大家。」梁國雄太太陳寶瑩批評保釋制度扭曲：「好多被告接受嚴苛的條件，寧願犧牲言論自由，但法官都係不接受。」民陣召集人陳皓桓最後補充，庭內各被告透過報章媒體見到大家聲援，令他們感到鼓舞。
+
+<figure>
+<img src="https://web.archive.org/web/20210729223228im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/家屬-國安法-初選大起訴-20210305015908_2642_large.jpg" alt="">
+<figcaption>劉頴匡的女朋友Emilia Wong。周滿鏗攝</figcaption>
+</figure>
+
+劉頴匡的女朋友Emilia Wong則表示：「保釋條件已經係非常嚴苛、苛刻、嚴格，基本上被告、政治犯要遵守呢啲保釋條件，實際上我覺得佢哋等如『社會性死亡』，根本上佢哋唔會喺公共領域上存在，基本上等於唔再存在喺社會咁滯。究竟呢個政權怕啲咩嘢？怕啲死人會繼續危害國家安全？我重申呢啲保釋條件，已經嚴苛到佢哋『社會性死亡』咁滯，都唔可以俾佢哋去保釋，見吓屋企人。」
+
+部分被告人亦都在社交媒體轉達對聲援市民、律師、記者、香港人的關心。楊雪盈社交媒體小編轉達的訊息指，「前晚囚車從法院離開時，雪盈看到好長好長的一段路都有人鏈，大家舉着的燈光透過來。大家的呼聲雪盈全部都聽到了，她表示會堅強撑住。一定、一定。」梁晃維的則說：「晃維好鐘意Dear Jane嘅《最後一間唱片鋪》，希望大家可以好似歌詞咁講—『祈求就似這唱片舖，一起撐到最尾，一起自豪。』 多謝大家！」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729223228/https://www.hkcnews.com/aboutus/#subscribe)

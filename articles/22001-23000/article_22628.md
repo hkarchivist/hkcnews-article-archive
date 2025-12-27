@@ -1,0 +1,44 @@
+---
+title: "八月五日，DSE和罷工"
+date: "2019-08-04"
+last_updated: "2019-08-04 20:29:25"
+author: "一悠"
+category: "眾說"
+tags:
+  - "逃犯條例"
+  - "反送中三罷"
+  - "85罷工罷市"
+url: "https://web.archive.org/web/20220811213211/https://www.hkcnews.com/article/22628/85%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/22628/85%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 八月五日，DSE和罷工
+
+明天8月5日DSE大日子，一定有罷工的父母，和仔女一早撳掣，看看自己入哪間大學。
+
+也很有可能，著草去台灣的，起碼一百多位衝撃71立法會勇士勇女，其中也有DSE考生，他們也在看著電腦，知道自己入香港哪間大學，但九月時，卻不能回來讀了。
+
+她他們還在擔心自己，在中華民國的生活、讀書、適應 、徬徨⋯⋯
+
+香港義士竟然還要流落海外，重複孫中山百年前的老路。
+
+他們考DSE，一定有背中文科必考範文——蘇洵的《六國論》，六國就是不團結 ，爭相「賂秦」——奶秦舔秦，結果被秦分化，玩完。
+
+這一次可不同了——兄弟爬山、各自努力，不再有人奶秦。黃大仙昨晚就有人說——「不要怕，我們人多」！
+
+明天罷工，我們人多，一定掂。
+
+想起在台灣的後生仔，想起近日不斷被捕的後生仔DSE仔女，我們罷工一天。
+
+<figure>
+<img src="https://web.archive.org/web/20220811213211im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/逃犯條例-85罷工罷市-反送中三罷-20190804184328_95ec_large.jpg" alt="">
+<figcaption>黃思銘攝</figcaption>
+</figure>
+
+---
+
+![博客 | 一悠](https://web.archive.org/web/20220811213211im_/https://www.hkcnews.com/uploads/avatars/2c58e158-9035-4161-92ef-b4b56f5e3747.png?873536568)
+
+**博客 | 一悠**
+
+【一悠・到此一遊】喜歡談古論今，也常談股論金。心理、鋼琴、股票、教育，交义感染，交流一下。學歷：香港中文大學文學士，研究院教育文憑，澳洲新南威爾斯大學碩士（堅有證書㗎，卻無野雞大學博士，也不必請律師去找證書）

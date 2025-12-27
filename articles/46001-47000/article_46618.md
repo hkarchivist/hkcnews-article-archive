@@ -1,0 +1,61 @@
+---
+title: "從醫社合作，走到社醫合作，邁向社醫共生"
+date: "2021-10-19"
+last_updated: "2021-10-22 18:38:14"
+author: "醫護行者"
+category: "眾聞"
+tags:
+  - "醫護行者"
+  - "基層醫療"
+url: "https://web.archive.org/web/20221007114918/https://hkcnews.com/article/46618/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46790/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46618/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46790/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 從醫社合作，走到社醫合作，邁向社醫共生
+
+九月初，香港社會服務聯會（社聯）舉辦了一個名為 [「社醫合作的社會服務案例」](https://web.archive.org/web/20221007114918/https://www.hkcss.org.hk/upload/sse/20210902_rundown.pdf) 研討會，並邀請了七個社醫合作項目負責人來分享在社區內為不同社群需要發展健康項目的經驗。醫護行者有幸被邀請分享社區藥房的理念及如何回應社區需要。
+
+[醫護行者](https://web.archive.org/web/20221007114918/https://www.facebook.com/HIAHK/) 於2016年已提出社醫共生的願景，當時社會重點提及醫社合作，先醫後社，目的是回應病人出院後的需要，減少回流醫院並在社區𥚃找到合適的服務，從而疏導醫院人數。當中例子有「智友醫社同行計劃」、風起航─中風家庭支援行動等計劃、港島東醫院聯網（社區服務）每年討論醫社合作的項目，致力發展醫社合作。
+
+<figure>
+<img src="https://web.archive.org/web/20221007114918im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/醫護行者-20211021194940_2e36_large.jpg" alt="">
+<figcaption>護士診所服務（醫護行者提供圖片）</figcaption>
+</figure>
+
+隨著社會近年多討論基層醫療發展，政府也投放資源到十八區發展地區康健中心或地區康健站，不同的社福機構開始對社區的健康服務感興趣。加上新冠肺炎疫情的經驗，引發社區不同持份者反思如何預防疾病及保持健康的生活。事至今日，社會開始明白不能只停留在「有病先醫」的思維，漸漸試行「先社後醫」的合作模式，稱之為「社醫合作」（第二階段）。
+
+<figure>
+<img src="https://web.archive.org/web/20221007114918im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/醫護行者-20211021194756_b9cb_large.png" alt="">
+<figcaption>外展健康站（醫護行者提供圖片）</figcaption>
+</figure>
+
+我們認為「社醫合作」依舊停留在社及醫清晰分工的模式，忽略了社群生活與醫療系統本為一個整體。社區環境出現問題所引致的健康風險，短則可能引發傳染病危機，長遠而言或加劇慢性疾病的人數，兩者都大大損害市民的生活質素，也加重醫院系統的負擔。因此，我們希望繼續提倡「社醫共生」為本的模式，重視社區生活與健康之間的關係，以設計社區服務或制定政策，以下將詳作闡述。
+
+<figure>
+<img src="https://web.archive.org/web/20221007114918im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/醫護行者-20211021194804_34a0_large.jpg" alt="">
+<figcaption>社區健康大使及義工培訓（醫護行者提供圖片）</figcaption>
+</figure>
+
+### 什麼是社，什麼是醫
+
+[陳永新博士的文章](https://web.archive.org/web/20221007114918/https://bit.ly/3wygZgF) 中提到「社醫共生」是甚麼？
+
+他指出「社醫共生」是指社區工作與公共衞生兩個專業範疇的協作，透過有機協作發揮各自的強項，達到更多解決方案選項和更大的社會影響力。我們希望以此拉闊社醫共生的想像，解說醫護行者的本意。
+
+**1) 社醫共生中的「社」，並不只是指社福界別，更包括社區內的不同持份者。**
+
+社區工作透過了解社群的不同需要，例如公共衛生需要，從而提升社群的集體意識及知識。社區工作者鼓勵市民自助及互助的精神，過程中培養社區歸屬感和認同感，改善社群的生活質素，以充權為目標之一。除了社福界，社區中不同的持份者都在自己的本位上影響其社群的健康，改善社群之間的健康生活。例如地產發展商會考慮包括基層醫療及健康生活設計的屋苑，學校會留意小食部的食物是否健康，餐廳會設計均衡營養、多菜少肉的餐單，各區會增加讓居民運動的空間等等。任何人只要可影響一群人的健康生活模式，都是社醫共生中「社」的一分子。可以想像，社醫共生的可能性多不勝數。
+
+**2) 社醫中的「醫」並不單指醫生，也包括不同的醫護專職，例如護士、物理治療師、營養師、藥劑師、心理治療師及公共衛生學家等。**   
+   
+ 緃使醫護專職有豐富的醫學知識及臨床經驗，市民難在醫院或診所的診症了解自己的健康議題。在社醫共生的模式下，公共衛生或醫護專業的實踐需更貼近市民生活化，使健康知識得以普及，市民才能更健康地生活。若醫護專職在社區內能帶動社區及早認識自己的健康風險、預防疾病的方法、環境限制及護理，這正是基層醫療的根本。
+
+**3) 希望讓每一個人能健康地生活，這是社及醫之間的橋樑。**   
+   
+ 香港的健康教育大多流於健康講座，以病理為主軸，教育大家不同生活習慣或使用不同用品之間權衡利弊，希望聽眾能作出理性的決策，從而提升健康。可惜很多健康知識也過份艱深及專業化，難以令市民明白及運用。另外，即使聽眾對講者所傳遞的健康知識照單全收，但也未必能在生活當中實踐，或因可能面對的困難而未能成功改變。正如大部份人都知道少糖少鹽、少食煙少飲酒、多食蔬菜、多做運動能保持健康，但又有多少人可以有足夠時間、資源來實踐？市民在生活中遇到不同掣肘，往往令知識不能在生活中體現。健康講座的成效一向成疑，單向地傳遞知識，並不能有效推動生活上的改變。因此「醫」需與「社」互補，以了解市民生活開始，建構更以人及社區為本的健康服務。
+
+**4) 「共生」是指生活與健康互動，不可分割，同榮同憂。過往「社」及「醫」分工清晰，鮮少交流知識及理念，容易各自為政，造成斷橋現象。**   
+   
+ 社會中的政策直接影響市民的健康，例如劏房的出現是源自現時房屋政策的漏洞，缺乏法律規範下，劏房衛生環境及安全每下愈況，劏房住戶的健康問題便顯得嚴重。個人層面上，人愈病便愈窮，愈窮便愈病。不少人花盡一生儲蓄來治病，也有不少人因為生病而令生活有種種的不便。「社」、「醫」都要理解每一個人實踐健康生活相應的生活條件及限制。由此設計有效「治療」方向，社群與醫護之間有更多溝通，以討論改善個人以至社會的健康決定性因素。大家在經驗中學習，跳出以疾病為題的健康講座，改為生活化的實踐平台，例如在鄰里廚房中一起健康飲食，鼓勵同行及共學精神，共同改善市民的健康。
+
+社醫共生與基層醫療之間所包括的範圍很廣闊，由推動健康訊息，到及早篩查介入，以至社區如何處理病人出院後的復康服務。當中關連不同的資源再分配，讓不同的社區人士都能參與，共同協作下才能做到。醫護行者期待繼續與大家分享如何由出生至臨終體現基層醫療的理念，及社醫共生的不同面向及實踐經驗。

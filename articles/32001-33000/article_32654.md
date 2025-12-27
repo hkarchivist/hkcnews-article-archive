@@ -1,0 +1,46 @@
+---
+title: "港大高本恩：第三波或已見頂　追蹤接觸者要追落後"
+date: "2020-08-06"
+last_updated: "2020-08-06 15:58:55"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "COVID-19"
+  - "新冠肺炎密切接觸者信息"
+  - "Ben Cowling"
+url: "https://web.archive.org/web/20211026211526/https://hkcnews.com/article/32654/covid19-ben_cowling-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32662/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/32654/covid19-ben_cowling-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32662/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港大高本恩：第三波或已見頂　追蹤接觸者要追落後
+
+本港連續四日本地確診宗數低於100宗，港大公共衞生學院教授高本恩（Ben Cowling）分析說，量度傳染幅度的病毒即時繁殖率大約一星期前跌破1，第三波疫情可能已經見頂。
+
+不過，高本恩說，病毒即時繁殖率未隨社交距離措施進一步下跌，可能反映出檢測及追蹤可能仍有不足，認為如果加快檢測及追蹤，有機會更早放寬社交距離措施。
+
+<figure>
+<img src="https://web.archive.org/web/20211026211526im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/COVID-19-Ben%20Cowling-20200806140137_2035_large.png" alt="">
+<figcaption>港大公共衞生學院Covid19即時數據</figcaption>
+</figure>
+
+根據 [港大公共衞生學院數據](https://web.archive.org/web/20211026211526/https://bit.ly/3gxeZh7) ，本港的即時病毒有效繁殖率由6月29日的4.45（即一個確診武漢肺炎傳染4人），在7月內陸續下跌，在政府宣布新一輪社交措施後，在7月21日跌破1，至0.96水平。截止7月29日，即時病毒繁殖率仍在0.8水平徘徊。
+
+高本恩在 [Twitter](https://web.archive.org/web/20211026211526/https://bit.ly/2XzQiJh) 說，即時病毒繁殖率低於1水平，而每日新增個案回落，第三波疫情可望見頂。但他同時指出，本地病毒繁殖率數字只是稍低於1，遠高於3月後成功控制疫情時的水平。
+
+翻查港大資料，即時病毒繁殖率由3月底的0.8一直到4月跌至0.1，在5月中才反彈。
+
+高本恩說，本港目前採取三管齊下的防疫策略，包括做好個人衞生、病毒檢測加追蹤密切接觸者，及社交距離措施。他說戴口罩及做好手部衞生一直運作良好，但前兩者本身未能阻止疫情，正如3月時需要社交距離措施。
+
+不過，為什麼7月推出新一輪社交距離措施後，仍然病毒繁殖率仍維持在0.8及0.9水平？高本恩說，同意醫學院傳染顧問梁子超早前分析，相信是因為病毒追蹤及隔離未必100%運作，當中包括很多來源不明的個案。
+
+高本恩說，如果可以改善病毒追蹤能力、增加更多人數處理接觸者，病毒繁殖率可能更快下跌，也可能可以更快放寬社交距離措施。
+
+同時，如果今年疫情再次重臨，高本恩建議，到時可能要較快地重新啟動社交距離措施，以避免病毒追蹤應接不暇。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026211526/https://hkcnews.com/aboutus/#subscribe)

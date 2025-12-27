@@ -1,0 +1,45 @@
+---
+title: "限制台灣《蘋果》跨境傳輸採訪個資　台灣民團、立委：《壹週刊》也應一併禁止"
+date: "2021-12-27"
+last_updated: "2021-12-27 18:35:30"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "個人資料"
+  - "港版國安法"
+  - "台灣蘋果清盤"
+url: "https://web.archive.org/web/20220518044730/https://hkcnews.com/article/49661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49664/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49661/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49664/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 限制台灣《蘋果》跨境傳輸採訪個資　台灣民團、立委：《壹週刊》也應一併禁止
+
+台灣文化部本月20日函令限制台灣《蘋果日報》「不得跨境資料傳輸」後，民間社團「經濟民主連合」今（27日）要求文化部應將台灣《壹週刊》個資及採訪資料，也列入禁止範圍，並應會同資安人員檢查資料庫是否已受完善保護；民進黨立委除對此表達支持，並要求將此次事件作為起點，盤點相關法規，包括母公司在香港的新聞出版業，確保其能否完整保障台灣民眾個資。
+
+<figure>
+<img src="https://web.archive.org/web/20220518044730im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/港版國安法-個人資料-台灣蘋果清盤-20211227144543_90a0_large.jpg" alt="">
+<figcaption>經濟民主連合及民進黨三位立委今天共同召開記者會，呼籲文化部應比照台灣《蘋果日報》，禁止台灣《壹週刊》跨境傳輸資料。經濟民主連合提供</figcaption>
+</figure>
+
+香港高等法院委任清盤人發函要求台灣《蘋果日報》清點並移交資產，台灣包括經濟民主連合、台灣記者協會等多個團體，憂心20年採訪資料及個資恐成為港版國安法追訴依據，台灣文化部20日雖回應，已函令台灣《蘋果》禁止跨境傳輸資料，但因未提及已停刊的台灣《壹週刊》，經民連今再邀集立委召開記者會，提出比照台灣《蘋果》等呼籲。
+
+今出席記者會的民進黨籍立委張廖萬堅說，記者會前已先詢問台灣文化部，對台灣《蘋果》函令限制跨境傳輸及保護個資等要求，也將納入台灣《壹週刊》。
+
+對於外界擔心，台灣《蘋果》及《壹週刊》記者、編輯、受訪對象、吹哨人及投訴爆料等個資，若移交香港清盤人，恐釀生國安危機，台文化部上周回應稱，為積極維護台灣《蘋果》所保有個人資料的當事人權益，要求應主動主動或依當事人請求後，銷毀所保有的個人資料，衍生費用由文化部協助支應。不過，包括經民連及立委都認為，台灣文化部應提出更具體執行細節。
+
+經民連研究員江旻諺在記者會上表示，台灣《蘋果日報》與《壹週刊》擁有如此大型且敏感的資料庫，即便只留在台灣境內、未跨境傳輸，仍應有更明確的保護規範；他認為，文化部應依台灣《個人資料保護法》規定，指定台灣《蘋果》與《壹週刊》「訂定個人資料檔案安全維護計畫或業務終止後個人資料處理方法」，防範資料外洩中共政權或有心人手中，導致人權與國安危機。
+
+今出席的民進黨籍立委賴品妤也認為，若只交由當事人請求刪除個資，當事人可能擔心萬一提出請求後，被貼上「反中」標籤，進而影響到海外或中國工作的人身安全；她認為，文化部責無旁貸，應直接訂定相關計畫，確保所有相關受訪者及記者安全。
+
+在執行保護個資細節上，江旻諺認為文化部應更積極主動，依《個資法》規定，「得率同資訊、電信或法律等專業人員共同執行檢查業務」；他呼籲，文化部應會同資安專業人員，確保台灣《蘋果》與《壹週刊》採訪資料庫的保護措施，以防台灣採訪資料不慎流入中共政權或有心人手中。
+
+<figure>
+<img src="https://web.archive.org/web/20220518044730im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/壹傳媒-個人資料-台灣蘋果清盤-20211227144614_148f_large.jpg" alt="">
+<figcaption>民進黨立委范雲表示，文化部也應盤點，母公司在香港的新聞及出版業是否有完善保護個資。經濟民主連合提供</figcaption>
+</figure>
+
+曾到台灣《蘋果》大樓外聲援的民進黨立委范雲今也表示，希望今天文化部再接再厲，做更多事，除《壹週刊》比照台灣《蘋果》禁止跨境傳輸個資外，文化部也應積極盤點，台灣境內有多少媒體及出版業的母公司，是隸屬香港企業，同時也應評估，這些公司是否可完整保障台灣民眾個資。
+
+范雲認為，中共批著香港外衣，進攻自由世界的下一個目標就是台灣，文化部與陸委會應積極合作，就《港澳條例》等法規進行研議，在數位發展部及個人資料保護專責機構成立前，文化部也應就轄下紙本新聞及出版媒體，提出更積極作為。
+
+同為民進黨籍的立委張廖萬堅表示，文化部已向他回覆稱，要求台灣《蘋果》保護個資的執行細節已在擬定中；他認為，針對台灣與香港關係變化，應檢視包括《港澳條例》等母法。在涉及新聞及言論自由部分，文化部有應將「壹傳媒事件」當作起點，好好研究，若將來有其他案例，包括台灣本土媒體等，若個資保護可能涉及人身安全，應特別予以規範與注意。

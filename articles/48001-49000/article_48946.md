@@ -1,0 +1,55 @@
+---
+title: "十二月十九日搭車唔使錢，原來姐姐最得益！"
+date: "2021-12-11"
+last_updated: "2021-12-11 12:46:11"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "選戰"
+  - "選舉"
+  - "投票"
+  - "election"
+  - "外傭"
+  - "菲傭"
+  - "印傭"
+  - "2021立法會選舉"
+url: "https://web.archive.org/web/20220519050532/https://hkcnews.com/article/48946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48947/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48947/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 十二月十九日搭車唔使錢，原來姐姐最得益！
+
+【撰文：菲傭僱主】
+
+12月19日搭車唔使錢 ，原來最大得益的組群，竟然是幾十萬菲傭印傭姐姐，下午消息一出，立即姐姐社交組群，人人拍爛手掌，奔走相告。
+
+問僱主：「阿sir ，你哋石澳藍橋lovers bridge聽講開返啦，我一定去打卡」。
+
+
+{{< video src="https://web.archive.org/web/20220519050532if_/https://www.youtube.com/embed/Om8jcvstYoU" >}}
+
+
+有啲姐姐又話去遊電車河、映相，有啲又準備去赤柱飲啤酒，或者飲完咖啡坐地鐵入東涌草地野餐瞓覺，節目豐富。
+
+梗係啦，例如由天水圍搭巴士來回中環，差不多$50，等於姐姐每個月人工的百份之一，慳到D錢。
+
+「阿sir，你哋government 真係好呀！一有election，交通就免費，不如每一個禮拜日都有Election啦 ！」佢哋問到興高采烈，僱主就唔知好嬲定好笑。
+
+其實菲傭姐姐還有更加興高采烈的，就是她們自己菲律賓國內的總統選舉 。
+
+<figure>
+<img src="https://web.archive.org/web/20220519050532im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/總統選舉-外傭-菲律賓-20211211114007_2363_large.jpg" alt="">
+<figcaption>菲傭姐姐的社交群組。照片由筆者提供</figcaption>
+</figure>
+
+明年五月才舉行選舉，還有差不多半年，但現在姐姐已經人人、日日都在社交組群討論選戰。菲律賓選舉暫時的走勢是——以前的總統馬可斯的兒子，很有機會當選總統，現任總統的女兒薩拉，就有機會做副總統 ，總之菲傭姐姐講選舉不知幾投入幾興奮，日夜不停！嘿嘿，至於我地七日後香港嘅「完善」「真民主」選舉個氣氛係點樣？咁你自己睇啦，我就費事講嘢。
+
+我就有很多朋友話，既然有免費車，到時我地就搭車去飲食郊遊，咁你就要準備12月19號，可能你要同姐姐爭住搭車去石澳情人橋打卡喎？
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220519050532im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

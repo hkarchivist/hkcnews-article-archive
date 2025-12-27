@@ -1,0 +1,42 @@
+---
+title: "行政立法司法官網突加中國國徽　370幢政府大樓平日升國旗區旗"
+date: "2021-10-08"
+last_updated: "2021-10-08 13:56:02"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "司法機構"
+  - "國旗法"
+  - "國徽"
+url: "https://web.archive.org/web/20211204042837/https://www.hkcnews.com/article/46293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-370%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46293/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46299/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-370%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 行政立法司法官網突加中國國徽　370幢政府大樓平日升國旗區旗
+
+司法機構、立法會、特首辦、政府一站通等四個官方機構網頁在今日清晨時份起，突然在頁頂加上國徽，比例較區徽稍大。大部分政府網頁如財政司司長、政務司司長、其他政策局網頁則繼續維持只有區徽，律政司、終審法院網頁則維持分別顯示律政司及司法機構的標誌。
+
+政府 [刊憲公布](https://web.archive.org/web/20211204042837/https://bit.ly/3iK2O3o) ，特首林鄭月娥根據近期通過的《國旗及國徽條例》修訂，指定特區政府、立法會及司法機構，「須在機構網站首頁的顯著位置使用國徽圖案」。
+
+<figure>
+<img src="https://web.archive.org/web/20211204042837im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/司法機構-國徽-20211008114938_896f_large.png" alt="">
+<figcaption>司法機構、立法會及政府一站通等先後在清晨加入國徽。司法機構網頁截圖</figcaption>
+</figure>
+
+立法會回覆指根據《國旗及國徽條例》及《區旗及區徽條例》的規定，立法會須在網站首頁的顯著位置使用國徽圖案，政府已就有關規定刊憲。記者亦正向政府部門及司法機構查詢。
+
+根據禮賓處 [最新披露](https://web.archive.org/web/20211204042837/https://bit.ly/3AibB2t) ，除了政府總部、禮賓府、機場、金紫荊廣場每日升國旗區旗，370個大大小小部門總部、法院、三司及終審法院首席法官官邸等政府大樓會在工作天，及十一國慶、七一回歸、五一勞動節、元旦、年初一及12月4日國家憲法日六個指定日子中升國旗區旗。
+
+涉及指定日子升旗的部門中，包括漁護署下多個批發市場、懲教署23個監獄及更新中心、康文署多個運動場及游泳池等，唯獨佐敦土地審裁處大樓因實際環境所限，只懸掛區旗。
+
+根據新通過的《國旗及國徽條例》及《區旗及區徽條例》，破損、污損或不合規格的國旗及國徽，須交到政府指定地點，由政府定期統一處理。根據民政事務總署網頁，政府 [設立19個社區會堂](https://web.archive.org/web/20211204042837/https://bit.ly/3BnKFjt) 收集破損的國旗、國徽、區旗及區徽，無需提前預約。
+
+法例又規定，除非經副行政署長批准，任何人不得在非官方機構標示中使用國旗、國徽、區旗、區徽或其圖案。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204042837/https://www.hkcnews.com/aboutus/#subscribe)

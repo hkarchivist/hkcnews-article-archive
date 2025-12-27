@@ -1,0 +1,54 @@
+---
+title: "組織：香港成走私野生動物樞紐　海關緝獲估值較10年前增16倍"
+date: "2019-01-21"
+last_updated: "2019-01-22 01:58:06"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "海關"
+  - "走私"
+  - "野生動物"
+url: "https://web.archive.org/web/20211028184327/https://www.hkcnews.com/article/18018/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18032/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/18018/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18032/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 組織：香港成走私野生動物樞紐　海關緝獲估值較10年前增16倍
+
+關注野生動物貿易的組織發表報告，指香港是非法野生動植物貿易的主要樞紐之一，不少野生動植物經香港轉運到亞洲地區，當中大部分出口到中國。組織批評，目前的法庭案件判刑過低，沒有足夠阻嚇力阻止走私活動，籲政府需加強執法，又建議將罪行列入《有組織及嚴重罪行條例》監管。
+
+報告指出，在2013至2017年間，海關紀錄到2,011次緝獲走私野生動植物的行動，即每約21小時便檢獲一宗，主要透過海運及航運到港。檢獲的野生動植物產品達1,456公噸，包括象牙、穿山甲屍體及鱗片、木材等等，當中至少包括59種野生動植物物種，貨量相當於屠宰了51隻犀牛、至少3,000隻大象、65,000隻穿山甲、20,637隻活龜。報告引述海關數字，五年間的野生動植物（包括活體動物及製品）的緝獲量總價值為5.6億港元，而單看2017年截獲的瀕危物種，估值已逾150萬港元，金額較10年前大增1600%，可見野生動植物的數量及價值驚人。
+
+<figure>
+<img src="https://web.archive.org/web/20211028184327im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/野生動物-20190121220806_1700_large.jpg" alt="">
+<figcaption>犀角牛被認為具藥用功效。Neil Aldridge提供</figcaption>
+</figure>
+
+香港野生動物貿易工作小組發表「滅絕交易：香港野生動物貿易的黑暗面」（Trading in Extinction: The Dark Side of Hong Kong's Wildlife Trade ） [報告](https://web.archive.org/web/20211028184327/https://www.admcf.org/wildlife-trade-in-hong-kong/) ，調查由2013至2017年間香港緝獲野生動植物的種類和貿易數量。小組由非政府機構、學者、法律界人士及專家組成，成員包括ADM Capital Foundation、Animals Asia、Bloom Association (HK)、 Civic Exchange、香港鯊魚基金會、香港大學、嘉道理農場暨植物園、愛護動物協會、騰海保護組織、聖安德魯斯大學、WildAid及香港世界自然基金會。
+
+小組分析五年來的緝獲數據，發現走私到港的野生動植物至少來自45個國家，當中至少三分之二來自東非，又指世界上至少三分二的國家與香港進行野生動植物交易。
+
+<figure>
+<img src="https://web.archive.org/web/20211028184327im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/野生動物-20190121220813_c219_large.jpg" alt="">
+<figcaption>近年海關不時檢獲走私穿山甲鱗片。Adrian Steirn提供</figcaption>
+</figure>
+
+目前針對非法野生動植物貿易的條例主要為《進出口條例》及《 保護瀕危動植物物種條例 》，前者最高刑罰為罰款200萬港元及監禁7年，後者最高刑罰原為罰款500萬及監禁2年，去年修例後，最高刑罰提升至為罰款1000萬及監禁10年。
+
+ADM Capital Foundation環境項目經理伍美鳳指，研究小組分析的案件中，罰款金額由1,500元到18萬元，服刑時間由160個小時社會服務令至8個月監禁，與最高刑罪相距甚遠，認為法庭判刑太低。她舉例，如在2014年，16個越南籍旅客乘搭航班抵港，被發現行李箱內藏有790公斤象牙，即每人攜帶了50公斤象牙，最後只被判6個月監禁。小組分析數據庫中99宗能查閱罰款以及緝獲價值的案件，比較之下，發現案件中的罰款總額還不到產品估計總值的18%，「鑑於犯案貨物的價值、野生動植物的罪案對生態、經濟、社會的長遠影響、活體動物所受到的遭遇，及檢獲後的昂貴護理費，香港法庭判刑是缺乏阻嚇力。」
+
+非法進口的活體野生動植物被檢獲後，會交由嘉道理農場處理。嘉道理農場暨植物園動物保育部主管艾加里 （Gary Ades）表示，處理這些野生動植物並非易事，近年接收的物種更愈見罕有，處理所需的資源較多，處理這些瀕危物種所用資金，甚至比罰款的數目更高。
+
+<figure>
+<img src="https://web.archive.org/web/20211028184327im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/野生動物-20190121220746_6d5f_large.jpg" alt="">
+<figcaption>由非政府機構、學者、法律界人士及專家組成的香港野生動物貿易工作小組，發表香港非法野生動物交易的研究報告。鄭靖而攝</figcaption>
+</figure>
+
+小組認為，走私活動所涉及的數量、價值、隱藏方式、偽造文件、從廣泛地區獵取罕見物種的行為等，都反映出罪行的嚴重及有組織性，建議列入《有組織及嚴重罪行條例》監管，以賦予執法機關更大的調查能力。小組亦提出，海關應成立野生動植物犯罪小組，政府亦應建立野生動植物貿易數據庫。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028184327/https://www.hkcnews.com/aboutus/#subscribe)

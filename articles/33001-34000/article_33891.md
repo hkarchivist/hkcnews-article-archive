@@ -1,0 +1,86 @@
+---
+title: "監警會報告52項建議　警4個月僅跟進3項　主席梁定邦：希望一年內做到大部分"
+date: "2020-09-15"
+last_updated: "2020-09-16 00:57:13"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "林定國"
+  - "梁定邦"
+  - "監警會報告"
+url: "https://web.archive.org/web/20210922091154/https://hkcnews.com/article/33891/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33897/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD52%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33891/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33897/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD52%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 監警會報告52項建議　警4個月僅跟進3項　主席梁定邦：希望一年內做到大部分
+
+監警會今年5月15日發表的專題審視報告當中 [52項建議](https://web.archive.org/web/20210922091154/https://www.ipcc.gov.hk/doc/tc/report/thematic_report/annexes/Annex%20-%20IPCC%E2%80%99S%20RECOMMENDATIONS.pdf) ，事隔四個月，監警會周二（15日）與投訴警察課舉行例會，警方匯報最新進度時表示，當中3項建議的跟進工作已完成，分別是有效運用水馬、臨時羈留處選址，檢討主動與其他部門或機構召開新聞發布會的制度。監警會主席梁定邦表示，「佢哋都希望一年之內做到大部分。」
+
+另外，監警會委員兼資深大律師、香港大律師公會前主席林定國關注近期有警員被法庭指作出不誠實證供等行為，警方回應稱，各警區均會審視案件脫罪的原因，如警員涉法庭上表現問題，警方會進行紀律覆檢，尋求律政司意見後，如涉違紀違規行為，會作出紀律聆訊。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091154im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/梁定邦-監警會報告-20200915222807_1ef7_large.jpg" alt="">
+<figcaption>左起：監警會秘書長俞官興、主席梁定邦、副主席謝偉銓、宣傳及意見調查委員會主席陳錦榮。周滿鏗攝</figcaption>
+</figure>
+
+### 已跟進建議：60政府機關設水馬
+
+警務處署理助理處長麥衛文在監警會例會上匯報專題審視報告當中52項建議的最新進度，她表示由保安局長李家超負責督導的專責小組，認為相關建議分為5大類，並由專責小組下設5個工作小組跟進，分別是(1)加強公眾信息發放和檢討與傳媒關係；(2)檢討武力使用指引；(3)改善臨時羈留處的安排；(4)優化警方行動部署和策略；以及(5)加強警隊內部管理、協調和培訓。
+
+麥衛文表示，專責小組8月底向行政長官提交了進度報告，她之後在會上匯報已完成的3項建議， **其中一項建議（第52項）是臨時羈留處選址** ，報告提到「若果將來有需要使用臨時羈留處，應考慮選擇不太偏僻的地點，挑選位置時亦應考慮合理距離之內是否有醫院及救護站。」
+
+麥衛文表示，警方已完成檢示各個臨時羈留處選址，確定5個陸路總區各指定2間警署作為臨時羈留處的選址，她舉例指紅磡警署及秀茂坪警署，因交通便利而附近有公立醫院，已定為西九龍及東九龍總區的指定臨時羈留處，並在9月6日公眾活動中用作處理被捕人士。另外，警方同意新屋嶺拘留中心的目前條件，不適合用於大型活動中處理被捕人，今年6月底已落實停止用作臨時羈留處。
+
+**另一項建議（第20項）是「更有效運用水馬」** ，麥衛文說，過去一年已添置2200個水馬，並在政府總部和警察總部等超過60個地方使用，有效減低相關處所被衝擊的情況。
+
+**第三項建議（第48項）涉及「檢討主動與其他部門或機構召開記者會的制度」** ，麥衛文表示警察公共關係科已與新聞處研究改善相關啟動機制，落實跨部門協調措施，更快捷及有效地澄清假新聞與謠言。警方解釋啟動機制會考慮五大因素，包括需要部門高層現身、單一事件牽涉其他政府部門、傳媒會較多提問、多番澄清後無法釋疑，以及有必要釋除公眾恐慌。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091154im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/警察暴力-拉跌孕婦-12歲少女-20200908123319_24f1_large.png" alt="">
+<figcaption>監警會現時只收到有關孕婦被警拉跌的一宗「須知會投訴」，即由目擊者作出的投訴；12歲女童被警壓制則未有收到任何投訴。</figcaption>
+</figure>
+
+### 孕婦被警拉跌　監警會收1宗投訴
+
+監警會委員陳錦榮舉例指，近日的孕婦被警拉跌以及警員撲倒12歲女童兩件事上引起公眾很大的關注，問到有關事件會否成為警方啟動跨部門記者會機制的因素，麥衛文表示，警方同日已經在Facebook作出澄清，「基本上兩件事都係源於一個公眾活動的執法行動，就由我哋警察公共關係科澄清。」惟麥衛文在回應時誤稱，「兩件事件都係9月6日發生」，但事實上，孕婦是在8月31日晚上被警員拉跌。
+
+監警會現時收到有關孕婦被警拉跌的一宗「須知會投訴」，即由目擊者作出的投訴；12歲女童事件則未有收到任何投訴。
+
+會後梁定邦見記者，被問到警方三個月只完成三項建議，是否需要約4年才完成52項建議，梁定邦回應稱，監警會與保安局警方有「默契」和跟進機制，他說，專責小組下設5個工作小組，每個小組均有工作程序表，之後會向監警會匯報進度，「佢哋都希望一年之內做到大部分。」梁定邦又補充，有部分建議需時研究，也要參考外國大型社會運動經驗。
+
+### 警員庭上不誠實證供　或會紀律覆檢
+
+委員林定國提出，最近有些涉及反修例的案件完成審理，當中法庭判詞指有警員作出不誠實證供、沒恰當依據內部指引處理證物或涉及使用不正當武力，相關事件受到公眾和傳媒關注，林定國在會上問警方會否就此有跟進行動。麥衛文回應稱，每個案件被法庭判無罪後，各警區都會審視脫罪的原因，如個別警務人員在法庭上表現有問題，警方會進行紀律覆檢，之後將有關資料向律政司呈交，尋求法律意見，如涉違紀違規行為，會作出紀律聆訊。麥衛文又說，投訴警察課會留意情況，如有需要會跟進，法庭亦會轉介個案讓投訴警察課跟進。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091154im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/仇栩欣-811北角-20200812144049_20b4_large.jpg" alt="">
+<figcaption>上月12日，東區區議員仇栩欣涉嫌襲警案，裁判官曾指案中警員許景耀及高級督察林景年作供前後矛盾，砌詞狡辯，裁定兩人是不誠實證人。資料圖片</figcaption>
+</figure>
+
+### 警拉林卓廷改寫7.21　梁定邦避談：交法庭處理
+
+上月26日，新界北總區刑事總部高級警司陳天柱就拘捕立法會議員林卓廷涉7.21暴動召開記者會，陳在會上曾多次演繹7.21事件，包括形容「雙方勢均力敵、旗鼓相當」，又指警方是接報18分鐘後到場，而非39分鐘等。說法與監警會專題審視報告有不同之處。梁定邦多番被追問有關說法，均未有正面回應，僅稱林卓廷已被拘捕，事件會交由法庭處理，「要相信法律制度」、「我有乜意見係無乜意思架」。（對於「勢均力敵、旗鼓相當」的回應？）「我對於呢個說法，就希望法院將兩邊說法講講，我信與唔信，真係無意思。」
+
+記者再追問，如最終須交由法庭解決，專題審視報告的意義會否「打折扣」，梁定邦表示不同意，報告的意義向警方和特首提出改善建議，以及監警會如何處理投訴個案，他認為報告的目的已達到。監警會秘書長俞官興補充說，專題審視報告是從宏觀來看事件，將7.21當日的時序陳述出來。他又指，陳天柱見記者後，警務處處長鄧炳強已就接報時間和「勢均力敵」的說法作出澄清，他形容，「事實已經擺咗係到，你點樣去睇，每個人都有不同。」
+
+
+{{< video src="https://web.archive.org/web/20210922091154if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F1362680690601746%2F&show_text=0&width=560" >}}
+
+
+### 監警會通過98宗反修例事件投訴　僅3宗證明屬實
+
+另外，截至今年9月4日，監警會就反修例事件相關的投訴一共1,895宗，涉及9,070名投訴人。當中609宗屬須匯報投訴，涉及661名投訴人，主要指控為「行為不當」有293宗，其次是「疏忽職守」有248宗，「不禮貌」有122宗，「毆打」及「濫用職權」同樣是120宗，另有「粗言穢語」、「恐嚇」等。
+
+監警會表示，警方已就308宗投訴提交報告，事件涵蓋去年6月至今年5月，其餘則仍在調查當中或暫緩等。監警會現已通過當中98宗投訴，當中有6宗投訴有確實結果，包括2宗獲「證明屬實」，指有警員在去年9月及10月說粗言穢語、1宗「未經舉報但證明實屬」，指警員疏忽職守，未有跟隨警例，獲得被捕人的同意下為其戴頭套，雖然投訴人未有再跟進投訴，但監警會翻查紀錄，確認投訴屬實。另外3宗屬「並無過錯」。其餘個案則是59宗「投訴撤回」、26宗「無法追查」、7宗「以簡便方式處理」。
+
+
+{{< video src="https://web.archive.org/web/20210922091154if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F629769864393128%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210922091154/https://hkcnews.com/aboutus/#subscribe)

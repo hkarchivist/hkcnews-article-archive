@@ -1,0 +1,61 @@
+---
+title: "醜惡警察　無良政府"
+date: "2019-08-13"
+last_updated: "2019-08-13 03:40:19"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "811多區示威"
+  - "警察扮示威者"
+url: "https://web.archive.org/web/20211203233617/https://www.hkcnews.com/article/22807/811%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/22807/811%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 醜惡警察　無良政府
+
+
+{{< video src="https://web.archive.org/web/20211203233617if_/https://www.youtube.com/embed/2FPcuSocetw" >}}
+
+
+上周，特首林鄭月娥和一眾高官見記者，不再回應市民5大訴求，反而扣搞「革命」帽子，為中央官員隨後宣佈動員「止暴停亂」作準備。林鄭政府和港人很清楚，市民不滿和憤怒未化解，抗議衝突停不了；市民怒火仍在燒，警方拒絕3宗分別在周六、日在東區、深水埗和大埔遊行申請，很清楚會火上加油；昨日在多區爆發的激烈和嚴重衝突，警方不可能沒有估計到，是可以預見的，甚至是希望出現的「失控」局面。
+
+周末前，政府沒有盡各種辦法避免衝突，昨日不少個案和跡象清楚顯示，警方有更精密的策略部署，包括派臥底混入示威者中，目的是要拘捕更多人、打得更狠，令市民更恐懼，不敢上街抗議。
+
+香港進入以恐懼統治年代，警隊成為政權打壓市民合理政治訴求和行使依法享有權利的政治工具。一支一度被形容為亞洲最優秀的守法和專業的警隊，變得醜惡，甘心變成無良政府手上的棍、發射的催淚彈和催淚煙，最終將與一國兩制陪葬。
+
+<figure>
+<img src="https://web.archive.org/web/20211203233617im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/811銅鑼灣-警察扮示威者-811多區示威-20190812052234_1b95_large.jpg" alt="">
+<figcaption>這幾位作示威者打扮的人士，其實是滲入示威者圈子的警員。</figcaption>
+</figure>
+
+警方昨日驅散和拘捕行動中，不少做法極具爭議，並涉嫌違反警隊通例；最具爭議及影響的，是示威者和記者踢爆，有至少3至4名警員喬裝成示威者，其中一名被記者追訪，他一直拒絕出示委任証，叫記者以「專業知識」判斷，他亦曾一度阻止記者拍攝。
+
+網上昨晚開始流傳，警員滲入示威者群在7月1日已開始。警務處副處長鄧炳強在下午記者會承認，有警員於反修例示威期間，喬裝成不同身分，強調警員的臥底行為，絕對不會不符合相關指引，不會挑起事端，亦不會進行非法行為。他拒絕証實昨晚向記者挑機的「黑衣人」是否警員。
+
+鄧炳強強調臥底警員不會挑起事端，亦不會進行非法行為，市民相信嗎？他們混進激進示威者中，可以完全不參與衝擊警署、掟磚、堵路等行為嗎？他們是臥底警員，目的是要拉人， 有理由相信他們會比其他示威者行為更激烈，要挑動激化示威者的情緒，做出更激進的行為，警方可以更振振有辭用更大的武力鎮壓。
+
+昨晚（11日）「黑衣Sir」在鏡頭前醜態畢露，有証有據，警方語焉不詳，公眾會質疑，整個反送中示威抗議不斷升溫，公眾看到的是林鄭拒絕切實回應訴求，間接令抗爭升級，公眾看不見但臥底警員事件帶出的問題，是不能排除有警員是「幕後推手」，在黑衣示威群眾中推波助瀾，甚至帶頭衝擊。警方當然會強烈否認，但市民相信嗎？
+
+經過2個多月示威抗議，特別是7.21元朗白衣人打人事件，不少市民對警方的信任接近零，他們並非完全認同激進示威者掟磚、「快閃」堵路等行為，但對警員濫捕、濫發催淚彈、布袋彈等做法更憤怒。
+
+
+{{< video src="https://web.archive.org/web/20211203233617if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F428784041179745%2F&show_text=0&width=560" >}}
+
+
+鄧炳強公開承認警員在示威期間喬裝成不同身分，加上警員在部份拘捕過程中踐踏女性尊嚴，有警員工會形容示威者是「甴曱」，極度侮辱，公眾對警方的信任接近零，尊重也將不保，假如警方不在乎，不少市民對警員只剩下鄙視。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203233617/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211203233617im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

@@ -1,0 +1,47 @@
+---
+title: "七一前民陣支聯會200人集會"
+date: "2017-07-01"
+last_updated: "2017-07-01 01:44:59"
+author: "實習記者楊子朗"
+category: "眾聞"
+tags:
+  - "民 陣"
+  - "民間人權陣線"
+  - "支聯會"
+  - "習近平訪港"
+url: "https://web.archive.org/web/20210727221122/https://www.hkcnews.com/article/5004/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD200%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/5004/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD200%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 七一前民陣支聯會200人集會
+
+<figure>
+<img src="https://web.archive.org/web/20210727221122im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/支聯會-民陣-20170701010405_13db_large.jpg" alt="">
+<figcaption>支聯會及民陣成員要求釋放內地維權人士。何君健攝</figcaption>
+</figure>
+
+國家主席習近平周五晚在會展出席慶回歸文藝晚會期間，民陣和支聯會近200人，欲到會展附近示威，要求「尋找習近平」、「釋放劉曉波」、「法辦梁振英」、「釋放被捕異見人士」、「爭取真普選」，最終在文藝晚會結束後，他們才獲准由灣仔電訊大廈遊行至中環廣場抗議。
+
+支聯會及天安門母親約30人，周五約下午5時半先由修頓球場外出發，按「6」和「4」字形狀行走，約晚上7時抵達電訊大廈外，參與民陣集會，共有近百人出席。集會完結後，民陣要求遊行至中環廣場示威，遭到警方阻止，雙方一度對峙。直至晚上8時多，集會人數增至約200人，他們高呼要求警方「開路」，亦有人責罵前線警員。集會人士和警方一度發生推撞，警方曾舉起紅旗並警告會使用武力，雙方後來迅速分開。
+
+警方在晚上9時半開路，讓集會人士由電訊大廈遊行至中環廣場，但警告是次遊行沒事前申請不反對通知書。遊行沿途有愛國團體舉辦慶回歸晚會，團體以揚聲器指罵支聯會及民陣一方為「漢奸走狗賣國賊」，並要求「速立廿三條」、「趕走美國狗奴才」等。遊行隊伍抵達中環廣場後，多個組織成員先後發言，社民連梁國雄呼籲市民七一上街，又批評是次習近平訪港「妨擾公眾」。香港眾志羅冠聰不滿有民主派人士近日被跟蹤，批評警方「聯同黑勢力配合維穩剝削人權」。
+
+民陣召集人區諾軒指，他身為集會發起人亦遭警方阻撓到集會地點電訊大廈外，批評警方做法荒謬。他又指為集會已申請不反對通知書，警方亦曾表示已批出，惟最後「完咗都未有收到」，指責警方打壓集會。區諾軒不滿示威區「連會展都睇唔到」，加上民族黨「連尖沙咀都唔俾搞（集會）」，但愛國團體則可以在中環廣場外舉行晚會、借用維園辦科技展，質疑政府部門之間協助維穩，是集會自由和一國兩制的倒退。
+
+<figure>
+<img src="https://web.archive.org/web/20210727221122im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/民陣-20170701013232_f4a9_large.jpg" alt="">
+<figcaption>遊行人士要求警方開路。何君健攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210727221122im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/民陣-20170701013147_266a_large.jpg" alt="">
+<figcaption>集會者一度與警方推撞。何君健攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727221122/https://www.hkcnews.com/aboutus/#subscribe)

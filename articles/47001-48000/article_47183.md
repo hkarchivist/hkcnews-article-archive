@@ -1,0 +1,47 @@
+---
+title: "資深大律師：為被捕者眾籌打官司非洗黑錢"
+date: "2021-11-02"
+last_updated: "2021-11-03 09:28:29"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "律政司"
+  - "DOJ"
+  - "department of justice"
+  - "眾籌"
+  - "周天行"
+  - "謝華淵"
+url: "https://web.archive.org/web/20220125233028/https://www.hkcnews.com/article/47183/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47199/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47183/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47199/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 資深大律師：為被捕者眾籌打官司非洗黑錢
+
+律政司刑事檢控科舉辦研討會討論規管眾籌，講者之一、資深大律師謝華淵表示，不應將那些為非法活動眾籌，及為干犯違法活動的人眾籌兩者混淆。他舉例說，如果為被捕的人籌款聘請辯護律師或支持他們的生計，本身不是洗黑錢罪，並強調不應任意將合法行為視作洗黑錢。
+
+英國御用大律師Jonathan Caplan則表示，英國規管眾籌平台，但主要針對P2P借貸或股權眾籌。他補充，普通法地區一般不規管捐款式或回報眾籌（reward crowd funding），英國及澳洲在規管過程中只是運用現有法例，也沒有訂立任何一條新法例。
+
+署理副刑事檢控專員周天行則批評，眾籌平台有六大風險及潛在問題，聲稱需要訂立針對性的新眾籌法例，包括眾籌平台發牌，規定籌款者須持續披露關鍵制度、設立匯報制度，及設立上限。刑事檢控專員楊美琪說，觀乎會上講者提及眾籌的問題及風險，似乎有需要規管眾籌，會將建議交給相關政策局。
+
+眾新聞會後向周天行問及謝華淵的說法，是否代表為被捕者眾籌則無問題？周聲稱「不能一概而論」。至於英國御狀Caplan說採取低度管理，周天行說只是提出規管方向，未有明言採取什麼方式規管。
+
+
+{{< video src="https://web.archive.org/web/20220125233028if_/https://www.youtube.com/embed/-n0--YaTwX8" >}}
+
+
+警方及律政司過去兩年先後以不同形式整頓支持反修例運動示威者的眾籌活動，最近以國安法要求612基金提交資料，至今暫未採取進一步行動。
+
+資深大律師謝華淵在律政司刑事檢控科的研討會上，大篇幅分析各種眾籌風險，包括洗黑錢支持暴動、縱火等行為，如果知道眾籌款項用作相關非法行為，可被控串謀意圖或夥同犯法。他又舉例說，如果籌款項目違反商品說明條例，眾籌平台有機會面對法律風險，而技術上《簡易治罪條例》禁止公開籌款，網上是否算是「公開」有灰色地帶。他認為，香港要思考是否立法規管眾籌，但認為立法時機未成熟。
+
+話鋒一轉，謝華淵在演辭最後表示，不能混淆為犯法行為眾籌，及為了犯法被捕者眾籌兩者。謝華淵強調：「因為任何被捕的人都有權接受公平審訊，為了支持（某人）打官司捐款不是助訟，因為他們（捐款者）在贏了（官司後）沒有回報。這也不是為了非法目的，這不是犯法行為。」
+
+謝華淵坦言，對洗黑錢罪不問緣由套用在所有眾籌平台上感到厭惡（loathe），認為要分清楚為非法目的眾籌，抑或為其他社會目的而眾籌。
+
+<figure>
+<img src="https://web.archive.org/web/20220125233028im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/律政司-周天行-楊美琪-20211102184634_1615_large.jpg" alt="">
+<figcaption>周天行(左一)會後無正面回應謝華淵說法。林勵攝</figcaption>
+</figure>
+
+Jonathan Caplan則說，英國對眾籌採取低度規管，關鍵是採取「合乎比例的規管」，國會並無直接立法，而是交給金融行為機構根據現有法例，發牌規管眾籌平台。他說，根據他的理解，普通法地區普遍不規管捐款或回報方式眾籌，而是針對股權眾籌或P2P借貸。
+
+周天行則批評眾籌平台資訊不透明、匿名、可成犯法行為溫床、籌款者「走佬」、資訊保安，及跨地域規管問題。他指出，眾籌可成為欺詐、洗黑錢及資助恐怖活動的溫床，並引述已相隔六年、在2015年發表的財務行動特別組織（FATF）報告稱，眾籌容易成為不法目標、恐怖活動或極端行為的平台。他又表示，眾籌平台本身也沒有篩選籌款者或調查資助恐怖份子的活動。

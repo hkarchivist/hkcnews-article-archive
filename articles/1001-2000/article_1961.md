@@ -1,0 +1,50 @@
+---
+title: "《香港01》引述湯家驊講曾俊華嘅文章，算係「新聞報道」？"
+date: "2017-02-21"
+last_updated: "2017-02-21 16:39:27"
+author: "不才"
+category: "眾說"
+tags:
+  - "曾俊華"
+  - "John Tsang"
+  - "財政司司長"
+  - "財政司"
+  - "王光亞"
+  - "王光亚"
+  - "港澳辦主任"
+  - "香港01"
+  - "hk01"
+  - "湯家驊"
+url: "https://web.archive.org/web/20221006003153/https://www.hkcnews.com/article/1961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD01%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/1961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD01%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《香港01》引述湯家驊講曾俊華嘅文章，算係「新聞報道」？
+
+<figure>
+<img src="https://web.archive.org/web/20221006003153im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/湯家驊-曾俊華-hk01-20170221151506_190f_large.png" alt="">
+</figure>
+
+[《香港01》](https://web.archive.org/web/20221006003153/https://www.hk01.com/%E7%89%B9%E9%A6%96%E9%81%B8%E8%88%892017/73174/-%E7%89%B9%E9%A6%96%E9%81%B8%E6%88%B0-%E5%8C%97%E4%BA%AC%E5%87%BA%E6%8B%9B-%E7%8E%8B%E5%85%89%E4%BA%9E%E6%94%BE%E8%A9%B1-%E4%B8%8D%E6%94%AF%E6%8C%81%E6%9B%BE%E4%BF%8A%E8%8F%AF%E5%8E%9F%E5%9B%A0%E4%B8%8D%E5%8F%AA%E4%B8%80%E5%80%8B) 今日報道話，「有消息」指王光亞上星期喺深圳見湯家驊，指中央「明言最不支持的就是曾俊華」，其中一個原因係「中央曾接獲有關曾俊華的負面傳聞」。篇嘢訪問咗湯家驊，話佢承認同王光亞會面，至於有無講過關於鬍鬚曾嘅嘢，湯家驊就用雙方承諾互不引述為由，無答到。
+
+嘩，呢篇咁嘅「新聞報道」，隨口噏當秘笈，不才睇完，真係火都嚟。呢個唔在於不才撐定唔撐鬍鬚曾，而係覺得乜咁樣水平嘅嘢都可以當新聞出街！今次唔只係吹北京唔支持某人咁簡單，而係《香港01》無證無據就幫手去吹風話某人有負面傳聞，呢個，不才覺得真係非常之無恥兼無專業水平。
+
+第一，有個呀水係度放風，咁你就要報架嗱？你問完湯家驊證實唔到王光亞有無咁講過，你就重係怕唔寫好蝕底死都要寫，重要係嗰個呀水噏啲乜你就照寫啲乜，你係咪路架？重要將個標題起做：「北京出招！王光亞放話：不支持曾俊華原因不只一個」。將個傳聞當正事實咁寫，《香港01》簡真發瘟！
+
+第二，呢篇嘢寫湯家驊話佢冇聽過「中央手上有不利曾俊華的材料」，呢個即係咩意思？佢係話無聽過中央曾經接獲鬍鬚曾嘅負面傳聞？定係暗示話中央曾經接獲呢嘅負面傳聞不過就無材料喺手？唔該湯家驊講清楚好喎！如果係前者，咁即係佢已經證實咗個消息人士啲料唔準，咁做乜你連呢樣已經證實係流嘅料都重要寫埋出嚟？如果係後者嘅話，咁即係封曬後門啦，可能根本就乜料都無，齋噏。
+
+第三，篇嘢寫湯家驊話「根據自己的分析，中央的確『不太熱中畀曾俊華選』，『但原因就要問返佢哋』」。喂大佬，佢噏乜你就寫乜，湯家驊嘅分析有乜咁巴閉呀？係佢嘅分析讀者就要信架嗱？要寫佢呢個諗法，唔該寫清楚佢係憑乜嘢去得出呢個結論，咁讀者先可以去判斷湯家驊啲分析係堅嘢定流嘢。不過最好笑，係湯家驊話「原因就要問返佢哋」，咁即係點呀？無原因但係有分析？真係吹水唔抹嘴。定係呀湯家驊先生喺度扮曬唔講唔講但又喺度一路放啲風俾你聽，等你同啲讀者聽吓聽吓都入咗腦覺得中央唔撐鬍鬚曾呀？
+
+第四，篇嘢又寫湯家驊分析「王光亞指『最不支持曾俊華』，是在林鄭、葉劉淑儀和曾俊華之間，曾的支持度最低」。真係唔知佢噏啲乜。佢又話「互不引述」唔講見面內容，咁，都無確實王光亞講過乜嘢又點樣去分析「王光亞指『最不支持曾俊華』」呀？精神錯亂呀？佢個分析亦都非常之咁夾硬嚟，胡官呢？點解會踢走咗胡官？湯家驊嘅所謂「分析」，只係為咗唔駛去解釋點解北京支持鬍鬚曾重少過支持胡官，所以索性唔計胡官，令到「最不支持曾俊華」嘅講法成立。呢啲咁精神錯亂咁夾硬嚟嘅分析，喺呢篇所謂「新聞」都照寫曬出嚟，真係該燴。
+
+最後一樣好鬼離奇。不才原先睇呢篇嘢，見到撰文嘅係一個正常嘅人名，點知隔咗一段時間之後，不才發現撰文嘅人名就變咗「沙半山」。咁其實《香港01》呢篇嘢究竟係新聞報道定係小說嚟架？乜都咁虛構嘅？！
+
+唔該各位記者同編輯，清醒少少、專業少少好唔好？再係咁俾你哋嘅上頭同埋班建制派嘅放風人咁樣玩落去，你哋僅餘嘅公信力就嚟無曬架喇。
+
+---
+
+![博客 | 不才](https://web.archive.org/web/20221006003153im_/https://www.hkcnews.com/uploads/avatars/af842997-ab5c-4861-86b1-480de98305eb.png?1344685171)
+
+**博客 | 不才**
+
+【不才・就是不才】學海無涯，回頭是岸。結果…

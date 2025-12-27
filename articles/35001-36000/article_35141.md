@@ -1,0 +1,50 @@
+---
+title: "【６人食局邏輯題】食肆每枱6人限聚令維持4人　陳肇始：不認同邏輯不一致　許樹昌：人數應看齊免混淆"
+date: "2020-10-28"
+last_updated: "2020-10-28 14:43:23"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "陳肇始"
+  - "限聚令"
+  - "限桌令"
+url: "https://web.archive.org/web/20210728034400/https://www.hkcnews.com/article/35141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35144/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35144/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【６人食局邏輯題】食肆每枱6人限聚令維持4人　陳肇始：不認同邏輯不一致　許樹昌：人數應看齊免混淆
+
+政府周五起放寬部分防疫措施，其中食肆最多6人一枱，但限聚令則維持4人，被質疑邏輯不一致。食物及衞生局局長陳肇始指，不認為邏輯不一致，被問到6人用膳後如何處理，她指若6人在食肆用膳完後離開，在街聚集時間很短暫，之後便分散各自離開，都是可以接受，但若然6人在街上聚集，便有機會違反限聚令。政府專家顧問、中大呼吸系統科講座教授許樹昌認為，室內外聚集人數限制應看齊，以免市民混淆。
+
+<figure>
+<img src="https://web.archive.org/web/20210728034400im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/武漢肺炎-限桌令-20200710193932_1854_large.jpg" alt="">
+<figcaption>周五起，食肆最多可6人一枱，但限聚令則維持4人，被質疑人數限制邏輯不一致。資料圖片</figcaption>
+</figure>
+
+### 陳肇始：不同意邏輯不一致
+
+陳肇始今早在電台節目指，防疫措施需要張弛有道，如果大幅放寬措施會增加風險，因此要有序地放寬。對於食肆及限聚令人數限制不一，陳肇始稱室內及戶外有不同風險，不認同是邏輯不一致。
+
+至於6人用膳後是否要分批離開，她指如短時間有人群或排隊，都不算違反限聚令，「從執法角度都會講道理。」她補充，若6人在食肆用膳完後離開，在街聚集時間很短暫，之後便分散各自離開，都是可以接受，但若然6人在街上聚集，便有機會違反限聚令。
+
+被問到4人限聚令的政策目的是否為了限制街頭活動，陳肇始說，這也是一種群組聚集，對於任何傳染病，群組聚集都有風險，因此從整體考慮而言都要減低。
+
+### 許樹昌：應將人數限制看齊，以免市民混淆
+
+政府專家顧問、中大呼吸系統科講座教授許樹昌在電台節目指，因應疫情緩和，放寬人數上限合理，又指食客進入食肆前雖然會量度體溫，但相對於室外， **室內的空氣流通度低，風險較高，認為當局應將室內外聚集人數限制看齊，以免市民混淆** 。
+
+被問到當局推出措施前，有否諮詢政府專家意見，許樹昌表示，專家只會給予當局原則上的建議，落實細節由官員決定，放寬人數4人或6人的決定與專家無關。
+
+### 何栢良：相信除政府外，其他人無法解釋
+
+港大感染及傳染病中心總監何栢良亦認為， **室內傳播風險比戶外高，除口罩的風險亦比戴口罩高，相信有關決定並非單純考慮科學因素，又指相信除政府外，其他人亦無法解釋，至於解釋是否有說服力，就見仁見智。**
+
+何栢良在電台訪問指，室內外限聚人數不一致已非首次，舉例指在7月第三波疫情爆發前，室外最多只准8人聚集，但食肆則無設上限。何栢良表示，當局再放寬措施前，未能提供科學數據支持，對於再放寬措施是否安全有擔心，又建議，當局再放寬措施前，應先量化現行措施的執行情況，例如抽樣檢查食肆，統計有設立「執枱專員」及有提供熱水消毒餐具的食肆數目，相信有助增加調整措施的公信力。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210728034400/https://www.hkcnews.com/aboutus/#subscribe)

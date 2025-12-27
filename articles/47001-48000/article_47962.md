@@ -1,0 +1,43 @@
+---
+title: "梁卓偉辭去港大醫學院院長 本學年末離任 明年出任馬會慈善執行總監"
+date: "2021-11-21"
+last_updated: "2021-11-21 18:22:54"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "梁卓偉"
+  - "港大醫學院"
+  - "馬會"
+  - "hkjc"
+  - "香港賽馬會"
+  - "jockey club"
+  - "賽馬會"
+url: "https://web.archive.org/web/20220117033707/https://www.hkcnews.com/article/47962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47968/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47968/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 梁卓偉辭去港大醫學院院長 本學年末離任 明年出任馬會慈善執行總監
+
+港大醫學院院長梁卓偉向校長張翔請辭。他指到今個學年末，就會離開服務了23年的港大，他向師生發信交代辭職一事，透露新崗位是擔任為賽馬會慈善及社區事務執行總監。香港大學校長張翔今（21日）亦向校內發電郵指，證實梁卓偉向校方請辭。校方將展開醫學院院長的全球招聘計劃。梁卓偉原任期至2023年7月，即他提早約一年離任。梁為李嘉誠醫學院第四十任院長。
+
+<figure>
+<img src="https://web.archive.org/web/20220117033707im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/梁卓偉-20211121165845_6bbe_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+梁卓偉發給師生的電郵中，以《論語‧為政》作為開首。子曰：「吾十有五而志於學，三十而立，四十而不惑，五十而知天命，六十而耳順，七十而從心所欲，不逾矩。」
+
+他在信中指自已剛度過49歲生日，而在本學年結束時，也剛好將走完他「不惑」十年。在該整整十年，有幸成為院長，與大家共同堅信並致力追求學術卓越的願景。他說期待「五十而知天命」即將到來的十年之際，他會致力應對「貧富差距大流行」的終極挑戰，他在信中交代，離開港大後就出任賽馬會慈善及社區事務執行董事，負責發展及推行具前瞻性及負責任的慈善策略及政策。
+
+香港賽馬會在梁卓偉宣布辭職後，亦隨即公布梁卓偉將於明年7月18日出任慈善及社區事務執行總監，並將於8月接任合約期滿離任的張亮；梁卓會將成為馬會管理委員會成員，並直接向馬會行政總裁應家柏先生匯報。
+
+<figure>
+<img src="https://web.archive.org/web/20220117033707im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/梁卓偉-武漢肺炎-20200309012502_1cf6_large.jpg" alt="">
+<figcaption>港大醫學院院長發電郵給師生，表示已經請辭。資料圖片</figcaption>
+</figure>
+
+梁卓偉2013年擔任港大醫學院院長，2017年時任港大校長馬斐森突然辭職後，據了解梁卓偉當時有份競逐校長一職，由於他在港大工作多年，對港大有深厚認識，是校長大熱人選。梁與張翔差不多是去到最後兩強，最終由張翔勝出，擔任港大校長。梁卓偉在2018年續任院長。而上月初(10月3日)香港大學校務委員會主席李國章向港大師生及校友發信，指經諮詢教務委員會後，一致決定現任校長張翔將獲續任校長5年，2023年7月起生效，即原於2023年結束的5年校長任期，將延長至2028年完結。
+
+梁卓偉在香港出生，1999年加入港大醫學院，任職社會醫學院助理教授，2003年沙士爆發，梁卓偉建立了香港大學傳染病流行病學研究小組，到2004年晉升為公共衞生學院副教授。他33歲時，成爲香港大學最年輕的全職終生教授之一。到2008年，梁卓偉加入特區政府，任職首任食衞局副局長，是首批獲行政長官曾蔭權委任的副局長之一。他當時是以停薪留職方式「過檔」政府，被香港大學學生會及校友質疑 。梁卓偉回應兩者並無利益衝突，停薪留職做法是跟隨大學及政府既定機制辦事。2011年梁卓偉獲委任為行政長官辦公室主任。
+
+2012年，梁卓偉完成政府任期後，回到香港大學擔任社會醫學系系主任。一年後，即2013年8月，梁卓偉以40歲之齡出任第40任醫學院院長，到2018年2月，港大校董會批准梁卓偉續任港大醫學院長一職，任期至2023年。

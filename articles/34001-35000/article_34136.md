@@ -1,0 +1,95 @@
+---
+title: "【武肺第三波】追蹤分析輸入個案　衛生署5項疫情資訊失蹤　135名患者「未知」是否香港居民"
+date: "2020-09-22"
+last_updated: "2020-09-23 09:18:42"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "第三波疫情爆發"
+  - "豁免檢疫漏洞"
+url: "https://web.archive.org/web/20210729092417/https://www.hkcnews.com/article/34136/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-135%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34136/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-135%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【武肺第三波】追蹤分析輸入個案　衛生署5項疫情資訊失蹤　135名患者「未知」是否香港居民
+
+武漢肺炎襲港經已8個月，累計確診人數逾5000人。目前，第三波疫情未「斷尾」，並斷斷續續出現多宗輸入個案。特首林鄭月娥今早亦都特別提到，過去一星期錄得44宗輸入個案，佔總數三分之二，形容現時有多重措施防止輸入個案，「希望做到滴水不漏」。
+
+諷刺的是，第三波武肺爆發，源頭正正指向邊境防疫漏洞，讓輸入個案進入社區。眾新聞欲透過衛生署提供的個案詳情，了解第三波患者當中幾多是非香港居民。但發現自7月起，只有2名患者屬於非香港居民，同時有135名患者「未知」是否香港居民。細看數據，在7月7日前，亦即大約是第三波武肺爆發前，不曾出現患者「未知」是否香港居民的分類。
+
+至於衛生署為甚麼未能判斷患者是否香港居民，署方無正面回應，只在收到提問後隔了廿多個小時，表示報告已更新，其餘未知個案仍在調查。記者於是查看最新報告，發現非香港居民由2個增至131個，未知的則有12個。
+
+根據衛生署在 [2019冠狀病毒病專頁](https://web.archive.org/web/20210729092417/https://www.coronavirus.gov.hk/chi/index.html) 提供的資料，眾新聞整理了共有5項疫情資訊被刪減／停止更新，影響公眾掌握疫情最新情。
+
+<figure>
+<img src="https://web.archive.org/web/20210729092417im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/第三波疫情爆發-輸入個案-武漢肺炎-20200922220619_6330_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 一、135個患者「未知」是否香港居民
+
+第三波肺武在7月上旬爆發，源頭被指是外地來港的豁免人士。政府專家顧問許樹昌、袁國勇均於7月中提出「邊境漏洞」說，指豁免人士來港後毋須強制檢疫、毋須留樣本化驗，在醫學監察下可自由進入社區，構成防疫漏洞，推測有的士司機接載過帶病毒的豁免人士，然後將病毒傳播開去。理工大學蕭傑恒團隊於7月底分析患者的病毒基因排序，發現第三波武肺部分個案與哈薩克、菲律賓輸入個案相似，進一步引證「邊境漏洞」說。
+
+許樹昌教授於7月21日接受眾新聞訪問時提到，自衛生署7月8日開始強制為抵港的機組人員及船員做病毒檢測，找到10多宗菲律賓籍船員、機組人員確診。另外，6月下旬有9名在本港登船的外籍船員，船隻泊岸寧波時證實確診，但港府未有及早發現 。
+
+眾新聞於是查看衛生署提供的個案詳情，希望了解有多少患者屬非香港居民。然而，自7月5日第三波武肺爆發開始，只見到2名患者顯示為非香港居民，卻有135名患者被界定為「未知」是否香港居民，此前未有出現過「未知」的分類。這些未知是否香港居民的患者，有九成四屬於輸入個案，整體男性比例是82.96%，以26歲至40歲的男性佔多。
+
+翻查過往報道，張竹君於7月下旬起在每日430記者會報告疫情時，會提到有幾多輸入個案，包括是哪裡來的船員，譬如9月20日有一名菲律賓來的船員確診；9月12日有一名印度來的船員確診。整理下來，7月27日至9月20日期間，經張竹君公布、由外地來的確診船員共有26名。已知個案編號的船員患者當中，只有1人是「香港居民」，其餘17名是「未知」是否香港居民。
+
+衛生署收到眾新聞查詢後廿多個鐘，回應指報告已經更新，沒有解釋之前為何未能判斷患者是否香港居民。最新報告顯示，非香港居民由2個增至131個，未知的則有12個。
+
+### 二、無備存絕大部分豁免人士的確診數字
+
+自從7月爆發第三波武肺，源頭被指是豁免人士，眾新聞多番向衛生署索取33類豁免人士的確診數字，均不得要領。最近的一次是9月 10日向衛生署索取3月至8月豁免人士的確診數，並要求按月、按類別提供數字。惟署方翌日的回覆只表示，7月1日至8月31日，錄得40宗機組人員、64宗船員確診個案，並未提供其餘31類豁免人士的確診數，無從得知其他類別人士是「零確診」抑或署方拒絕透露。
+
+與此同時，記者於8月31日已透過《公開資料守則》向衛生署索取有關數字，署方9月5日回應：「本處並未持有相關資料」。記者要求署方澄清並未持有哪些資料，9月11日獲回覆：「本處較早前曾披露涉及船員、機組人員的確診個案數字，但你查詢的不同類別的豁免人士確診數字。本處在進行流行病學調查的過程中，會了解確診者屬本地或外來人士，及一些與流行病學有關的資料，例如他們的職業，但我們並沒有識別這些確診個案是否屬豁免人士，因此沒有你要求索取的資料。」記者唯有重新提出索取資料的申請，終於9月20日取得以下數字：
+
+<figure>
+<img src="https://web.archive.org/web/20210729092417im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/豁免檢疫-第三波疫情爆發-武漢肺炎-20200922182846_13f3_large.png" alt="">
+<figcaption>上述數字由衛生署提供。</figcaption>
+</figure>
+
+### 三、強制檢疫大廈名單三月中起無更新
+
+現行邊境防疫政策規定，從外地抵港人士須接受14天強制檢疫，獲豁免人士除外。檢疫地點包括家居或指定地點。衛生防護中心專頁指：「政府人員會根據入境人士的情況作不同的檢疫安排。接受在家居或其他住所檢疫的人士需要提供地址，並需要提供聯絡電話，並戴上由政府提供的電子手環。入境後，有關人士須於提供的地址接受檢疫14天。」
+
+而根據政府新聞稿，自從2月份實施強制檢疫令以來，至少有40名人士被判刑或罰款，絕大多數人因離開其檢疫地點而被檢控，少部分人因提供虛假住址作檢疫地點被控。刑罰最重的是判即時監禁6星期。
+
+2月底，衛生防護中心專頁披露了 [〈根據香港法例第599C章正在接受強制檢疫人士所居住的大廈名單〉](https://web.archive.org/web/20210729092417/https://www.chp.gov.hk/files/pdf/599c_tc.pdf) ，即中國內地、澳門及台灣抵港人士（不論是否香港居民）接受強制檢疫所在大廈的名單，並會備有完成檢疫的日期。但眾新聞發現，名單最後更新日期是3月16日，遂向衛生署查詢，昨日獲回覆指，「衛生署於三月中起需全力處理近日大量人士回港／抵港的相關檢疫事宜，相關大廈名單已停止更新。」市民無從得知自己所在大廈是否有正接受強制檢疫人士。
+
+目前所有經香港國際機場抵港的人士，包括獲豁免強制檢疫人士，入境香港均須接受病毒檢測；但經陸路來港者無此要求。現時陸路關口剩下港珠澳大橋及深圳灣仍然運作，根據入境處每日公布的出入境旅客人次，9月1日至21日，經港珠澳大橋抵港有2728人、經深圳灣抵港有37396人。當中絕大部分是香港居民，內地訪客佔11%（4420人）。
+
+<figure>
+<img src="https://web.archive.org/web/20210729092417im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/武漢肺炎-強制檢疫-20200922185409_1295_large.png" alt="">
+<figcaption>現時打開〈根據香港法例第599C章正在接受強制檢疫人士所居住的大廈名單〉，會見到13649幢大廈有人正接受強制檢疫，名單最後更新日期為3月16日。</figcaption>
+</figure>
+
+### 四、拒再提供有關連個案的編號，公眾無法了解傳播鏈
+
+衛生署過往會在每日新聞稿的附表提供個案詳情，包括每宗個案與哪些個案相關，例如7月3日確診的個案1245號，是3歲男性、無長期病患、無病徵、住伊利沙伯醫院、備註欄寫有「與個案1238有流行病學關連」。公眾可以藉此知道該群組傳播範圍有幾廣泛，譬如早期的佛堂群組、邊爐群組，不用等衛生署宣布其為群組爆發，傳媒或者關心疫情的市民就可以了解到群組爆發牽涉人數。
+
+但自從7月27日起，衛生署不公布有關連的個案編號，僅顯示為：「與本地個案有流行病學關連」。張竹君解釋，個案太多、核對需時，不想延誤出稿時間，並指「話俾大家聽唔係太有意義」。
+
+衛生署現時並只會當群組累計達10人或以上時才公布群組名稱、相關個案編號。但7月28日張竹君遭質疑隱瞞「堅城（梁氏）建築有限公司」的爆發情況，因為衛生署此前未有提及過確診情況，卻在7月27日深夜更新網頁資料時才公布堅城群組，當時該群組已經有13人確診。張竹君表示之前「講漏咗」，未有回應會否擔心削弱市民信任。
+
+### 五、約150名確診患者住址未提供
+
+截至昨天，累計確診個案達5038宗。眾新聞發現，共有約150宗確診個案未有披露地址。當中有部分患者由檢疫中心送院（38宗）或由亞洲博覽館送院（3宗），意味傳染期內無在社區內居住。亞博早期是讓經機場抵港人士等候檢測結果的地方。
+
+餘下有68宗在地址一欄寫「待定」，但之後並未有更新。另有40宗患者地址為「不適用」，這些個案全部屬於與本地個案相關，但並無顯示是否從檢疫中心送院，所以未能確定在傳染期內有否居於社區內。
+
+地址「待定」的情況始於7月24日，即又是武肺第三波期間。誠然，7月下旬出現連續12日確診數破百，情況嚴峻，惟現時疫情已經回穩，未知衛生署有否追蹤到確診者住址，如有，又為何未有公布。眾新聞向衛生署查詢過這些消失的住址，對方僅提供了每日〈過去14天曾有確個案的大廈名單〉，記者遂自行核查，只發現5宗個案有更新住址（這5宗個案不包括在上述68宗個案裡面）。
+
+<figure>
+<img src="https://web.archive.org/web/20210729092417im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/確診者-第三波疫情爆發-武漢肺炎-20200922220658_27d1_large.jpg" alt="">
+<figcaption>7月24日的新聞稿，顯示多宗個案住址待定（黃色為記者所加）。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729092417/https://www.hkcnews.com/aboutus/#subscribe)

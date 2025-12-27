@@ -1,0 +1,46 @@
+---
+title: "三男女被控黃埔暴動兩女被告脫罪　官指女警證供非事實與片段不符"
+date: "2021-12-30"
+last_updated: "2021-12-30 19:38:35"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "暴動"
+  - "12.1尖沙咀黃埔衝突"
+url: "https://web.archive.org/web/20220520131156/https://www.hkcnews.com/article/49777/121%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49785/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49777/121%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49785/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 三男女被控黃埔暴動兩女被告脫罪　官指女警證供非事實與片段不符
+
+前年12月1日有市民舉行「毋忘初心大遊行」，及後有示威者在紅磡堵路，並破壞吉野家、優品360等多間商店。當日兩女一男被捕，遭控暴動、在公眾地方管有攻擊性武器等罪。法官姚勳智今裁定兩女被告脫罪，男被告則暴動罪成。法官認為，拘捕女被告的女警稱聲到場後目賭示威者在逃跑，明顯與片段不符，令法庭難安穩接納她的證供。惟男被告在示威者逃離時迅速被捕，其時他手持磚頭，故可推論他曾參與暴動。案件押後至下月13日判刑，男被告還柙待索背景報告。
+
+三名被告為任職美容市場策劃的女被告何靖莎（23歲）、銀行文員鍾梓軒（25歲）以及女兼職社工陳詩玲（25歲）。他們同面對一項暴動罪，涉於2019年12月1日在紅磡德康街、德安街及船景街一帶附近，與其他身份不詳人士參與暴動。第三被告另被控一項在公眾地方管有攻擊性武器罪，指她在德康街及船景街一帶攜有一支雷射筆。
+
+<figure>
+<img src="https://web.archive.org/web/20220520131156im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/姚勳智-區域法院-20210804190138_e7f3_large.jpg" alt="">
+<figcaption>法官姚勳智</figcaption>
+</figure>
+
+在審訊中，鍾否認在暴動現場出現，何及陳則質疑證人作供與錄影片段不符，而陳管有雷射筆並無任何傷人意圖。
+
+控方案情指出，事發當晚約8時，紅磡德康街、船景街及德安街一帶發生暴動，示威者聚集堵路，部份更衝入吉野家破壞。警方到場驅散時，在德安街追截及拘捕鍾，當時鍾把磚頭掉到地上，閉路電視片段也拍攝到他在較早前在示威者當中。何及陳則被指在吉野家店鋪外，當警察到場時曾大叫「警察，快走」，協助示威者逃避追截。後來陳被搜出一支雷射筆。
+
+### 男被告在開始逃離時迅速被捕　可推論他曾在暴動現場
+
+就鍾的爭議，法官認為，雖然吉野家的閉路電視片段拍攝不到任何與鍾衣着相近的人，惟當吉野家被破壞後，毗鄰的元氣壽司緊接亦遭破壞，防暴警在元氣壽司被毁後一分鐘抵埗，正當示威者剛開始逃離現場時，警方迅速在附近追截到鍾，拘捕鍾的警員並清楚指出鍾與示威者跑往同一方向。法官又指，從片段截圖可見，當鍾被截停時，他將手上的磚頭掉在地上；綜合所有環境及證人證供，唯一無可抗拒的推論就是鍾曾參與暴動。
+
+<figure>
+<img src="https://web.archive.org/web/20220520131156im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/12.1尖沙咀黃埔衝突-催淚彈-黃埔花園-20191204004209_2551_large.jpg" alt="">
+<figcaption>案發當晚防暴警察在黃埔驅散示威者</figcaption>
+</figure>
+
+### 現場環境嘈雜　難判斷是誰叫喊「警察，快走」
+
+至於何及陳，法官同意證人作供與錄影片段不符。他指，女警譚雅玲作供時自言到達聚寶坊外時，看到20名黑衣人逃往船景街方向，惟根據片段，當時破壞者已開始逃離現場，女警所述不是事實，令法庭難以安穩地接納她的證供。
+
+再者，當時現場環境相當嘈雜，難以判斷大叫「警察，快走」、協助示威者逃離的人，是否何及陳，而且二人在場也沒逃跑或作出任何其他舉動。雖然她們曾在現場逗留，理應看到店鋪被破壞的情況，而且又攜帶索帶、護目鏡及雷射筆等物品，確實使人生疑；惟這顯然並非唯一無可抗拒的推論，故裁定二人罪名不成立。
+
+而就陳被控管有攻擊性武器罪，法官認為雖然可疑，但並無證據她曾使用，更難以推斷她管有雷射筆必然是用作傷人，故亦裁定她脫罪。
+
+案件編號：DCCC171、172/2021

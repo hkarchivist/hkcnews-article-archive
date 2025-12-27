@@ -1,0 +1,54 @@
+---
+title: "西九M+大龍鳳　火燒林鄭唐唐　「中指」繼續收起　審查無處不在"
+date: "2021-03-23"
+last_updated: "2021-03-24 06:40:06"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "唐英年"
+  - "M+博物館"
+url: "https://web.archive.org/web/20211202035855/https://www.hkcnews.com/article/39580/m%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39594/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39580/m%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39594/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 西九M+大龍鳳　火燒林鄭唐唐　「中指」繼續收起　審查無處不在
+
+
+{{< video src="https://web.archive.org/web/20211202035855if_/https://www.youtube.com/embed/67JU98cF3f4" >}}
+
+
+西九M+博物館購入被指違反國安法、侮辱國家藏品風波停不了。 親中報章《大公報》周二（23日）繼續狙擊，頭版頭條標題為 [〈1. 77億買低俗貨　1500萬買「爛裝修」　M+燒公帑　天價偽術品 你識欣賞咩？〉](https://web.archive.org/web/20211202035855/http://paper.takungpao.com/resfile/PDF/20210323/PDF/a1_screen.pdf) 報道引述藝術界人士砌西九，火燒西九文化區管理局董事局主席唐英年及特首林鄭月娥。文革極左病毒散播，西九M+上演大龍鳳。
+
+中聯辦背後支持的《大公報》、《文匯報》上周發動炮打M+博物館運動，指控博物館有大量藏品「挑戰國家尊嚴、侮辱英雄、無視社會道德底線、貶低宗教、涉及孌童意識」。新民黨立法會議員容海恩在特首質詢時間指館藏品「散播仇恨」、「侮辱國家尊嚴」、「違反國安法」，要求成立部門審查展品。
+
+林鄭回應指文化藝術創作自由與散播仇恨、破壞國家安全的界線是可分辨的，又稱政府會「特別警惕」。林鄭似暗示「識做」，但左派並未收手，更有加重火力，擴大攻擊面之勢。
+
+[繼《文匯報》周一以全版針對M+有藏品淫褻不雅](https://web.archive.org/web/20211202035855/https://dw-media.tkww.hk/epaper/wwp/20210322/a07-0322.pdf) ，《大公報》周二報道鞭韃博物館被人「搵笨」、亂買，亦質疑「大量購置國外的所謂藝術品」，有何價值？建制專欄作家 [屈穎妍前日在《大公報》 專欄發文](https://web.archive.org/web/20211202035855/http://www.takungpao.com.hk/news/232109/2021/0321/565313.html) ，劍指現任西九董事局副主席夏佳理的繼女徐文玠，指她為文化藝術經紀，代M+與相熟的瑞士收藏家烏利希克洽購中國藝藏品，動用1.77億元公帑購入希克藏品，而希克事後更獲邀成為M+博物館董事局成員，「從此隻手遮天」，又形容藏品購入過程「多少嗅到官商勾結的味道」。夏佳理是林鄭2017年競選辦主席，當時被形容為「夢幻組合」。大龍鳳添上權鬥味道。
+
+M+博物館火燒藏品，林鄭周二早上見記者，沒有直接回應左報及「 梁粉」指控，把波踢向唐英年，表示他是全國政協常委，亦是前政務司司長，當年親自促成M+博物館一項很大型的捐贈，對他百分百信任，相信他能將工作處理得好。林鄭長期參與西九項目，接替唐英年後， 以政務司司長直接掌管西九。
+
+唐英年接波發表聲明，強調M+策展團隊在籌劃年底的開幕展覽時會嚴守法律，並以專業、客觀和持平的態度進行策展工作。唐沒有透露開幕展覽安排，但《文匯報》周一引述消息大字標題「開幕展無艾未未話題作品」。可以肯定，艾未未四幅向建築物舉起中指作品，不可能出現在年底M+開幕展覽，在一段將時間、甚至永遠成為「收藏品」。
+
+親中媒體、建制作家向西九發炮，是否「志在林鄭」，惹人遐思，但港版國安法利刀在M+頭上揮動，已震攝文化、藝術界。
+
+面對有「西環」為強大後盾媒體殺氣騰騰的攻擊和質疑，唐英年、林鄭也不敢硬碰，更多具爭議、被質疑的藝術作品將被收起，寒蟬效應在文藝領域擴散，自我審查急速擴大惡化，紅線不斷收緊，國際文化大都會將不再講，正如前特首董建華講「八萬五房屋」 為政策，不再講，亦即沒有了。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202035855/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211202035855im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

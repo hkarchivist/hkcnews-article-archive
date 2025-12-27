@@ -1,0 +1,68 @@
+---
+title: "女嬰真空吸引助產引致腦出血亡　死因庭裁死於不幸　Ｂ女高齡媽媽：已冇得再生"
+date: "2021-11-23"
+last_updated: "2021-11-23 17:39:22"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "死因庭"
+  - "聯合醫院"
+url: "https://web.archive.org/web/20220125022505/https://hkcnews.com/article/48035/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48047/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48035/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48047/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 女嬰真空吸引助產引致腦出血亡　死因庭裁死於不幸　Ｂ女高齡媽媽：已冇得再生
+
+女嬰2016年在聯合醫院透過真空吸引術引產，吸拉頭部四次才成功出生，事後女嬰因腦部出血，僅存活8天便夭折，死因庭早前展開聆訊，裁判官何俊堯今（15日）裁決，指醫護人員利用真空吸引術助產，導致女嬰帽狀腱膜下出血，裁定「死於不幸」。何官認為，要產婦在情急之下，理解醫生使用真空吸盤的風險，並馬上作決定，情況並不理想。此外，何官亦提到醫管局現時仍未就兒童大量輸血制訂標準，若待失去更多寶貴生命才亡羊補牢，實在太遲。女嬰母親散庭後哽咽說「bb真係死得好慘」，屬高齡產婦的她已「冇得再生」，可是「生活都要繼續落去」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125022505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/孕婦-死因庭-20211115174840_2e89_large.jpg" alt="">
+<figcaption>逝世女嬰詹雪琳的母親。(資料圖片)</figcaption>
+</figure>
+
+### 女嬰媽媽哽咽：仍要繼續生活
+
+死因裁判官何俊堯慰問家屬，感謝家屬連日出席聆訊，「冇人可以有好似你哋咁嘅感受」，希望借聆訊使家屬「知多少少」，早日釋懷，不要難過。
+
+5年前事發時41歲、女嬰詹雪琳的媽媽在庭外被問到能否釋懷，她哽咽著稱「咁生活都要繼續落去」，，現已「冇得再生」。她指每次產前檢查，胎兒心跳都很健康，可是「一吸出嚟就係咁」，「我呢個bb真係死得好慘」。
+
+### 專家：如吸盤位置正確毋需吸三次
+
+何官引述法醫及專家證供，導致女嬰死亡的傷害或疾病為缺氧缺血性腦病變、休克及帽狀腱膜下出血。專家證人婦產科醫生梁國賢指，帽狀腱膜下出血雖是真空吸引的已知風險，但如吸盤位置正確，理應不需要吸三次。梁認為可能是接生醫生錯誤評估嬰兒頭部方向，使吸盤位置偏差，引致帽狀腱膜下出血。兒科專家證人李誠仁醫生及霍泰輝教授亦認為，帽狀腱膜下出血與真空吸引有關。
+
+何官認為專家意見與客觀證據吻合，裁定女嬰於2016年1月30日出生時，醫護人員利用真空吸引術助產，導致她帽狀腱膜下出血。何官指，女嬰本來沒有致命的病況，但接受治療後因任何原因導致死亡，裁定為「死於不幸」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125022505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/孕婦-死因庭-20211123141703_1ca2_large.jpg" alt="">
+<figcaption>女嬰詹雪琳出生後頭部的吸盤印。(家屬提供)</figcaption>
+</figure>
+
+### 醫院單張只稱真空吸引「血腫很快散去」　沒提併發症風險
+
+女嬰媽媽翁女士入院前曾簽署「陰道分娩資訊單張」，何官留意到，單張提及真空吸引術時，雖然提到「少部份嬰兒可能因此皮下出血，頭皮有血腫」，但只是簡單指出「血腫很快散去，無須特別治療」，甚至完全沒有提及併發症風險。何官關注，即使在手術前向翁女士解釋真空吸引的風險，當時她已進入第二產程，她能否接收及理解醫生的解釋令人懷疑，要產婦情急之下實際理解及馬上決定，情況並不理想。
+
+至於檢查嬰兒頭部方向是否準確，何官建議訂立指引，防止再發生錯誤評估頭部位置而影響吸盤擺放的事件。現有指引包括遇上困難時繼續真空吸引、吸引三次不成功需召兒科醫生候命等等，何官認為並無不妥，亦屬醫護臨床決定，故不作建議。
+
+考慮到專家證人的意見後，就真空吸引術，何官建議：
+
+1. 醫院應及早向產婦提供更詳細的資訊，例如在「陰道分娩資訊單張」上清楚列明所有助產術（包括真空吸引術）的風險及可能會出現的併發症，以確保產婦在需要時能作明確決定。
+
+1. 分娩期間，當醫護人員須用真空吸引術助產時，若未能藉人手檢測確定嬰兒頭部的位置，應考慮使用超聲波協助。
+
+1. 當局亦應就此訂下指引，以供醫護人員參考。
+
+另外，帽狀腱膜下出血的治療方法在於輸血，但現時醫管局未有引入及制訂兒童大量輸血的協定。何官認為，世界各地均已就大量輸血作出協定標準，但現時本港醫管局只針對成人就大量輸血制定標準，兒童則沒有。
+
+兒科專家霍泰輝曾供稱，雪琳的致死原因是帽狀腱膜下出血，而缺血、缺氧腦損傷則與大量出血有關，繼而休克導致體內多個器官受損。雪琳當時的出血情況快得驚人，雖然院方的確有進步的空間，如可以再快點「畀血畀水」，但亦未必可以改變後果，因為始終嚴重出血屬非常難處理的問題。
+
+雖然有專家證人指，由於至今未有此協定，故聯合醫院2016年未有採納有關做法是情有可原，並無不妥，但何官認為，如單單因為現時仍未有統一標準，就完全漠視此方面的發展，是於理不合，加上兩位專家都認同現階段需要開始研究制定標準，假若失去更多寶貴生命才亡羊補牢就太遲。
+
+何官對帽狀腱膜下出血的偵測及救治提出建議：
+
+1. 當局應參考由本案兒科專家李誠仁醫生所提供、有關診斷及治療新生嬰兒帽狀腱膜下出血的澳洲案例，並考慮採納當中提及的診斷指標，訂下指引，以確保醫護人員能及早作出正確診斷，從而作出針對性的治療。
+
+1. 無論如何，醫護人員亦應就此情況提高警覺，如有需要，應盡早尋求資深醫護的協助。
+
+1. 考慮到帽狀腱膜下出血的治療方法在於輸血，當局亦應及早研究制定有關的大量輸血協定，並在需要時與本地醫學院及專科學院聯繫配合，以確保醫護人員在處理有關情況時能為患者提供最適當的臨床管理。
+
+案件編號：CCDI-261/2016

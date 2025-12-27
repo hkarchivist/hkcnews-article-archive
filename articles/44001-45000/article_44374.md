@@ -1,0 +1,47 @@
+---
+title: "【蘋果涉違國安法】張劍虹、羅偉光今提堂　押後至9.30再訊　羅再申保釋被拒"
+date: "2021-08-13"
+last_updated: "2021-08-13 16:54:37"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "張劍虹"
+  - "羅偉光"
+  - "取締蘋果"
+url: "https://web.archive.org/web/20211205073429/https://hkcnews.com/article/44374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44380/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD930%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44374/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44380/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD930%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【蘋果涉違國安法】張劍虹、羅偉光今提堂　押後至9.30再訊　羅再申保釋被拒
+
+前壹傳媒行政總裁張劍虹及前《蘋果日報》總編輯羅偉光、蘋果日報有限公司、蘋果日報印刷有限公司及蘋果互聯網有限公司（AD Internet Limited）被控串謀勾結外國或者境外勢力危害國家安全罪，案件今（13日）在西九龍裁判法院提堂。國安法指定法官、總裁判官蘇惠德批准控方申請，將案件押後至9月30日再訊。
+
+<figure>
+<img src="https://web.archive.org/web/20211205073429im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/羅偉光-國安法-張劍虹-20210619190903_2102_large.jpg" alt="">
+<figcaption>前《蘋果日報》總編輯羅偉光（左）和前壹傳媒行政總裁張劍虹今日再提堂。資料圖片</figcaption>
+</figure>
+
+控方今由署理助理刑事檢控專員張卓勤代表，他向法庭申請將案件押後至9月30日再訊。控方指，林文宗、陳沛敏等4名前《蘋果》高層涉違國安法的案件（案件編號：WKCC 2879/2021）亦於當日提訊，指兩案控罪和案情相同，可方便法庭處理。控方亦表示，暫時未計劃申請將兩案合併。辯方不反對案件押後，蘇官批准控方有關申請。
+
+張劍虹今日沒有保釋申請，其代表律師透露，張正向高等法院申請保釋。羅偉光今日由大律師李澍桓代表申請保釋，惟蘇官聽取控辯雙方陳詞後，拒絕其保釋申請。二人需繼續還柙。
+
+張劍虹今穿上黑色西裝出庭，羅偉光則穿上黑色風褸，張出庭時向旁聽席揮手，羅則舉起「ok」手勢。散庭時，旁聽人士高呼「加油！」、「撐住啊！」。
+
+<figure>
+<img src="https://web.archive.org/web/20211205073429im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/西九龍裁判法院-20210813153026_b026_large.jpg" alt="">
+<figcaption>案件今日在西九龍裁判法院提堂。資料圖片</figcaption>
+</figure>
+
+各被告依次為蘋果日報有限公司、蘋果日報印刷有限公司、蘋果互聯網有限公司、張劍虹（59歲）、羅偉光（47歲），被控涉嫌串謀勾結外國或者境外勢力危害國家安全。
+
+控罪指，3間公司和張劍虹、羅偉光於2020年7月1日至2021年4月3日期間，於香港與黎智英及其他人一同串謀請求外國或境外機構、組織、人員，對香港特別行政區或中華人民共和國進行制裁、封鎖或者其他敵對行動。
+
+【案件編號：WKCC 2379/2021】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205073429/https://hkcnews.com/aboutus/#subscribe)

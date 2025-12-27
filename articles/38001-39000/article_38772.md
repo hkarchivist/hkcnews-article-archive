@@ -1,0 +1,64 @@
+---
+title: "今天的人更少，但今天這些人大概更堅定"
+date: "2021-03-03"
+last_updated: "2021-03-03 17:02:03"
+author: "鄭美姿"
+category: "眾說"
+tags:
+  - "初選大起訴"
+url: "https://web.archive.org/web/20220704235857/https://hkcnews.com/article/38772/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38773/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/38772/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38773/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 今天的人更少，但今天這些人大概更堅定
+
+<figure>
+<img src="https://web.archive.org/web/20220704235857im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/大搜捕民主派-初選大搜捕-20210302174340_2d3c_large.jpg" alt="">
+<figcaption>「昨日香港人真係返晒嚟，今日是有少少失望⋯⋯但就是因為今日冇人，我先想出來，增加人氣。」</figcaption>
+</figure>
+
+一場涉及47人的串謀顛覆國家政權案，馬拉松式提堂，橫跨兩日經歷逾二十小時後，仍未完結。不論是案件的嚴重性、被告的人多勢眾，以至提堂時間的長度，皆屬史無前例。整個西九法院都因此單案件而鬧得沸沸揚揚，但跟其他案件不同，由於地方所限，被告家屬、記者和公眾皆沒有機會跟眾被告見面。47被告及其律師團隊、主控和裁判官，全部留在法庭內進行程序，其他人則分散於四個地方觀看提堂直播。
+
+由於昨晚和今日(2/3)的提堂皆涉及保釋法律程序，因此很多記者即使聽了逾二十小時，也幾乎隻字不能報道，否則會干犯監禁罪行。雖然如此，法院所提供的四個直播房間，一直全告爆滿，被告和辯方律師團隊沒能感受到其他時空的氣氛，但大家的心情和反應，其實都被庭上代表大狀的每一句話所牽動。
+
+代表47名被告的律師團隊，不眠不休了好幾日，當中不少人其實都是反送中案件常見的辯方大狀，而且檔期排得密密麻麻。他們因控方突然提告此案，而受不同被告託付上庭，很多大狀皆一人代表數個被告，關於案情和保釋的發言長達幾小時，還要金睛火眼隨時跟主控針鋒相對。連續兩日馬不停蹄，明朝還須繼續，當中耗費的心血和熱血，叫外人難以想像。
+
+<figure>
+<img src="https://web.archive.org/web/20220704235857im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-20210303165236_2e04_large.png" alt="">
+</figure>
+
+代表袁嘉蔚、吳敏兒和劉穎匡的大狀黃瑞紅，今日申請保釋陳詞時一度哽咽，不少記者隔住高牆聆聽，亦眼有淚光。代表梁晃維和譚得志的大狀亦向裁判官反映，今日凌晨三點退庭後，被告直到五點才能離開法院，清晨六點幾回到收押所後，八點幾再回法庭應訊，體力根本難以應付。其實一眾律師團隊，除了幾個人申請提早退席外，其他人同樣捱到半夜才收工，然後今早又匆匆回到庭上，是名副其實的馬拉松賽。
+
+這四十七人於一月六日被拘捕，本來到四月才需要返回警署報到，卻在週日突然遭國安處起訴，並且安排於翌日立即過堂。最後不論法院、律師團隊、眾被告及其家屬，都在極度疲累之下，進行夜以繼日的法庭程序。這台戲讓人不明所以，但好多人依然盡力捍衞被告權利。
+
+戴上香港加油耳環的她，是醫管局護士，大概因為平日訓練有素，今天看起來仍然精神奕奕。她說昨日和今日皆請了假，前來法院支持第47號被告余慧明。她昨晨七點就來到排隊，順利拿到籌，一直旁聽至凌晨三點才離開法院。她說在庭上碰到的全是熱心的香港人，聆訊愈搞愈夜，但房間中的公眾仍然堅持沒離開，繼續耐心聆聽，很多人都等到散庭才匆匆截的士返家。
+
+廿幾歲的她不顯疲態，還笑說自己去年疫情初起時，因罷工要求封關而遭醫管局扣糧，「扣了我六千蚊！」問她是否害怕上了黑名單，她聳聳肩，「我會繼續做應該做的事。」她是醫管局員工陣線的工會成員，她說即使主席余慧明真的「出事」，他們也會繼續努力維持現狀，「更要把工會搞好。」（訪問她後三小時，醫管局宣佈將余慧明停職）
+
+除了香港加油耳環外，她還在髮上別上香港加油的蝴蝶結。她說穿黑衣、佩戴飾物，是為了提醒自己要時刻保持熱度。她年輕，又持有護士執照，移民的話應大受歡迎，但香港還是有很多傻人不離不棄，
+
+> **係呀，我哋要走容乜易，但我不會。**
+
+但對比昨日法院外的其門如巿，今天確實是門可羅雀。及至傍晚，更形冷清，只零星有黑衣人坐在樹蔭下默默支持。一個阿姨直勾勾地瞅著六七個軍裝警員，沒玩手機，也不看書。她昨日有事在身，沒來法院，但整日在看新聞報道、把youtube的片全部看完，「我睇到好激動，如果我昨日在場，肯定不會跟你說話，我一定喊死。」   
+ 那麼今天來到，她可有失望？「昨日香港人真係返晒嚟，今日是有少少失望⋯⋯但就是因為今日冇人，我先想出來，增加人氣。」但回望街上警員多過人，多一個也有意思嗎？「我出嚟是不想自己團火冷卻，為了鼓勵自己而出來。」
+
+她在落馬洲的免稅店工作，已停薪留職幾個月﹐疫情固然打擊生活，但也不及政權的打壓來得創傷。「我做幾十年人，從未試過咁低潮、咁sad，2019年之後沒有一天真正開心過。」她說香港人雖然心傷，但更要求存，
+
+> **活著去見證暴政，我更加不能畀自己死。**
+
+這天她由下午四點開始，就坐在法院門外這棵大樹下，目不轉睛望著眼前的警員，至今已兩個幾鐘，「我用眼神望吓佢地個心係咩色，用眼神問呢班人點解可以咁樣。」其實不止她，圍住法院這條街，共幾十個黑衣人都這樣或坐著或站著。隔一條馬路的對街，也有十幾個黑衣人徘徊多時，他們對庭內的人無聲地支持，對庭外的暴政無聲地抗議。今天的人更少，但今天這些人大概更堅定。
+
+<figure>
+<img src="https://web.archive.org/web/20220704235857im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/初選大起訴-西九龍裁判法院-20210303003031_1023_large.jpg" alt="">
+<figcaption>西九法院這兩晚也燈火通明，保釋提堂一直審訊至入夜，史無前例。 (周滿鏗 攝)</figcaption>
+</figure>
+
+**（記於三月二日西九法院）**
+
+---
+
+![博客 | 鄭美姿](https://web.archive.org/web/20220704235857im_/https://hkcnews.com/uploads/avatars/51e668ef-6145-4d17-bb14-ce68782d6581.png?1307559844)
+
+**博客 | 鄭美姿**
+
+【鄭美姿・鄭美姿FB專頁】曾為港聞、財經、人物專訪記者，於報紙、雜誌和網媒工作。現為自由記者、新聞系兼任講師，社企聯合創辦人。FB專頁：https://www.facebook.com/鄭美姿-111740473886965/

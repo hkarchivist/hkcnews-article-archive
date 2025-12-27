@@ -1,0 +1,41 @@
+---
+title: "六月三十日"
+date: "2017-07-01"
+last_updated: "2017-07-01 12:14:17"
+author: "盧峯"
+category: "眾說"
+tags:
+  - "回歸"
+  - "回歸20周年"
+url: "https://web.archive.org/web/20220808222623/https://hkcnews.com/article/5007/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5016/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/5007/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5016/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 六月三十日
+
+二十年前的六月三十日晚上你在做些甚麼？ 在家中跟家人吃飯萬日如常般渡過？ 待在電視機前看英國如何一步一步撤出香港？在立法局外參加集會等待民選議員「落車」的一刻？
+
+那一夜我跟所有前線記者一樣忙個不可開交，事多、儀式多、新聞火頭處處，沒份兒進會展見識降旗升旗的回歸大典，倒抽中了港英政府在添馬艦基地的告別儀式（Sunset Ceremony）。
+
+告別儀式的看台是臨時蓋搭，入場時只隨便檢查一下，不算嚴格。來的人有達官貴人，也有尋常百姓，每一個都得到一份非常合時的紀念品：一把藍色／金黃色相間的九七紀念雨傘，傘面寫有香港九七幾個字。
+
+<figure>
+<img src="https://web.archive.org/web/20220808222623im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/1997-回歸-20170701014200_bc2f_large.jpg" alt="">
+<figcaption>英方告別儀式舉行時，雨下很大。美聯社</figcaption>
+</figure>
+
+紀念品真的非常合時，儀式開始不久大雨就傾瀉而下，有人說老天在痛哭，有人說是洗滌恥辱，Whatever。總之人人撐傘，個個衣衫盡濕。有意思的是，沒有人因大雨來襲提早離開，受檢閱的士兵、表演的人、主禮的王子、首相、港督神態自若，沒有不耐煩或躲閃的意思，就像沒事兒一樣。
+
+到儀式結束，雨依然滂沱，撐傘也不管用，可現場數千人仍捨不得離開。然後有人開始用力蹬在看台踏板，發出像鼓掌的聲音，接着大家都加入；一時間踏板聲震動全場，教人感動又心有點戚戚然。那一刻，大家對令香港成為「東方之珠」及內地劫難避風港的英國政府還是有些感謝，有些不捨的。
+
+二十年過去，幾十分鐘告別集會的記憶已漸漸變淡，傘子還是好好的留着，只是捨不得再用來遮風擋雨了。
+
+***本文原刊於《都市日報》***
+
+---
+
+![博客 | 盧峯](https://web.archive.org/web/20220808222623im_/https://hkcnews.com/uploads/avatars/31877576-1b14-4232-880b-d69235f796a6.png?760949755)
+
+**博客 | 盧峯**
+
+【盧峯・酒徒手記】本欄由2017年12月11日起，欄名由〈博客盧峯〉改名〈酒徒手記〉，與網友分享更多杯中物和生活點滴。

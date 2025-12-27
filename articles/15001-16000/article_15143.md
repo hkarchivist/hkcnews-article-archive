@@ -1,0 +1,37 @@
+---
+title: "航管系統維護承辦商誤拔電源　交換航班資料功能一度停止8分鐘"
+date: "2018-09-21"
+last_updated: "2018-09-23 01:20:22"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "民航處"
+  - "民航署"
+  - "Civil Aviation Department"
+  - "空管系統"
+url: "https://web.archive.org/web/20211027060605/https://www.hkcnews.com/article/15143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15167/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/15143/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15167/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 航管系統維護承辦商誤拔電源　交換航班資料功能一度停止8分鐘
+
+民航處周五晚上發出新聞稿，表示於早上5時49分，負責航空交通管理系統維護服務的承辦商，為最終備用系統作恆常維護時，誤將主系統内兩個相同並互補的網絡交換器電源拔除，並再連接專用電源逐一重啟。主系統按安全設計發出提示信息，8分鐘後按預設程序轉用備用系統，期間空管人員仍可透過話音系統與所有航班保持緊密溝通及提供空管服務，但個別非最關鍵的系統功能，例如與鄰近飛行情報區交換航班資料的功能，需短暫停止運作，航班沒受影響。本身是飛機師的立法會議員譚文豪形容，事件屬低級錯誤，幸好不是發生在繁忙時段，否則後果嚴重。
+
+<figure>
+<img src="https://web.archive.org/web/20211027060605im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/民航處-空管系統-機場-20170210120220_3261_large.jpg" alt="">
+<figcaption>有負責維護服務的承辦商誤拔空管系統的電源並逐一重啟。資料圖片</figcaption>
+</figure>
+
+民航處表示，由於主系統按安全設計發出提示信息，在場的承辦商工程人員即時跟進和調查，及後與在場的空管主管協商，在8分鐘後，今晨5時57分按預設程序轉用備用系統。發言人續稱，在這段期間，航班數據的處理和顯示一直維持正常運作，雷達顯示屏幕亦一直顯示香港飛行情報區內全部航班的所有資料，航空交通管制主任在過程中無間斷地提供正常的空管服務。
+
+發言人表示，事件是由人為失誤引起，並非航管系統本身出現問題，又強調整個過程中無需啟動最終備用系統、沒有影響航班升降和航空安全。譚文豪認為，有關承辦商應吸取今次經驗，檢討是否因線路混亂或其他問題所致，日後以避免同樣事情發生。他形容情況就如醫生拔錯喉般的人為低級錯誤，幸好事故發生期間在清晨時份，並沒有太多航班升降，否則加重空管人員的負擔，或造成更嚴重後果。
+
+民航處表示十分關注事件，並已責成有關維護服務承辦商提交報告，解釋事件原因和提交改善措施，避免同類事件發生。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027060605/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,97 @@
+---
+title: "逾700人停捐款　香港樂施會每年損失逾百萬元　「過往集中項目監察，冇為意性侵問題」"
+date: "2018-02-21"
+last_updated: "2018-02-22 21:32:16"
+author: "記者戴晴曦"
+category: "眾聞"
+tags:
+  - "捐款"
+  - "樂施會"
+  - "NGO"
+url: "https://web.archive.org/web/20211204114327/https://hkcnews.com/article/10239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ngo-10294/%EF%BF%BD%EF%BF%BD%EF%BF%BD700%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/10239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ngo-10294/%EF%BF%BD%EF%BF%BD%EF%BF%BD700%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 逾700人停捐款　香港樂施會每年損失逾百萬元　「過往集中項目監察，冇為意性侵問題」
+
+[英國樂施會（Oxfam GB）被傳媒揭發](https://web.archive.org/web/20211204114327/https://www.thetimes.co.uk/article/oxfam-s-shame-tdjbzxgmq) ，2010年海地地震發生後，有救援人員在當地開性愛派對及召妓，引起國際社會譁然，更令人關注國際救援組織如何運用捐款，以及當中的監察程序。受英國樂施會性醜聞影響，香港樂施會上周一至今，接獲715人要求停止每月捐款，料每年損失逾100萬元收入。
+
+究竟香港樂施會與英國樂施會的合作關係如何？香港樂施會一直以來是如何監察捐款的運用？《眾新聞》向香港樂施會傳訊部主管徐國偉查詢運作細節。他表示，過往樂施會的監察重點，主要集中在財務和項目實施的情況，冇為意性侵問題，亦沒有關注員工下班後的私德如何，日後對這方面將會更加留意。
+
+<figure>
+<img src="https://web.archive.org/web/20211204114327im_/https://hkcnews.com/news_新聞/hk-discuss/2018/02/樂施會-20180220192054_1cd0_large.jpg" alt="">
+<figcaption>英國樂施會（Oxfam GB）早前被傳媒揭發，2010年海地地震發生後，有救援人員在當地開性愛派對及召妓，引起國際社會譁然。美聯社圖片</figcaption>
+</figure>
+
+**問：眾新聞記者；答：樂施會傳訊部主管徐國偉**
+
+**問：英國樂施會的性醜聞，香港樂施會是何時知悉？事件對香港樂施會造成甚麼影響？**
+
+**答：** 香港樂施會在傳媒報道前一、兩天，收到英國樂施會的電郵告知，但沒有想過事情如此嚴重，對事件感到非常震驚。由上周一至今，香港樂施會共收到715名捐款者以電話和電郵形式，要求暫停每月捐款，估算香港樂施會每年失去超過100萬元的捐款收入，亦損失一班長期支持香港樂施會的捐助者，香港樂施會對此感到非常可惜。
+
+**問：今次事件有否涉及香港員工？以往可有香港員工捲入性醜聞或不道德事件？**
+
+**答：** 今次事件沒有涉及香港員工，香港樂施會過往沒有員工捲入性醜聞或不道德事件。香港樂施會一向按一般勞工條例要求員工守法，並要求員工尊重不同地方的文化、聆聽當地的聲音。香港樂施會人事部設有舉報熱線，如接獲舉報，會在保密情況下，按舉報人的意願、事件的嚴重性，為舉報人報警。
+
+**問：根據香港樂施會年報，香港樂施會每年均向全球不同樂施會撥款，當中包括英國樂施會。香港樂施會與英國樂施會的合作關係如何？**
+
+**答：** 樂施會的聯會（共20個）遍佈不同國家和地區，各自負責和擅長的工作也有不同，例如香港樂施會主要負責本港、內地、澳門、台灣和北韓方面的工作；英國樂施會則擅長處理賑災、提供乾淨食水、推動環境衛生方面的工作。故此，香港樂施會在不屬自身範疇的救援工作上，會先在香港籌款，再將款項撥給其他聯會，在相關地區進行救援工作。
+
+以2010年海地地震救援工作為例，英國和西班牙樂施會均有投入服務，香港樂施會當時向西班牙樂施會撥出1,080萬元捐款，支援當地逾20個項目夥伴，並就項目進度、捐款運用等，與西班牙樂施會定期聯絡溝通。香港樂施會平時的運作，完全獨立於其他聯會。
+
+<figure>
+<img src="https://web.archive.org/web/20211204114327im_/https://hkcnews.com/news_新聞/hk-discuss/2018/02/海地-樂施會-20180221010528_2831_large.jpg" alt="">
+<figcaption>2010年海地地震，香港樂施會共籌得1,080萬元，並將款項撥給西班牙樂施會，在海地災區展開救援工作。樂施會網頁圖片</figcaption>
+</figure>
+
+**問：香港樂施會2010年為海地地震籌得的1,080萬元，撥予西班牙樂施會的流程如何？相關的匯報和監管工作是怎樣進行？**
+
+**答：** 海地地震屬緊急救援工作。每當災難發生，負責當地救援工作的樂施會聯會，會先進行災情評估，並撰寫建議書，向其他聯會詳細說明是次救援工作的計劃、所需款項、合作的地區組織等。以救援海地地震為例，當時英國和西班牙樂施會各自撰寫救災建議書，交由其他聯會選擇支持那一份，而當時香港樂施會決定，將籌得的1,080萬元捐款，集中支持西班牙樂施會的救援工作。款項以一筆過形式撥出，務求為賑災工作提供最快、最多的幫助。
+
+香港樂施會與西班牙樂施會，會簽訂合作協議，擬定捐出的款項、支援那些救援項目、何時提交財務和項目進展報告等。就海地救援工作，西班牙樂施會每半年須向香港樂施會提交一次報告，香港樂施會目前共收到9份財務及項目進展報告。當撥出的款項超過40萬元，樂施會便須安排獨立審計。除此之外，香港樂施會每年派代表到災區視察，監察救援工作及捐款的運用，是否按建議書的內容執行。假如實際情況與建議書的內容有出入，接受捐款一方須解釋。假如發現疑似貪污情況，樂施會會暫停工作項目，並作出調查，如貪污情況屬實，樂施會會報警處理。
+
+至於在世界各地其他發展項目（例如扶貧、教育工作），合作的形式和程序跟救災沒太大差別，但捐款會根據工作項目的時間長度，分階段撥出，捐款的一方會保留捐款總額的10%至15%，待項目完成、審計報告獲通過、代表人員到當地視察後，才會撥予推行發展工作的一方。另外，當捐款金額超過40萬元，樂施會須安排獨立審計。
+
+（註：根據香港 [樂施會網頁](https://web.archive.org/web/20211204114327/http://www.oxfam.org.hk/tc/haitiquake.aspx) ，在海地地震發生首兩星期，為約40萬人提供食水、在14個城市及偏遠地區提供公共廁所及其他衛生服務，以及為災民提供工作機會。地震發生一年後，樂施會提供3.6億公升加氯清潔食水；在113個收容中心提供清水、個人及公共衛生服務；為70萬人預防霍亂；為94,000人提供緊急帳篷；建造3,500間公共廁所；提供135公噸種子和7,000個耕種工具；為23,000個家庭提供現金援助；設立24小時無線電話熱線。地震發生兩年後，樂施會統籌挖掘大規模的排水溝系統；在城市及偏遠地區預防及治療霍亂；建造生態衛生廁所；支援逾250間小型企業重新開業；協助婦女識字和開設小生意；以及在難民營設立環境衛生委員會。）
+
+**問：既然樂施會設有監察制度，為何未能阻止性醜聞出現？**
+
+**答：過往樂施會的監察重點，主要集中在財務和項目實施的情況，冇為意性侵問題，亦沒有關注員工下班後的私德如何，「通常去到其他聯會的辦公室，會睇佢哋盤數，亦會睇建議書的內容是否有落實，例如用5蚊做這件事是否有做到、計劃要賣雞蛋係咪賣到雞蛋，但冇為意check下、one to one問女性員工覺得點、有冇發生咩事。」樂施會對這方面會更關注，例如要求聯會就工作項目提交建議書時，需為防止性侵設立機制及進行工作。**
+
+有關香港樂施會公眾捐款運用詳情，可瀏覽 [網頁](https://web.archive.org/web/20211204114327/http://www.oxfam.org.hk/tc/useofdonations.aspx) 。
+
+<figure>
+<img src="https://web.archive.org/web/20211204114327im_/https://hkcnews.com/news_新聞/hk-discuss/2018/02/樂施會-20180221001756_1403_large.jpg" alt="">
+<figcaption>樂施會推出「樂施之友」計劃多年，鼓勵支持者每月捐款，為機構帶來穩定持續收入。樂施會網頁圖片</figcaption>
+</figure>
+
+英國樂施會就性醜聞昨日公開2011年的 [調查報告](https://web.archive.org/web/20211204114327/https://d1tn3vj7xz9fdh.cloudfront.net/s3fs-public/haiti_investigation_report_2011.pdf) ，報告指，包括駐海地前總監范哈威梅倫（Roland van Hauwermeiren）在內，共有7人曾在海地召妓，其中2人在辦公室電腦下載成人影片和照片，亦有人性侵犯其他職員。有4人被樂施會開除，其餘3人，包括范哈威梅倫在內則自願離職。調查期間，有3人得悉正被調查，曾用暴力威嚇證人。
+
+英國樂施會已經向海地政府和民眾正式道歉，並商討補救措施，包括如何支援受影響的婦女。另外，英國政府宣布，樂施會同意暫時停止尋求政府撥款，直至政府相信組織能達到標準。國際樂施會宣布推出 [10項行動計劃](https://web.archive.org/web/20211204114327/http://www.oxfam.org.hk/tc/ourresponsetothesexscandalinoxfamgreatbri_5450.aspx) ，務求杜絕性罪行及其他不當行為，當中包括：
+
+－　成立獨立委員會，調查及檢視機構的問責、不當性行為及內部文化。委員可取得過往記錄，以及可訪問全球樂施會員工、夥伴及社區人士，並設立檔案庫，保存以往所有不當行為及濫權的記錄，並向外公布。
+
+－　即時建立包含全球樂施會人事推薦信息的資料庫，以停止任何已離職或在職的樂施會職員，使用偽造、不誠實或不可靠的人事推薦文件。在這個資料庫啟用前，樂施會將不會再發出任何人事推薦文件。
+
+－　就加強機構的保護機制運作，即時增加投放資金及人力。
+
+－　積極尋求與夥伴機構和盟友，特別是女權組織合作，就樂施會如何從這次事件中學習和改進徵求意見。
+
+－　重新檢查過往的事件，鼓勵證人及受害者挺身而出，與機構檢視有關事件是否已經被妥善處理。
+
+<figure>
+<img src="https://web.archive.org/web/20211204114327im_/https://hkcnews.com/news_新聞/hk-discuss/2018/02/樂施會-20180221001727_163f_large.jpg" alt="">
+<figcaption>香港樂施會舉辦最為人熟識的活動是毅行者，去年有逾5000人參加。樂施會網頁圖片</figcaption>
+</figure>
+
+除了樂施會，無國界醫生日前公布，去年收到40宗屬性騷擾或更嚴重的性罪行，經內部調查確認24項成立，其中2個個案，涉及工作人員侵犯病人或社區人士，目前有19人已被革除。無國界醫生（香港）表示，由公布當日（2月14日）至今，共接獲12宗停止捐款要求，被問到被革除者是否涉及香港人，無國界醫生（香港）指，為使受害者和舉報人能夠安全和安心作出舉報，無國界醫生以保密的方式處理事件，不會公開相關細節，希望社會明白。
+
+另外，有 [英國傳媒報道](https://web.archive.org/web/20211204114327/https://www.dailymail.co.uk/news/article-5404317/Charity-backed-Meghan-Markle-faces-food-sex-scandal.html) ，世界宣明會有職員到海地賑災時，要求災民提供性服務以換取糧食援助。世界宣明會發聲明指，涉及性剝削的人員不是宣明會的僱員，而是社區志願者和「以工換酬」的受惠者，並對感到失望的人表示歉意。宣明會表示，仍在統計停止捐款的人數，未能提供實質數字，上述的海地性侵事件不涉及香港人，過去幾年亦沒有員工捲入性醜聞或不道德事件。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204114327/https://hkcnews.com/aboutus/#subscribe)

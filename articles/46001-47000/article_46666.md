@@ -1,0 +1,43 @@
+---
+title: "林鄭崩右手肘骨穿衣寫字難　自言三年無休假趁傷休息　書架有習近平、李光耀著作"
+date: "2021-10-19"
+last_updated: "2021-10-19 19:34:22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "禮賓府"
+url: "https://web.archive.org/web/20211128183326/https://www.hkcnews.com/article/46666/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46669/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46666/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46669/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭崩右手肘骨穿衣寫字難　自言三年無休假趁傷休息　書架有習近平、李光耀著作
+
+**特首林鄭月娥在禮賓府跌倒骨折，入院一晚後今早出院，傍晚再在社交平台自拍「報平安」。她說照X光檢查後，發現右手手肘骨有部分「崩了」，已打石膏固定，現在最大的難題是穿衣和寫字。她提到自己接近三年沒有休假，可趁「手傷」休息一下。從自拍照可見，林鄭後面書架除了有兒子的照片，細看推測疑有《習近平談治國理政》、《鄧小平文選》、新加坡前總理李光耀撰寫的《One Man's View of the World》、馬來西亞首富郭鶴年自傳、《基本法》頒布三十周年法律論壇-追本溯源及中華人民共和國香港特別行政區維護國家安全法文獻滙編等等書籍。**
+
+<figure>
+<img src="https://web.archive.org/web/20211128183326im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/林鄭月娥-20211019185953_2f19_large.jpg" alt="">
+<figcaption>林鄭月娥Facebook圖片</figcaption>
+</figure>
+
+林鄭月娥解釋，昨晚在禮賓府宴請退休同事，晚宴開始前下樓，從梯級跌下來，初時以為是皮外傷，但右手愈來愈痛，送客後自行到瑪麗醫院求診。經檢查和照X光後，發現右手手肘骨有部分「崩了」，於是打石膏固定，相信要兩至三星期自然癒合。住院一晚期間，她接受腦部掃描，並檢查其他部位，今早已出院回禮賓府休息。
+
+她說收到大量問候訊息，感謝瑪麗醫院團隊悉心照顧，對各同事和朋友送上的關懷感到窩心，其中有好友留言說「小病是福」，認為正好給她「這個停不下來的特首」好好休息的機會。她自言已近三年沒有休假，今年《施政報告》前後更是忙得不可開交，就趁此「手傷」休息一下，充電後再帶領香港迎難而上。
+
+<figure>
+<img src="https://web.archive.org/web/20211128183326im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/林鄭月娥-20211019190005_4f3b_large.jpg" alt="">
+<figcaption>林鄭月娥今早由G4陪同下離開瑪麗醫院。</figcaption>
+</figure>
+
+林鄭月娥今早九時十分，由G4陪同下離開瑪麗醫院，她當時右手包紮。記者問她的傷勢如何、怎樣跌倒，她沒有停下來回應，只點頭示意，答了一句「多謝關心」就上車離開。政府新聞處凌晨出稿，證實林鄭月娥在禮賓府跌倒，自行前往醫院，經醫生檢查後證實右手手肘輕微骨折，暫時休假。原本今日舉行的行政會議休會，亦取消會議前的傳媒問答環節。林鄭月娥休假期間，由政務司司長李家超署理行政長官職務。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128183326/https://www.hkcnews.com/aboutus/#subscribe)

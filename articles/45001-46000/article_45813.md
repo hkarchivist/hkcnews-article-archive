@@ -1,0 +1,62 @@
+---
+title: "【閱讀中國筆記】新時代中國特色社會主義的新聞、文宣、政務工作要求　確保文字表述緊貼中央"
+date: "2021-09-26"
+last_updated: "2021-09-26 15:33:26"
+author: "尹瑞麟"
+category: "眾說"
+tags:
+  - "宣傳工作常用規範表述300例"
+  - "人民日報"
+url: "https://web.archive.org/web/20211026084649/https://hkcnews.com/article/45813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD300%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45838/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45813/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD300%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45838/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【閱讀中國筆記】新時代中國特色社會主義的新聞、文宣、政務工作要求　確保文字表述緊貼中央
+
+習近平在2012年被選為中共中央總書記後，在會見中外記者時，提出「打鐵還需自身硬」，對此，相信不少港人仍記憶猶新，但到2017年的十九大時，同樣的語句已改為「打鐵必須自身硬」，將「還需」變成「必須」，語氣因而更重、力度更強，相信是為了彰顯新時代的精神和要求，即黨全面加強領導、全面從嚴治黨的決心，但對於不少從事新聞、文宣、政務工作者而言，恐未為及時察覺。
+
+其他相關類似例子，包括2013年十六屆三中全會之前提出的國企改革，要建立「產權清晰、權責明確、政企分開、管理科學」的現代產權制度，已改為要建立「歸屬清晰、權責明確、保護嚴格、流動暢順」的現代產權制度。此外，「無產階級專政」也是歷史用法，新的正確用法是「人民民主專政」，「中央港澳工作協調小組」（中央港澳工作領導小組），以及「國務院扶貧開發領導小組辦公室」（國家鄉村振興局）等。（編註：上文括號內為歷史用法）
+
+隨著香港跟內地步向中國特色主義新時代，以及進入港區國安法時期，要表忠和「合格」的香港新聞、文宣和政務工作者，除了要在取態上要接近官方政治方向外，看來還需要在其文字引述和表述方面下功夫。
+
+<figure>
+<img src="https://web.archive.org/web/20211026084649im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/人民日報-宣傳工作常用規範表述300例-20210926140254_2b76_large.jpg" alt="">
+<figcaption>《宣傳工作常用規範表述300例》出版社：人民日報出版社、2021年8月（簡體字）作者：呂飛</figcaption>
+</figure>
+
+剛出版的《宣傳工作常用規範表述300例》（人民日報出版社、2021年8月、簡體字）一書，作者呂飛任職《人民日報》，他表示，該書是應《人民日報》之約編著。在書中，他強調規範表述必須做到嚴肅性、凖確性和靈活性。「嚴肅性是指宣傳表述要以習近平同志為核心的黨中央保持高度一致，與中央文件用法保持高度一致」，「準確性指表述要準確無誤」，「靈活性指宣傳表達要與時俱進」。
+
+該書中除了引用不少上述的「歷史用法」和「正確用法」事例外，還有很多是作者認為的「錯誤用法」和「正確用法」，以及「慎重用法」和「提倡用法」的事例，並分別作出說明。
+
+「錯誤用法」和「正確用法」較易理解，先從香港出發，例子包括：不少文章說「香港是英國殖民地」，作者認為此提法錯誤，原因是「在通常意義上的殖民地主要是因為外國統治、管轄而喪失了主權的國家。香港是中國領土的一部分，是作為一個主權國家的中國要對被佔領的領土恢復行使主權的問題」，故認為正確用法是，「英國對香港實行殖民統治」。
+
+其他方面的例子：「遵法學法守法」（尊法學法守法），「憲政」（依憲治國、依憲執政），「利為民所謀、情為民所繫、權為民所用」（權為民所用、情為民所繫、利為民所謀），「黨員可以在黨的會議上和報紙雜誌上，參加關於黨的問題的討論」（黨員可以在黨的會議上和黨報刊上，參加關於黨的問題的討論），「建立以內容建設為根本、先進技術為保障、創新管理為支撐的全媒體傳播體系」（建立以內容建設為根本、先進技術為支持、創新管理為保障的全媒體傳播體系）等。
+
+至於「慎重用法」和「提倡用法」方面，例子包括「炎黃子孫」（中華兒女），原因是中國是多民族國家，炎黃子孫多指漢族，其分別不言自明，但書中提到「鑒於『炎黃子孫』一詞今天在港台同胞和海外僑胞中有積極作用，今後這方面的個人署名文章、一般性談話以及對台宣傳中，仍可沿用」。
+
+還有的是「中美貿易戰」（中美經貿摩擦），「全球金融危機」（國際金融危機），原因「全球」是地理概念，「國際」才是政治經濟概念。
+
+可見，在新時代，要成為一個「政治堅定、業務精湛、讓黨和人民放心」的新聞、文宣、政務工作者，要下工夫之處，著實不少。
+
+<figure>
+<img src="https://web.archive.org/web/20211026084649im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/林鄭月娥-20210926143140_1d5b_large.jpg" alt="">
+<figcaption>紅字為眾新聞製圖加工。</figcaption>
+</figure>
+
+特首林鄭月娥日前在宣布港台將轉播全運會賽事期間（上圖），身後屏幕文字誤將中華人民共和國，寫成中「國」人民共和國，行政長官辦公室事後道歉，並表示會採取措施防止出現同類情況。誠然，慎防錯別字的出現，避免尷尬場面，故然重要，但如何在遣詞用字時，防止上面錯誤情況出現，更應慎重。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026084649/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 尹瑞麟](https://web.archive.org/web/20211026084649im_/https://hkcnews.com/uploads/avatars/10010966-22c0-4595-b239-9cabe9a882b0.png?2146256469)
+
+**博客 | 尹瑞麟**
+
+【尹瑞麟・双修集】港大社會科學士、日本上智大學碩士、曾駐東京長期供職國際政府組織、國際會計師事務所大中華區總監、前策略發展委員會委員。

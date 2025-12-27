@@ -1,0 +1,85 @@
+---
+title: "香港1967和2019社會動亂的異同之三：「境外勢力」與「暴力事件」"
+date: "2019-10-27"
+last_updated: "2019-10-30 13:12:20"
+author: "程翔"
+category: "眾說"
+tags:
+  - "六七暴動"
+  - "67 暴動"
+  - "六七"
+  - "逃犯條例"
+  - "反送中"
+url: "https://web.archive.org/web/20210925212957/https://www.hkcnews.com/article/24470/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1967%EF%BF%BD%EF%BF%BD%EF%BF%BD2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24470/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD1967%EF%BF%BD%EF%BF%BD%EF%BF%BD2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港1967和2019社會動亂的異同之三：「境外勢力」與「暴力事件」
+
+[香港1967和2019社會動亂的異同之一：性質與目的](https://web.archive.org/web/20210925212957/https://bit.ly/33YXSOn)   
+ [香港1967和2019社會動亂的異同之二：訴求與回應](https://web.archive.org/web/20210925212957/https://bit.ly/2WeQk7v)
+
+### 第六，兩次社會事件中的「境外勢力」
+
+在1967年的暴動中，最明顯的「境外勢力」就是中共（當年香港尚未回歸，所以理論上中共就是境外勢力）。當年中共雖然無意提前收回香港，但卻全面支持港共：   
+ - 政治上：政府屢屢發表聲明、鼓動宣傳、組織數以十萬、百萬計的群眾集會聲援港共；   
+ - 經濟上：支付罷工經費，北京通過全國總工會共撥款2400萬港元作為工人罷共經費；   
+ - 外交上：向英國發出最後通牒，終於導致火燒英國代辦處的嚴重外交事件；   
+ - 軍事上：通過解放軍在深圳製造槍擊事件以威嚇港英當局
+
+以上詳見絀作《香港六七暴動始末——解讀吳荻舟》第五、六兩章，茲不贅。
+
+<figure>
+<img src="https://web.archive.org/web/20210925212957im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/逃犯條例-反送中-67%20暴動-20191027184326_19d9_large.jpg" alt="">
+</figure>
+
+在今年反送中運動，中共口口聲聲說反林鄭的示威活動是顏色革命，是香港的分離主義分子在外國勢力鼓動下意圖搶奪香港管治權。他們信誓旦旦，卻迄今未能拿出確鑿的證據證明哪一個國家花費多少錢來策動大規模的示威活動。筆者曾經請教過內地研究顏色革命的專家吳非博士（他著有《顏色革命》——民主是一把雙面刃？）如何去證明外國人的滲透、參與及策動，他坦然承認在各國的顏色革命中，沒有確切的證據鏈，只能說是「事出有因，查無實據」。如果是這樣，那麼我們只能說所謂顏色革命的指控只是人云亦云而已。筆者誠心希望指控顏色革命的朋友能夠拿出非常具體確鑿的證據（就如我們可以拿出非常具體確鑿的證據證明中共策動了67暴動一樣），以呈現歷史的不同面向。
+
+吳非博士的著作是作為中俄合作的「重大攻關專案」，所以他的結論也許值得那些聲稱香港發生顏色革命的人士的反省。他說：「根據本書的研究，發生顏色革命的國家，基本上絶大部分都是基於內部原因，外部原因中的非政府組織、外交團體等因素並不具有決定性的作用」。中國人的智慧早就有之，所謂「物必先腐而後蟲生」也，所以，用顏色革命的說辭來歪曲這次反送中運動，只能是企圖掩蓋矛盾，自欺欺人而已。
+
+### 第七，兩次社會事件的運作模式和暴力因素
+
+兩次社會事件有完全不同的運作模式。在1967年暴動中，共產黨採取其傳統搞運動的模式，其特點是：   
+ - 有清晰的核心組織（在中央是「聯辦」，在地方是」鬥委會」）   
+ - 有明確的指揮系統（從中央到地方指揮體系十分清晰明確）   
+ - 有具體的行動計劃（地方制定具體的行動方案報中央批准）   
+ - 有層層的動員機制（各級黨組織、各行業黨組織都有動員）   
+ - 參與者很多都是「被動員」，是典型的「運動群眾」（即群眾被動員）   
+ 以上詳見絀作第四章（頁65-94）茲不贅。
+
+相比之下，在2019年反送中運動中，出現了互聯網時代新模式，其特點是：   
+ - 沒有清晰的組織，因為「沒有大台」   
+ - 沒有明確的指揮，只靠 telegraph 來商討行動   
+ - 沒有具體的計劃，所謂「兄弟爬山、各自努力」   
+ - 沒有層層的動員機制，都是無數個體集合而成一個運動   
+ - 參與者都是自覺的，這才是真正的「群眾運動」
+
+在1967年的左派暴動中，香港左派在內地文革時期鼓吹「紅色恐怖萬歲」的背景下，在香港採取幾近恐怖主義的抗爭手法，在長達八個多月內，造成51死（其中左派20多人）、832傷、1936人被檢控、使用了8074真假炸彈（其中1167枚是真的），制定了暗殺名單（其中也實際上執行行了暗殺活動，如林彬事件），策動了擬令「香港癱瘓、九龍大亂、陳兵邊境、打破邊界」（國務院外辦副主任劉寧一總結對港英鬥爭策略，見絀作第五章，頁102）。這是一種不折不扣的國家主導的暴力，目的在摧毀整個香港。
+
+在2019年的反送中運動中，雖然尚未有人在抗爭過程中死亡，但卻有最少9人以死相諫（選擇以自殺方式來抗議政府），也出現1235宗受傷（根據醫院管理局十月初的統計，但未包括到「地下診所」求醫的人數，後者無法統計）和2603人被捕（其中467人被檢控）。被捕人數僅次於1956年「雙十暴動」，卻超過1967年的左派暴動。
+
+兩次社會事件究竟哪一次更「暴」？在1967年的暴動中，示威者受「紅色恐怖萬歲」的思潮影響，目的是在奪取港英的管治權，不惜摧毀整個香港（見上引劉寧一的話），所以他們使用的暴力手段僅次於軍事行動（而在邊境則直接出現真正的軍事行動）。可以說他們的暴力程度遠比今天示威者要「暴」得多。另一方面，當年港英面對的，是一場「類戰爭」（near-war），所以警方的鎮壓手段，其暴力的程度也不遑多讓，因為對他們來說，這是不折不扣的「政權爭奪戰」。
+
+在今年的抗議活動中，由於示威活動的初衷是「撤回惡法」而不是搶奪政權，所以抗議活動一直是和平理性非暴力的，暴力的程度不高。元朗7.21事件和8.31太子事件是關鍵的轉折點。該兩次事件後，示威者的暴力程度明顯增加。但是，即使如此，筆者仍然覺得相對於警方的暴力程度比，示威者的暴力程度仍然是比較低的，這可從下表看出：
+
+<figure>
+<img src="https://web.archive.org/web/20210925212957im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/逃犯條例-67%20暴動-反送中-20191027184236_2da7_large.png" alt="">
+</figure>
+
+而且，必須指出，示威者從本來的和理非轉化為勇武，是林鄭政府迫出來的。當二百萬市民走上街頭所體現出來的巨大民憤，林鄭還想通過警察暴力來解決，這就驅使更多人走上勇武抗爭的行列。根據《明報》委託中文大學所做的民意調查顯示，迄今為止，民意尚未逆轉，市民尚未同勇武派割席，這本身就說明勇武派的暴力，仍然是在一般人可以接受的範圍之內，而相反警察的暴力卻是遠遠超過市民可以接受的程度。在此情況下，誰比誰暴不是一目瞭然嗎？所以，同1967年比，香港勇武派今天的暴力程度仍然遠低於昔日的左派。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925212957/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 程翔](https://web.archive.org/web/20210925212957im_/https://www.hkcnews.com/uploads/avatars/ca16b019-7305-4775-b054-5cbe15c2c28c.png?1976131125)
+
+**博客 | 程翔**
+
+【程翔專欄】資深傳媒人

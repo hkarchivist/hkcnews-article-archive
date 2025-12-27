@@ -1,0 +1,70 @@
+---
+title: "警政上位AO失勢　李家超任政務司　鄧炳強掌保安局"
+date: "2021-06-25"
+last_updated: "2021-06-28 13:35:15"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "李家超"
+  - "鄧炳強"
+url: "https://web.archive.org/web/20210924233156/https://www.hkcnews.com/article/42765/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42783/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDao%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42765/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42783/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDao%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警政上位AO失勢　李家超任政務司　鄧炳強掌保安局
+
+在特首林鄭月娥任期剩下一年，政府高層再次執位。中央周五公布免去政務司司長張建宗職務，任命保安局局長李家超接任政務司司長，警務處處長鄧炳強則任保安局局長，警隊「一哥」則由副處長（行動）蕭澤頤繼任，新任命即時新效，張建宗亦即時離任。
+
+<figure>
+<img src="https://web.archive.org/web/20210924233156im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/鄧炳強-20210625115046_2093_large.png" alt="">
+</figure>
+
+官場有傳林鄭一直有意撤換政務司司長，外界觀望由公務員事務局局長聶德權及政制及內地事務局局長曾國衞之爭，最終由李家超跑出。但連同鄧炳強擢升保安局局長，警政系統在政府高層明顯上位，日後若林鄭離港則由李家超署任特首，傳統政務官精英疑有失勢。
+
+李家超及鄧炳強在反修例示威均有關鍵角色，李家超主要負責推銷修訂《逃犯條例》，先後兩度提出修訂方案，但無法平息質疑，最終引發連串反修例示威。鄧炳強在2019年11月中上任，隨即接手處理警隊包圍理工大學，其後也調整警隊處理，以大規模截停搜查制止示威，口風也趨硬，包括曾經點名說美國在港有代理人。
+
+<figure>
+<img src="https://web.archive.org/web/20210924233156im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/林鄭月娥-李家超-20210625125623_2e72_large.jpg" alt="">
+<figcaption>官場有傳林鄭一直有意撤換政務司司長，外界觀望由公務員事務局局長聶德權及政制及內地事務局局長曾國衞之爭，最終由李家超（左二）跑出。林勵攝</figcaption>
+</figure>
+
+### 林鄭：３名新官員「呢一刻最佳人選」
+
+特首林鄭月娥形容，三名新官員都是「呢一刻最佳人選」，對他們能力毫無置疑，並強調撤換張建宗並無問責意味。她無具體回應人選是否她還是中央的意思，只說根據程序任免官員是特首提名。記者尾段，記者先後在座位高聲提問李家超處理逃犯條例卻升任，新聞官警告不要騷擾記者會進行，林鄭並無直接回應。
+
+張建宗期後見記者，但政府並無就張建宗離任發採訪通知，在政府總部西翼出口也移走所有政府「飛龍」背景。他說自己1972年加入政府，一做就50年，並非常感謝中央及各任特首信任和支持，特別感謝家人鼓勵及諒解，但無特別提及林鄭。張建宗補充，提及未來樂意有機會的話，通過不同渠道服務社會及貢獻國家。
+
+張建宗今早在官邸回應記者提問時特意否認身體不適，形容「做了政務司司長四年半，完全無放病假」，自己「相當精神」。
+
+<figure>
+<img src="https://web.archive.org/web/20210924233156im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/張建宗-20210625125525_9024_large.jpg" alt="">
+<figcaption>張建宗發言時感謝歷任特首，但並無特別點名感謝林鄭。</figcaption>
+</figure>
+
+### 張建宗未能留任至七一　「多謝大家關心」
+
+外界原先有傳張建宗可能留任至七一，記者追問他會否感到唏噓留不過七一，他說「多謝大家關心，大家一齊努力建設香港」。眾新聞記者遇上政制局局長曾國衞並詢問對政務司司長人選有否感到意外，他無評論。
+
+李家超是歷來首名警隊出身擔任政務司司長，他在1977年加入警隊，是紅褲子出身，曾任刑事偵查等多個部門，2010年升為警務處副處長（管理），2012年就任保安局副處長，2017年加入林鄭月娥班子擔任保安局局長。
+
+不過，李家超過去並無其他保安以外的政策經驗範疇，但政務司司長掌管9個政策局，包括協調跨部門工作，同時負責與立法會溝通工作，每周與立法會內務委員會正副主席會面。此外，政務司司長也擔任多個諮詢委員會主席，包括青年事務委員會、基本法推廣督導委員會等。
+
+### 李家超首名警隊出身任政務司司長
+
+政務司司長唐英年是少數並非公務員背景出身的第二把交椅，但過去歷任行政及立法兩會議員，其後加入當時前工商及科技局擔任局長，再擔任財政司司長，才升任政務司司長。
+
+李家超的警察背景及缺乏政策協調成為記者會焦點，林鄭說全面能力並不是最重要。她舉例過去商界出身的唐英年都曾經出任政務司司長，又稱公務員隊伍中四成是保安系統並由李家超統領，反問「點解認為佢無能力處理政策工作」？她不評論李家超與聶德權人選之爭，只說無謂猜度點解一人比令一人適合。
+
+李、鄧及蕭等發言先後感謝特首提名及中央任命，李家超說會全力支持特首施政，全面準確落實一國兩制，並表明會做好選舉及明年回歸25周年工作。
+
+美國組織香港民主委員會行政總監朱牧民表示，李家超及鄧炳強獲擢升，正式完成香港轉化成警察社會，也顯示警隊在國安法及保安局局長支持下正式「接管香港」。他形容，警隊接管街頭巷尾，禁止六四集會及七一遊行，「現在就會管治政府」。
+
+對於警隊在班子上位，工聯會議員麥美娟反問是警察政府又如何？她認為，香港面對社會安全問題，認為有警察背景可協助維持法律與秩序，不認為出現任何問題。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924233156/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,88 @@
+---
+title: "【迷你倉死因研訊】憶死者昏迷前不斷拉扯金屬間隔　消防隊長：佢做緊嘢但已經冇意識"
+date: "2021-11-02"
+last_updated: "2021-11-03 16:44:50"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "時昌迷你倉"
+  - "消防處"
+  - "死因庭"
+url: "https://web.archive.org/web/20220127074021/https://www.hkcnews.com/article/47178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47214/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47214/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【迷你倉死因研訊】憶死者昏迷前不斷拉扯金屬間隔　消防隊長：佢做緊嘢但已經冇意識
+
+【研訊第39天】
+
+2016年淘大工業村時昌迷你倉大火導致兩名消防員殉職，死因研訊今續。當日首先在火場發現死者許志傑昏迷的消防隊長溫志平供稱，當日他帶隊入場接更，其間發現許的隊長獨自一人，且地上有一個消防頭盔。當時溫感到不尋常，繼續前進後發現許及其兩名隊員在一個倉內，許志傑正在拉扯金屬間隔，對隊員的拍打沒有反應，「佢係做緊嘢嘅，拉緊嘢，但已經冇意識」，其兩名隊員遂先後撤退，許亦暈倒。溫與四名隊員合力將許抬出火場，他指過程非常吃力，「抬完佢，我十隻手指都瘀晒」。
+
+<figure>
+<img src="https://web.archive.org/web/20220127074021im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/時昌迷你倉-20211102174015_1425_large.jpg" alt="">
+<figcaption>時任消防隊長溫志平</figcaption>
+</figure>
+
+### 死者所屬隊伍隊長一人「接更」
+
+時昌迷你倉於2016年6月21日起火，死者許志傑於第三天、即6月23日入火場，其時已升為四級火警。時任消防隊長溫志平供稱，當日他作為青山灣升降台主管，帶領四名隊員入火場接替死者許志傑所屬的觀塘泵車隊伍，並爆破「接更」位置附近的數個儲物倉門。
+
+溫憶述，他與隊員沿1號主走廊推進時，先後在地上摸到兩支喉筆，去到3號橫巷時，遇到觀塘消防局泵車主管邱曉生。當時邱向他走來，但沒有說話，溫先高喊：「觀車泵車走！我哋接你更！」邱聞言喊「觀塘泵車走」後，便轉身離開。
+
+溫稱原本沒意識到邱單獨一人，直至十多秒後，他在2號主走廊地上看到一頂消防頭盔，且發現邱身後沒有任何隊員，才感到情況不尋常，「好奇怪做乜事得佢（邱）一個，同埋地下有頂帽」。
+
+<figure>
+<img src="https://web.archive.org/web/20220127074021im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/時昌迷你倉-20211102173944_da24_large.png" alt="">
+<figcaption>火場平面圖</figcaption>
+</figure>
+
+### 死者無意識拉扯金屬間隔  未幾伏倒牆上
+
+溫繼續沿2號主走廊前進後，發現走廊盡頭、5號橫巷的一個儲物倉內，有三名觀塘泵車隊員，當中包括死者許志傑；該倉沒有門，倉內光線昏暗。溫遂將拾獲的頭盔交給一名沒戴帽的觀塘泵車隊員後，該名隊員便往出口離開，未幾又折返呼叫餘下兩人撤退。其中一人聽到呼叫後拍打死者，但拍打了半分鐘，死者也沒有反應。
+
+溫憶述，當時死者一直在拉扯倉內的金屬間隔，但已失去意識，「佢（死者許志傑）係做緊嘢嘅，拉緊嘢，但已經冇意識」。該名觀塘泵車隊員見死者沒反應，遂先行撤退，未幾死者開始伏在「少少斜」的間隔金屬牆上。
+
+### 五人合力搬死者出火場
+
+溫遂趕到火場入口通知上司，指有同袍在火場暈倒，要求派員增援，同時用對講機通知入口指揮官有關情況，但沒按「mayday」掣啟動緊急救援程序。
+
+其後溫立即折返火場，並與四名隊員合力將死者搬出火場，過程約為7至8分鐘，其間至少有兩名隊員的呼吸器發出警號，代表其氣樽存量已降至60巴以下。
+
+### 裁判官及研訊主任質疑「交更」過程
+
+> 死因裁判官黃偉權直言，兩隊交更的方式非常奇怪，問：   
+ **「點解你哋好似係街到相遇打個招呼，我唔係好明，你嘅目的係接佢（邱）更㗎嘛？」**
+
+
+溫坦言「我哋嗰一刻冇交到更」，因上司的指示是找到觀塘泵隊伍後，在該隊的撤退位置附近爆破數個倉門。因此，他認為要看到觀塘泵車隊伍一行四人後，確認清楚該隊人數，並了解他們的工作進度，才算成功接更。
+
+研訊主任續問，為何沒有正式接更？溫起初沉默良好後，表示「嗰個時間我真係記唔到」，後又稱「我以為轉彎就會看到佢（邱）同事」，然後進行交更程序。
+
+被問到為何不叫邱交出爆破工具，溫自言當時以為邱身後有其他隊員，「我估佢後面同事會俾（工具）」。
+
+> 黃官聞言質疑： **「係咪消防處嘅訓練嚟㗎？『估』就得？」**
+
+
+邱解釋稱，一貫做法是隊員負責拿工具，故當時他認為邱身後的隊員會交出工具。
+
+主任續問為何不立即按掣啟動「mayday」，溫解釋稱，相信他與四名隊員有能力救援，加上死者非常接近火場出口，因此「喺嗰一刻我意識到我哋有足夠資源救到佢」；而且啟動「mayday」需要交代情況，預計約花半分鐘，拖延救援時間。他又透露，雖然事發時已入職逾十載，但從沒啟動或經歷過「mayday」。 **  
+**
+
+溫又憶述，他通知上司有人暈倒途中，死者的衞士個人監察系統「應該有」響起警報，當消防員靜止達30秒後，該警報便會響起。惟他折返火場時，已聽不到警報聲，估計因有隊員移動了死者。
+
+### 救援期間沒查看死者氣樽存量
+
+溫又指，他偕隊員搬死者出火場的過程中，他從沒查看死者的氣樽存量。若當時知道死者的氣樽存量為「零」，他可與死者共享自己的氧氣，惟他當時聽不到死者的氣樽或衛士系統發出警號。
+
+其後研訊主任播出有線新聞的現場片段，顯示多名消防員正將許搬出火場，其間一度將死者放在地下，然後再合力抬起。溫確認，片中人便是他與隊員，他憶述因死者很重，加上地面很多雜物，故他們需一度放下死者。兩分鐘後，他們將死者搬到樓梯口，為死者脫下裝備時，才有另一隊消防員到場支援。
+
+<figure>
+<img src="https://web.archive.org/web/20220127074021im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/時昌迷你倉-20211102184037_253d_large.jpg" alt="">
+<figcaption>青山灣消防員將許志傑搬出火場（有線新聞截圖）</figcaption>
+</figure>
+
+觀塘泵車主管邱曉生早前供稱，當日他偕死者及兩名下屬入火場，其間發現死者的氣樽存量低，未幾便遇到接更的青山灣升降台隊伍。惟他向溫交代工作進度後，轉身便不見三名隊員，他於是不斷用對講機大叫「觀塘泵車」，但不獲回應，最終只好獨自爬出火場求救。
+
+邱的隊員袁耀强則指，火場工作期間曾有人表示「好熱好辛苦」，各人有共識後便開始撤退，惟途中他因體力不支及知覺模糊，已不知其他人身在何方。袁表示從沒聽到有人「接更」，而他與隊員撤退前，並沒向邱查問清楚是否可離開，故邱可能沒有一同撤退。
+
+案件編號：CCDI333-334/16

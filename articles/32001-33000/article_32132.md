@@ -1,0 +1,41 @@
+---
+title: "英國宣布無限期停止與香港引渡協議"
+date: "2020-07-20"
+last_updated: "2020-07-21 00:11:07"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "移交逃犯"
+  - "藍韜文"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210916114307/https://www.hkcnews.com/article/32132/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32134/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32132/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32134/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 英國宣布無限期停止與香港引渡協議
+
+英國外相藍韜文宣布，因應香港實施國安法，將會即時及無限期停止與香港的引渡協議，並表示除非國安法有清楚保障，防止英國移交協議被濫用，否則不會恢復有關協議。
+
+藍韜文說，特別關注國安法第55至59條容許大陸直接實施管轄權，並無法律或司法保障，另外亦關注國安法域外管轄權條款。經諮詢內政部、司法大臣及律政司後，決定即時暫停與香港的移交逃犯協議。
+
+「英國在密切關注，全球也在看。」藍韜文在國會發言時說。
+
+
+{{< video src="https://web.archive.org/web/20210916114307if_/https://www.youtube.com/embed/x-2hLn8-RxU" >}}
+
+
+藍韜文同時宣布，將會將對中國大陸自1989年適用的武器或零部件禁運延伸至香港，及禁止可用作內部打壓武器或部件，例如截聽器材、煙霧彈等出口至香港。他又表示，關注香港9月選舉及可能的撤銷候選人資格，同時小心評估現時英國法官在終審法院的安排，考慮《中英聯合聲明》及《基本法》下司法獨立的保障。
+
+藍韜文強調，英國希望及繼續爭取與中國有正面關係，但同時會保障核心利益及價值，並要求中國履行對國際社會的責任。
+
+英國是繼澳洲、加拿大、美國後第四個國家宣布暫停與香港的移交逃犯協議。香港與20個國家簽署，其中美國和英國是主要的移交逃犯申請及接受地。
+
+多名國會議員要求加速針對制裁個人及官員，甚至有人針對制裁特首林鄭月娥及梁振英。藍韜文重申要準確比速度更加重要，否則會招致法律挑戰，甚至成為一個政治宣傳的機會。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916114307/https://www.hkcnews.com/aboutus/#subscribe)

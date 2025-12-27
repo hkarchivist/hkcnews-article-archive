@@ -1,0 +1,38 @@
+---
+title: "《不割席》紀錄片導演：國安法紅線飄忽　本地電影工作者將舉步維艱"
+date: "2021-06-11"
+last_updated: "2021-06-11 23:37:32"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "電檢處"
+  - "Anders Hammer"
+  - "不割席"
+url: "https://web.archive.org/web/20210925121445/https://www.hkcnews.com/article/42309/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-anders_hammer-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/42309/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-anders_hammer-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42310/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 《不割席》紀錄片導演：國安法紅線飄忽　本地電影工作者將舉步維艱
+
+政府因應《香港國安法》的實施，修訂《電影檢查條例》中對檢查員的指引，包括如電影涉及危害國家安全，檢查員應評為不宜上映。指引當中提到，檢查員須考慮一部影片如聲稱是紀錄片或重演與香港的情況有密切關係的真實事件，檢查員在考慮該影片的內容時須更加審慎。
+
+有關修訂將影響紀錄片或新聞工作者，曾以反送中示威作題材的紀錄片《Do Not Split》（不割席）入圍第93屆奧斯卡最佳紀錄短片最後五強的挪威導演Anders Hammer接受眾新聞訪問時表示，新修訂顯示香港的言論自由正逐漸消失，他認為國安法紅線飄忽，香港本地的電影工作者和記者將會在國安法下舉步維艱，即使以應有的基本人權去報道或表達意見，都會面臨牢獄之風險。他寄望，世界各地的人持續施壓予政府，不要漠視北京政府打壓香港人權的做法。
+
+<figure>
+<img src="https://web.archive.org/web/20210925121445im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/金像獎-Anders%20Hammer-20210213111547_e316_large.jpg" alt="">
+<figcaption>反送中紀錄片《Do Not Split》（不割席）挪威導演Anders Hammer。資料圖片</figcaption>
+</figure>
+
+《不割席》片長約35分鐘，穿插了不少2019年、2020年的反送中示威場面，以及示威者在現場的訪問。片段在影片網站Youtube和Vimeo免費播放，Vimeo的觀看次數達13.8萬次。Hammer表示，因《Do Not Split》在網上免費供大眾觀賞，沒有計劃將影片通過本港電檢處電檢。
+
+Hammer又認為條例的所有修訂都是違反人權，作為電影製作人有權享有言論自由，而不受政治審查。他提到，今個星期是反送中運動開始的兩周年，在這個時候看到北京侵犯港人的公民自由又一例證，對此感到難過。他又認為，2021年情況正不斷惡化，除了社運人士和民主派因國安法而被送進監獄，北京和港府亦繼續打壓香港人的基本民主權利。
+
+他又說，《電影檢查條例》的新修訂，令香港本土電影工作者難以有空間去創作藝術，甚至挑戰不公義的政權。而國安法非常嚴苛，而且界線模糊，他認為目的是為了製造恐懼、不確定性和自我審查，變相電影工作者也很難理解何處是紅線，他最後亦寄語電影工作者要小心為上。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925121445/https://www.hkcnews.com/aboutus/#subscribe)

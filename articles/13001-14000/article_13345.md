@@ -1,0 +1,66 @@
+---
+title: "平反：改寫歷史的逆流"
+date: "2018-07-06"
+last_updated: "2018-07-08 04:47:15"
+author: "香港六七暴動始末—解讀吳荻舟"
+category: "眾說"
+tags:
+  - "消失的檔案"
+  - "解讀吳荻舟"
+  - "香港六七暴動始末"
+url: "https://web.archive.org/web/20210927123329/https://www.hkcnews.com/article/13345/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13408/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13345/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13408/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 平反：改寫歷史的逆流
+
+**《香港67暴動始末—解讀吳荻舟》內容簡介之一**
+
+<figure>
+<img src="https://web.archive.org/web/20210927123329im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/香港六七暴動始末-解讀吳荻舟-程翔-20180706054518_1a7a_large.jpg" alt="">
+</figure>
+
+發生在半個世紀前的香港1967年左派暴動（以下簡稱「67暴動」），是中國大陸「文化大革命」（以下簡稱「文革」）的一個組成部分，是文革向香港延伸的結果。中共對文革的定性是一場由「領導者錯誤發動，被反動集團利用，給黨、國家和各族人民帶來嚴重災難的內亂」。 **［1］** 作為文革延伸物的67暴動，也同樣是一場給香港帶來嚴重災難的內亂。因此，67暴動也遭到中共的否定。 **［2］**
+
+對67暴動作出徹底的否定，既是中共最高層的認知，也是1997年之前香港主流社會的共識。但是在1997年之後，當年策動暴動的人，成為今天政壇上的主導者，他們就有強烈的動機要改寫令他們尷尬或者不光彩的歷史。2001年，特首董建華把特區最高榮譽「大紫荊勛章」頒給 [策動暴動的標誌性人物楊光先生](https://web.archive.org/web/20210927123329/https://bit.ly/2zp9VdF) ，卻把次一級的「金紫荊勛章」頒給反對暴動的標誌性人物 – 林彬 – 所服務的商業電台創辦人何佐芝先生。這裡帶出的政治訊息明確無誤：暴動者得最高榮譽，反暴動者得次一級榮譽。這就完全顛倒了香港社會原來的價值觀和是非觀。在特區政府帶頭下，香港社會就出現一股要求為67暴動平反的暗湧。這股暗流的主力當然是旗幟鮮明地要求為67暴動平反的傳統左派人士，也有很多非傳統左派人士，例如自由派學者、左翼社運工運人士、作家、編輯、導演等都不自覺地參與到這場為暴動平反、翻案以及漂白的行列中。
+
+這股逆流集中在三個方面：
+
+**一是改變暴動的定性：** 左派把一場意圖通過暴力手段搶奪港英統治權的鬥爭稱為「反帝、反殖、爭取人權」的愛國主義鬥爭；把以全體香港人的安危作為人質迫使港英投降的鬥爭稱為「前輩們的出發點是貧苦大眾的利益」（見工聯會榮譽會長 [陳婉嫻在《am730》](https://web.archive.org/web/20210927123329/https://www.am730.com.hk/column/新聞/暴動-126982) 的專欄）。
+
+**二是改寫歷史事實：** 左派居然膽敢否認暴動期間他們曾經幹過的血腥事件，例如左派立法會議員公開否認兩大血案——炸死清華街兩姐弟以及燒死林彬——是他們所為，反而誣告是港英插臓嫁禍。一些自由派學者也在「67暴動導遊團」中重複這些讕言。此外也有人修飾淡化一些不容否認的事件，例如警隊網頁修改沙頭角槍擊事件的敘述等。
+
+**三是以強權者的邏輯為暴動評功擺好，** 說什麼1967後香港之所以能取得長足之進乃是因為暴動促使港英洗心革面，厲行改革的結果。對不明歷史真相的人來說，這個說法有很大的迷惑性，但卻經不起推敲：如果這個邏輯——「暴動促使社會進步」——成立的話，那麼請左派每隔三五年就來一場暴動好了，這就能保證香港社會不斷進步。這種邏輯就像中共的邏輯一樣：沒有「六四事件」就沒有後來中國經濟的發展，同樣是荒謬的。很多自由派學者都是不慎跌進這種邏輯謬誤的泥塗中，不自覺地成為「為暴動評功擺好」的一份子。   
+   
+ 左派為「67暴動」平反的動作最近已經上升到中央層級。去年12月一個「香港資深愛國工會工作者訪京團」，在中聯辦社工部部長楊茂帶領下到訪港澳辦，由港澳辦副主任黃柳權接見，聽取他們提出平反「67暴動」的要求。對此，黃柳權表態：「67反英抗暴鬥爭是一場反帝反殖的愛國行動，是為捍衛國家和民族作出貢獻，是英勇的」。他承諾會向中央最高層寫報告請求作出正面的及公開的響應。如果真的寫報告，則平反「67暴動」也就進入議事日程了。   
+   
+ 正值歷史面臨被嚴重改寫扭曲的時刻，筆者出版了《香港67暴動始末—解讀吳荻舟》一書，希望讀者能夠通過對吳荻舟遺稿的分析，確認67暴動的本質是：香港左派以「反帝、反殖」為名，意圖通過暴力手段去搶奪港英統治權為實的鬥爭。在這個過程中，人們看到的是他們不惜以香港整體的繁榮穩定和人身安全為人質，去要挾港英投降，以遂奪權的目的。希望一切自覺或不自覺地捲入為67暴動平反的人士，能夠心平氣和地閲讀當年吳荻舟這些記載，認識暴動的本質。關於左派發動暴動的目的，筆者將在下一篇詳細解釋。   
+   
+ **（拙作《香港67暴動始末—解讀吳荻舟》的新書發佈會將於7月14日上午11點假香港總商會會議室舉行，地址為：金鐘統一中心22樓，歡迎讀者參加）**
+
+**註釋：**
+
+**［1］** 見中共中央 [《關於建國以來黨和國家若干歷史問題的決議》](https://web.archive.org/web/20210927123329/https://bit.ly/2NtjScN) ，1981年6月27日中共第十一屆中央委員會第六次全體會議上通過。   
+ **［2］** 港澳辦原黨組書記兼副主任李後的著作《回歸的歷程》，代表中共對67暴動做了一個總結：「群眾是英勇的，路線是錯誤的，損失是嚴重的」。
+
+[眾新聞【消失的檔案】專欄](https://web.archive.org/web/20210927123329/https://www.hkcnews.com/blogger/消失的檔案-114)
+
+[《消失的檔案》網站](https://web.archive.org/web/20210927123329/http://vanishedarchives.org/site/)
+
+[《消失的檔案》面書](https://web.archive.org/web/20210927123329/https://www.facebook.com/vanishedarchives/)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210927123329/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 香港六七暴動始末—解讀吳荻舟](https://web.archive.org/web/20210927123329im_/https://www.hkcnews.com/uploads/avatars/36892c70-d433-488e-8c94-aaffe3d1d930.png?1990814374)
+
+**博客 | 香港六七暴動始末—解讀吳荻舟**
+
+【程翔・香港六七暴動始末—解讀吳荻舟】吳荻舟1950~1962年是港共最高領導人之一，六七暴動期間吳受到周恩來總理領導和指示，他的工作筆記記錄了中央指揮「反英抗暴」歷程。資深傳媒人程翔以大量史料鋪墊，為吳荻舟遺文作深度注解，寫成《香港六七暴動始末　解讀吳荻舟》一書，由牛津出版社出版，是讀懂六七暴動不能掠過的重要著作。本欄文章是《解讀吳荻舟》的導讀。

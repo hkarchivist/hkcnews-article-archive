@@ -1,0 +1,56 @@
+---
+title: "The Whole World is Watching"
+date: "2019-06-09"
+last_updated: "2019-06-13 01:25:05"
+author: "安裕"
+category: "眾說"
+tags:
+  - "逃犯條例"
+  - "6月9日反送中大遊行"
+url: "https://web.archive.org/web/20220819080853/https://www.hkcnews.com/article/21113/6%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21126/the-whole-world-is-watching"
+original_url: "https://www.hkcnews.com/article/21113/6%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21126/the-whole-world-is-watching"
+---
+
+# The Whole World is Watching
+
+<figure>
+<img src="https://web.archive.org/web/20220819080853im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/逃犯條例-6月9日反送中大遊行-香港人-20190609022205_1f84_large.jpg" alt="">
+</figure>
+
+情勢發展到今天，反對《逃犯條例》修訂已經不單是政界或者法律界的事，是教師、學生、記者、主婦、教會、商界的事，是橫越整個我城的事，是社會對中央與特區政府香港政策強烈不滿的事。不過只是短短兩月之間，社會匯結一股沛然莫之能禦的波瀾壯濶洪流，香港再度來到歷史面前：六月九日星期天的遊行，是繼2003年七一遊行、2014年雨傘運動之後，全球注目的又一次香港民眾自力救濟。
+
+《逃犯條例》修訂引發的社會跨階層強烈反應，不是官員們口口聲聲「誤解」和「不理解」就能夠解釋過去。近些日子以來，恐怕不少人大惑不解的是，今天的特首也好，律政司長也好，甚至保安局長也好，通通都是一九九七年前已經進入政府或者那時已在社會工作多年的一代。除非刻意掩耳閉目，否則的話，不可能不知道，上世紀八十年代初香港前途問題浮現到今天不過幾個鐘頭後的反修例遊行，當中長達三十多年香港社會的最大憂慮是什麼。這等憂慮，絕非恐懼所謂港式生活「馬照跑，舞照跳」的消亡，也不是對資本主義能否永遠落地生根的擔心，而是香港的法治能否繼續在這個海港城巿永續。
+
+<figure>
+<img src="https://web.archive.org/web/20220819080853im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/08/法院-終審法院-女神-20180803135300_1207_large.png" alt="">
+<figcaption>終審法院大樓正面門廊頂端佇立了正義女神泰美斯（Themis）的雕像。她是香港法治的象徵。</figcaption>
+</figure>
+
+面對歷史的質問，倘若答案是「不知道」，這些官員可以從此休矣：對回歸前世今生認識付之厥如，且還繼續天天上班月月發薪，這是香港官僚制度的破敗沉淪。若是答說「知道」，卻又堅持與四十年來香港社會最大憂慮正面衝突，朝着港人的「最怕」狠戳一刀，把已經所餘不多的信心打翻在地再踏一腳。若然這樣，這就是與社會認知為敵，決心要做歷史罪人。從修例一事看來，特區政府這次是冒天下大不韙走一趟狹路，令本來就皮之不存的「一國兩制」毛將附焉。
+
+#### 提出修例至今，特區政府不但把due process棄於一隅，更以粗暴的行止，惡劣的態度，無禮的修辭，以最難看的手段推動修例。睽諸歷史，2003年的《基本法》23條立法亦瞠乎其後，至少當年還有時間爭論過一陣子藍紙白紙草案，時任保安局長葉劉淑儀跑過大學推銷方案。事隔16年，今次修例類似過程一概全免，要來就來，要過就過。也許，這是恃着建制派控制議會，於是「聽取民意」這場戲省卻，走過場裝腔作勢也免了。人們看清楚特區官員的傲慢，「五十年不變」只過了一半不到，卻是如此吃相難看，社會怒氣火山爆發自是必然。
+
+鋪天蓋地的網上連署，瞬即成為組織上街的主要力量。從小學校友會到中學舊生與在校同學，大學生到大學校友都出來；政治上一向趨於保守的宗教界，主流宗派出現在平素罕見露面的抗議洪流；商戶周日休假一天為了上街，家庭主婦自發抗議爭取。法律界中環遊行，大律師公會前主席黃福鑫說，政府「給出的理由全部不合邏輯」，政府推行修例最無理在於「完全對香港無利益之下，將防火牆毫無條件地撤回」，「我們盡說理據，他們完全說不出論點令市民或我們信服。所以，我們為何不出來出呢？」到了星期六晚上，司法機構證實有法官參與聯署。到這一時刻，以反修例大軍的廣袤社會光譜及堅決反應，《逃犯條例》修訂在這一天其實已被社會DQ，只是特區政府堅不撤回，以長官意志硬撼如潮民意。
+
+<figure>
+<img src="https://web.archive.org/web/20220819080853im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/李瀚良-法官大人-聯署-20190608222304_2dd1_large.jpg" alt="">
+<figcaption>李瀚良法官聲稱是以個人身分參加大學校友的聯署。</figcaption>
+</figure>
+
+九七回歸以來，大型社會運動與民眾集會從未間斷。這當中，在民智已開多年、社會醒覺久矣的今天，在資訊不對等及權力不對稱之下，特區政府以「朕即天下」思維強推惡政，社會反彈只會越來越多，也會越來越激烈。專研社會運動的美國學者米勒（James Miller）著有《民主就在街上：從休倫港宣言到芝加哥圍城／ [Democracy is in the Streets: From Port Huron to the Siege of Chicago](https://web.archive.org/web/20220819080853/https://www.amazon.com/Democracy-Streets-Chicago-Preface-Author/dp/0674197259) 》，雖被視為六十年代美國學運新左派中人，但他一針見血指出，社會運動是一種價值的體現。該書於1987年出版，成書32年後再讀，於某些讀者來說，半世紀前的學運如今未免老氣橫秋一些，但是學運對於基本價值的追求，猶如五十年前在沉沉黑夜點起一盞明燈，從此照亮踽踽獨行的弱勢社群的真理顛撲不破。本書書名《民主就在街上》，一言道出抗爭運動的核心，半世紀依然歷久常新，放諸四海皆準。
+
+<figure>
+<img src="https://web.archive.org/web/20220819080853im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/The%20Whole%20World%20Is%20Watching-Democracy%20Is%20in%20the%20Streets-20190609020035_23fc_large.png" alt="">
+</figure>
+
+《逃犯條例》修訂在兩個月來迅速發酵，特區官員的說法完全經不起考驗。修訂與反修訂的相搏，已然成為我城良心之戰，是歪理與真理的比拼，是捍衛香港孕育百年核心價值的重要一天。香港不能失去法治，香港不能失去追求真相和正直的心，香港不能失去言論自由和新聞自由；沒有這些，香港就不再是香港。今天，要讓巿民看到我們對生於斯長於斯這個城巿的承諾，讓全世界看到這個1106平方公里海港城巿的亮麗和決心。
+
+#### 《 [The Whole World Is Watching](https://web.archive.org/web/20220819080853/https://www.ucpress.edu/book/9780520239326/the-whole-world-is-watching) 》是哥倫比亞大學教授Todd Gitlin的1980年著作，說的是美國六十年代學運與傳媒的互動。儘管當年美國與如今香港時空差異，然而書名蘊含大時代激盪人心的悸動則是如一。既是如此貼近香港氣息，冒眛借來告訴世界，請全球見證香港民眾義無反顧保衛胼手胝足建成的一切，不容在浮生亂世毀於一旦。
+
+---
+
+![博客 | 安裕](https://web.archive.org/web/20220819080853im_/https://www.hkcnews.com/uploads/avatars/ffc64c14-4022-4fbd-bcfd-ddcc9fcf77dd.png?34067055)
+
+**博客 | 安裕**
+
+【安裕・談天】天下之間事，點與線交織。世事往往有著一條看不到的線聯繫起來，或古或今，或中或西，巨量資訊的世界帶來對人情世故的另一種閱讀。

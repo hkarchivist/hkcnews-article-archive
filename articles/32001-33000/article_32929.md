@@ -1,0 +1,72 @@
+---
+title: "【宗教恐懼】曾發表福音宣言遭《大公》《文滙》指控顛覆政權　教牧王少勇及楊建強已離港"
+date: "2020-08-15"
+last_updated: "2020-08-15 12:34:30"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "宗教自由"
+  - "王少勇"
+  - "楊建強"
+url: "https://web.archive.org/web/20220820061531/https://hkcnews.com/article/32929/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32932/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/32929/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32932/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【宗教恐懼】曾發表福音宣言遭《大公》《文滙》指控顛覆政權　教牧王少勇及楊建強已離港
+
+擺脫教會的保守和離地，憑著「Sing Hallelujah to the Lord」的歌聲，走入波瀾壯闊的反修例運動，化解衝突、守護年輕人，因為他們相信「有羊在，牧人也在」。不過，兩名「牧人」王少勇及楊建強，已經離職並離開香港。
+
+一班教牧今年5月成立香港教牧網絡，發表 [《香港2020福音宣言》](https://web.archive.org/web/20220820061531/https://christiantimes.org.hk/Common/Reader/News/ShowNews.jsp?Nid=162204&Pid=102&Version=0&Cid=2141&Charset=big5_hkscs) ，提及要勇敢地指出政權不是、展現對生命的關愛、冀與香港人同行。港區國安法通過後，《大公報》及《文匯報》撰文指控宣言充斥分裂國家、顛覆政權意圖，涉嫌違反國安法，並點名批評楊建強、王少勇、邢福增、袁天佑等多名教牧。
+
+香港教牧網絡前身為香港基督教教牧聯署籌委會，過去一年反修例運動，多個教牧聯署和祈禱會，王少勇及楊建強均為發言人。
+
+<figure>
+<img src="https://web.archive.org/web/20220820061531im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/楊建強-王少勇-港版國安法-20200815113238_2c82_large.jpg" alt="">
+<figcaption>王少勇（左）及楊建強於六月底接受《時代論壇》訪問，回顧反修例運動期間教牧聯署籌委會的角色。《時代論壇》圖片，劉貳龍攝</figcaption>
+</figure>
+
+據基督教刊物《 [時代論壇](https://web.archive.org/web/20220820061531/https://christiantimes.org.hk/Common/Reader/News/ShowNews.jsp?Nid=163041&Pid=102&Version=0&Cid=2141&Charset=big5_hkscs&fbclid=IwAR2sjBl_BuIKyqbJnHgvg7Vhh34UKqwGFBw1DgflFiDIiT3yPEEem6cCOoU) 》報道，香港教牧網絡兩位成員王少勇牧師及楊建強牧師，現已離開香港，二人所屬教會的網站，已在同工名單除名。教牧網絡前成員陳恩明牧師透露，數周前得知消息，對二人離港感到非常沉重和難過，但鼓勵同工不要自亂陣腳，繼續堅持做善良的人。他說會坦然面對一切，「如果應講的都不講就很悲哀」。
+
+對於二人離港原因，陳恩明估計，可能是他們家人有所顧慮，又或「被點名」後的考慮，「可能覺得這樣的環境，自己被攻擊下，擔心牽連其他人，特別是自己服侍的群體」。
+
+香港教牧網絡在5月底，20位教牧實名公開發表《 [香港2020福音宣言](https://web.archive.org/web/20220820061531/https://christiantimes.org.hk/Common/Reader/News/ShowNews.jsp?Nid=162204&Pid=102&Version=0&Cid=2141&Charset=big5_hkscs) 》，頭二人正是王少勇及楊建強。宣言指出，福音關乎戰勝罪惡不義的黑暗權勢，從而改變世界的一切，也要展現對生命的關愛、醫治與守護，牽涉人類生命的政治解放與社會關懷，更要具體和行動。宣言亦指出，面對扭曲真相、操控媒體、埋沒真理的極權政治，教會拒絕一切的謊言，要勇敢地指出政權的不是。
+
+《 [大公報](https://web.archive.org/web/20220820061531/http://www.takungpao.com.hk/news/232109/2020/0707/471579.html) 》及《 [文匯報](https://web.archive.org/web/20220820061531/http://news.wenweipo.com/2020/07/07/IN2007070007.htm) 》在港區國安法實施後，7月7日報道指，「亂港分子轉入地下運作，包括向信仰群體滲透、洗腦，意圖策動分裂國家」，批評宣言的宣傳短片以二戰時的《巴門宣言》為撰寫背景，涉有意圖顛覆政權，片中兩次出現「光復」旗幟，塑造「英雄」式革命氣氛，煽動顛覆政權。報道又點名基督教協進會前主席袁天佑、現任中文大學神學院院長邢福增及多名「黃絲」傳道人。
+
+香港教牧網絡在Facebook回應指，香港教牧網絡由一群關心社會，盼望以福音真理及禱告回應時代需要的牧者及神學人發起，目前並未有解散。隨著時局急劇變化，確實有個別核心成員選擇以不同方式參與，淡出或退出教牧網絡工作。但工作人員經重組後，將繼續宣揚福音真理，以禱告守望這城。
+
+<figure>
+<img src="https://web.archive.org/web/20220820061531im_/https://hkcnews.com/news_新聞/hk-discuss/2019/06/基督教-楊建強-反送中-20190629021405_1cca_large.jpg" alt="">
+<figcaption>楊建強牧師（台上持咪者）是去年連日在政府總部外舉辦露天祈禱會的其中一人。資料圖片</figcaption>
+</figure>
+
+### 心繫青年的楊建強
+
+楊建強是一位個子不太高的牧師，去年每當談到香港社會將失去年輕人，他總會哽咽起來。
+
+他說過，基督教強調的「政教分離」是指政治與宗教不在制度上結合，卻不代表教會不理世事，教會仍然要關心社會，因為民生牽涉政治，慈惠工作與政策有關，教友也會受政治影響。
+
+他說，雨傘運動後香港失去一代人，許多本來有理想、願景、積極、有動力的80後、90後變得失望沮喪，從此對社會事情不聞不問，不再信任政府，又或去建立香港。
+
+他擔心這一代年輕人會像傘運一樣，失去盼望。如果政府失去兩代有願景的青年，未來將會如何？豈料今次比傘運更差，警員變得更狠心、更憎恨示威者，而林鄭卻讓青年被打……他一邊說，一邊哽咽。
+
+相關報道： [牧師盼修例風波令教會不再脫節保守　貼地留住青年](https://web.archive.org/web/20220820061531/https://bit.ly/2JigfFc)
+
+<figure>
+<img src="https://web.archive.org/web/20220820061531im_/https://hkcnews.com/news_新聞/hk-discuss/2020/06/王少勇-牧師-20200611225959_4ad5_large.jpg" alt="">
+<figcaption>王少勇今年6月接受眾新聞訪問，當時他還抱有希望地說，未來要有盼望。鄭靖而攝</figcaption>
+</figure>
+
+### 無人估到的王少勇
+
+「正如柏林圍牆倒下的前一日，都無人會估到。」今年6月反修例運動快將一年、港區國安法蠢蠢欲動時，王少勇接受眾新聞訪問，當時他還抱有希望地說，未來要有盼望，但今天他已經不在香港了。
+
+當日他受訪時透露，在運動期間開放給示威者休息的教會，會被一些形容為「邪教」，左報便曾點名抨擊循道衞理聯合教會香港堂。多間教會亦被疑似國安上門裝作參加崇拜，實則四處拍照，收集情報；更有牧師接到死亡恐嚇、有人被跟縱，受到各種滋擾。
+
+對於國安法來襲，他說中共著重意識形態，認定教會背後有外國勢力，有感宗教團體一定會成為針對對象，甚至預料中共會重施50年代對付內地教會的手法，對教會進行統戰、收編，最終希望消滅宗教。
+
+但甚麼是宗教？去年6月12日金鐘流血衝突後的晚上，近1000人擠進循道衞理聯合教會香港堂祈禱會，牧師、群眾都在哭，門口設急救站、地牢變休息站，基督徒、非基督徒都進來，有人情緒支援、有人祈禱、唱詩的聲音隱約傳到地牢。
+
+「聖經講耶和華嘅避難所，呢個就係避難所。」
+
+相關報道： [難忘Sing Hallelujah to the Lord　牧師王少勇：曾令兩邊都放下](https://web.archive.org/web/20220820061531/https://bit.ly/2MN6PUz)

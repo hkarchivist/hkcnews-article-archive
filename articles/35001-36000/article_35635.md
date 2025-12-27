@@ -1,0 +1,53 @@
+---
+title: "警方拘捕男子涉眾籌為由洗黑錢　消息指是前教師楊博文"
+date: "2020-11-16"
+last_updated: "2020-11-16 19:49:54"
+author: "記者黎卓欣"
+category: "眾聞"
+tags:
+  - "洗黑錢"
+  - "楊博文"
+url: "https://web.archive.org/web/20210921230157/https://hkcnews.com/article/35635/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35635/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35638/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警方拘捕男子涉眾籌為由洗黑錢　消息指是前教師楊博文
+
+**警方昨日（15日）拘捕一名30歲男子，涉嫌以網上眾籌為理由進行洗黑錢，目前正被扣查。據了解，被捕男子為在反修例示威中被控擊警判刑的前小學教師楊博文。**
+
+警方毒品調查科財富調查組總督察鄧凱彤今日表示，被捕男子在九月上旬在網上社交平台聲稱，自己因一宗襲警案被定罪而失去工作，故向公眾提供銀行戶口，籌集50萬以支持家人的生活及醫療支出。 警方調查後發現，該男子的銀行戶口於9月8日至10月24日期間，共收取約587萬元。鄧凱彤說，該金額與眾籌金額大不相符，懷疑有人利用市民同情心，「以自己經濟出現困難做幌子」，訛稱有經濟困難以騙取金錢，掩飾非法資金來源。
+
+<figure>
+<img src="https://web.archive.org/web/20210921230157im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/楊博文-洗黑錢-20201116165459_9649_large.png" alt="">
+<figcaption>警方毒品調查科財富調查組總督察鄧凱彤。（網上直播截圖）</figcaption>
+</figure>
+
+警方在行動中檢獲電話、銀行卡及銀行文件，並凍結戶口大概507萬資金。警方將繼續調查資金來源及去向，以及被捕男子是否涉及其他刑事罪行，包括欺詐罪。
+
+鄧凱彤提到，被捕男子與家人名下共有兩個住宅物業，估值超過1300萬，其中一個物業屬非自住用途。被問到是否涉及小學男教師楊博文涉襲警案，鄧凱彤指，案件已進入司法程序故不作評論，亦未有透露被捕人士姓氏。
+
+### 眾籌一日即達標 曾撰文指：欲加之罪，何患無辭？
+
+楊博文因去年11月11日響應「黎明行動」，於上水慢駛私家車被截查時，被指以膝撞一名警長腹部，判襲警罪成，判監九星期，現保釋候上訴。他曾於9月8日在社交網站發文，指自己為家中唯一的收入來源，遭學校即時解僱後，家中財政狀況緊拙，希望眾籌 50 萬元，以應付長期病患父母的醫療開支及生活費。
+
+翌日（9日），楊博文在社交網站再度發文稱，眾籌50萬的金額經已達標，故停止接收善款：「9月9日凌晨我在個人社交媒體發布有關眾籌的貼文，引起巨大的迴響，是我始料不及的。感謝大家都抱大不平，並願助我一臂之力渡過難關。由於現時數額已達標，本人認為必須即時停止接受各路友好的善款。」
+
+他在文末又提到：「我想強調：清者自清、我心坦蕩蕩，一片向明月。欲加之罪，何患無辭？」
+
+<figure>
+<img src="https://web.archive.org/web/20210921230157im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/洗黑錢-楊博文-20201116181316_10c8_large.jpg" alt="">
+<figcaption>楊博文曾於9月8日在社交網站發文，希望眾籌50萬。（社交網站截圖）</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210921230157im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/楊博文-洗黑錢-20201116181323_1ba1_large.jpg" alt="">
+<figcaption>楊博文曾撰文稱：清者自清、我心坦蕩蕩，一片向明月。欲加之罪，何患無辭？（社交網站截圖）</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921230157/https://hkcnews.com/aboutus/#subscribe)

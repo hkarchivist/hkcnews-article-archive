@@ -1,0 +1,33 @@
+---
+title: "王沛詩接替李國章任港大校委會主席　王沛詩89年曾帶支聯會捐款到北京給學生"
+date: "2021-12-17"
+last_updated: "2021-12-17 12:28:46"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "港大校委會"
+  - "支聯會"
+  - "王沛詩"
+url: "https://web.archive.org/web/20220925210402/https://hkcnews.com/article/49206/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD89%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49206/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD89%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 王沛詩接替李國章任港大校委會主席　王沛詩89年曾帶支聯會捐款到北京給學生
+
+監警會主席王沛詩獲委任為港大校務委員會主席，接替月底卸任的校委會主席李國章，任期三年，明年1月1日起生效；特首林鄭同時委任前刑事檢控專員江樂士及弘毅投資總裁趙令歡為新校委，同時續任現任校委石禮謙及趙子翹，各人新任期三年。
+
+<figure>
+<img src="https://web.archive.org/web/20220925210402im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/王沛詩-最低工資委員會-20211202134306_2f26_large.jpg" alt="">
+<figcaption>王沛詩獲委任為港大校委會主席，一月一日起生效。資料圖片</figcaption>
+</figure>
+
+政府刊憲，特首林鄭月娥委任監警會主席王沛詩為港大校務委員會主席，接替月底卸任的校委會主席李國章，任期三年，明年1月1日起生效；林鄭同時委任前刑事檢控專員江樂士及弘毅投資總裁趙令歡為新校委，同時續任現任校委石禮謙及趙子翹，各人新任期三年。
+
+<figure>
+<img src="https://web.archive.org/web/20220925210402im_/https://hkcnews.com/news_新聞/hk-discuss/2020/07/國安法-律師會-江樂士-20200715163016_e4f1_large.jpg" alt="">
+<figcaption>前刑事檢控專員江樂士獲委任為港大新校委。資料圖片</figcaption>
+</figure>
+
+本身是大律師的王沛詩現任或曾任多個公職，包括最低工資委員會主席（任期至2023年2月底）、去年3月獲委任港大校務委員，也曾任平機會委員、醫管局成員、僱員補償援助基金管理局主席。根據聯交所資料，王沛詩曾任近日出現債務違約的大陸房企花樣年控股集團的獨立非執行董事，但在今年10月11日起辭任。
+
+王沛詩丈夫為建制派班長廖長江。根據民主黨前主席何俊仁在《謙卑的奮鬥》一書所述，在1989年5月支聯會多次遊行及民主歌聲獻中華後，大律師馮華健及多名大律師主動提出願意將捐款帶到北京給學生，支聯會當時將10萬元交給馮華健，當時一行到北京的還包括王沛詩與廖長江，三人事後平安返港。廖目前參選商界（二）界別，同樣參選的候選人包括葉永成。

@@ -1,0 +1,60 @@
+---
+title: "【偷外賣袋變襲警】foodpanda外賣員擔心被砌生豬肉故自殘求入院　終被控頭撼警長"
+date: "2021-11-01"
+last_updated: "2021-11-01 18:41:44"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "襲警"
+url: "https://web.archive.org/web/20220703172421/https://www.hkcnews.com/article/47102/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDfoodpanda%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47102/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47121/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDfoodpanda%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【偷外賣袋變襲警】foodpanda外賣員擔心被砌生豬肉故自殘求入院　終被控頭撼警長
+
+foodpanda男外賣員今年初遇警方截查，被搜出一張寫上「光復香港 時代革命」的貼紙後，遭一名警長質問他「你知唔知有條國安法」，繼而懷疑他偷竊外賣袋拘捕他，他被帶返警署後被指用頭襲警長，最終被控襲警罪，案件今（ 10 日）開審。警長和被告各執一詞，警長供稱押解被告到調查室時，被告用頭撼玻璃屏障三下，他阻止時遭被告用頭撼其額一下，於是呼叫「襲警呀」；被告自辯時則稱因被屈偷外賣袋，擔心被「砌生豬肉」，為求自保想入醫院，故撼頭自殘，警長見狀說「你咁鐘意自殘啊，開條襲警你嘆下」，制服他後高呼「襲警」。   
+   
+ 被告趙康勝（21 歲）否認於2021年 1 月 2 日，在天水圍天耀路 11 號天水圍警署報案室的搜查房外，襲擊警長58726唐家裕。
+
+<figure>
+<img src="https://web.archive.org/web/20220703172421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/foodpanda外賣員-20211101161648_2ed3_large.jpg" alt="">
+<figcaption>警長唐家裕</figcaption>
+</figure>
+
+唐加入警隊23年、前年擢升為警長，他供稱當晚押送被告往報案室內調查室時，被告突然停步，並將頭部快速撼向玻璃屏障三下。唐將被告拉向自己作出制止，二人相距不足10厘米、對望僅一秒後，被告便講粗口，並用其額正面撞向唐的前額一下，他們雙雙倒地。唐隨即高呼：「襲警呀？你做咩撞我個頭呀？」被告沒回應。一直緊隨在後的警員20713立即上前，協助控制被告已扣上手銬的雙手，並以襲警罪拘捕他。唐之後到醫院急症室求醫，他頭部受傷、右眼眉內側腫脹及觸痛，腦部沒有內出血。
+
+<figure>
+<img src="https://web.archive.org/web/20220703172421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/foodpanda外賣員-20211101174121_592b_large.jpg" alt="">
+<figcaption>Foodpanda外賣員趙康勝年初被警截查，涉嫌偷外賣袋被捕 （網片截圖）</figcaption>
+</figure>
+
+辯方盤問唐時道出辯方的版本，指實情是被告被捕後多次向唐及值日官表示身體不適，要求見醫生；被告撼玻璃後，唐已立即將他按伏在地，故唐沒被撞跌倒地，被告亦不曾說粗口；而唐制服被告時曾揚言：「你咁鐘意自殘啊，就開條襲警你嘆下！」唐一概不同意。
+
+辯方質疑，若被告大力撼向唐前額，倒地時應壓在唐身上。唐反駁指辯方僅是推論，強調「我哋雙雙打側倒地跌」。惟唐說不記得制服被告時的姿勢，亦不記得警員20713 協助制服時的位置。此外，唐指被告頭撞7米高的落地玻璃屏障，但警員20713後來作供則指，玻璃屏障跟自己差不多高，他自稱身高1.78米。
+
+### 警長：疑被告涉毒向老細交待被查「冇咗批貨」
+
+辯方指，唐冤枉被告襲警，是基於被告被截查時表現不合作、沒禮貌，唐稱「絕對唔同意」。當晚唐在嘉湖銀座處理一宗販運毒品案時首次接觸被告，因看見被告拿出手機狀似拍攝，嘴部似在講電話，懷疑他與販毒案有關，故上前截查。
+
+辯方問據唐的經驗，販毒案共犯會否站著「唔走等你拉」？唐答：「真係有㗎喎！」他當時懷疑被告「同幕後老細交代緊畀人截查，批貨冇咗」。有旁聽人士聞言訕笑，唐即時投訴有人發出笑聲，表示「咁樣影響到我作供啊」。裁判官施祖堯向在場人士作出警告，指若再聽見笑聲，將不容許該些人士繼續旁聽，又呼籲「大家自律啦」。
+
+<figure>
+<img src="https://web.archive.org/web/20220703172421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/foodpanda外賣員-阻差辦公-20211018171120_8d01_large.jpg" alt="">
+<figcaption>被告趙康勝  （ 資料圖片 )</figcaption>
+</figure>
+
+### 警長認片段拍不到查毒品　被告亦沒被控偷袋
+
+辯方播放被告遭截查時的片段，唐質疑身分證不屬於被告，稱「唔係好似樣喎」，又質問被告：「你知唔知有條國安法㗎，你銀包寫住咩字？」被告拒絕讀出並謂：「你咪charge我囉。」被告被查問下曾表示是foodpanda外賣員，唐回應：「好彩你講咋，唔係我以為你個袋係偷返嚟㗎！」他要求被告證明外賣袋屬於他，被告拒絕。唐宣佈拘捕後，被告曾兩次大喊：「我唔舒服呀！要睇醫生，我要去醫院！」期間唐警告：「你唔好整到我呀，整到我開多你一條襲警呀！」
+
+唐同意片段中他沒向被告調查毒品案，他指被告雖能說出袋中的財物，但因未能講出袋中貼有貼紙，加拒絕回答問題，「你都聽到佢都不斷話『拉啦』同講粗口，我連上手銬都有講唔該」，遂以盗竊罪拘捕被告。他其後得知被告未有被起訴偷袋。
+
+### 被告：有意圖襲警就唔會撞自己個頭埋牆
+
+裁判官裁定表證成立。被告自辯指當晚被捕後曾向值日官要求見醫生，但警長及值日官未有回應。他認為警方不是合法拘捕，擔心「唔知會唔會砌我生豬肉」，為求自保想入醫院，於是自殘。被制服後，他聽見警長大叫：「襲警呀？你做咩撞我個頭呀？」他沒有反駁，「因為我知解釋都冇用，佢哋自己嘅地方嚟嘛」。他表示，「有意圖（襲警）就唔會撞自己個頭埋牆」，但不排除警長制服他時「跣親」撞到頭。
+
+被告作供自言是反社會人格的精神病患者，持有俗稱「白卡」的殘疾人士登記證。他另反駁指，報案室內不存在警長所指的調查室；而且他被押返警署後、見值日官前已除下手銬，直至在警署內被制服時亦沒扣手銬。
+
+案件押後明天（2日）早上裁決，被告於本案獲繼續保釋，但他因另案正被還柙。
+
+案件編號：TMCC629/21

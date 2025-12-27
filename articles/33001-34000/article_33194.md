@@ -1,0 +1,53 @@
+---
+title: "9月初推全民檢測　專家意見分歧　許樹昌：市民不應浪費機會　何栢良：不會參與"
+date: "2020-08-24"
+last_updated: "2020-08-24 18:30:01"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "何栢良"
+  - "許樹昌"
+  - "全民普及檢測"
+url: "https://web.archive.org/web/20210928045734/https://www.hkcnews.com/article/33194/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33211/9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33194/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33211/9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 9月初推全民檢測　專家意見分歧　許樹昌：市民不應浪費機會　何栢良：不會參與
+
+武漢肺炎第三波疫情近日稍為緩和，本港今日新增9宗本地確診個案。政府早前宣佈下月1日推行普及社區檢測計劃，為期至少七天，負責統籌計劃的公務員事務局局長聶德權今早在電台節目表示，預約檢測系統將於本周稍後開放，市民可先提供姓名、身份證號碼和電話在網上登記，並選擇檢測時間和地點。聶德權說，現已物色到過百個檢測地點，被問到預計多少人參與，聶德權說沒硬指標，現時亦很難估計有多少人參與。
+
+然而不同專家對於計劃成效意見不一，政府專家顧問團成員、中大呼吸系統科講座教授許樹昌認為，多人參與計劃會有作用，巿民不應浪費機會，他表示會自己參與今次檢測計劃；另一名專家港大感染及傳染病中心總監何栢良認為全民檢測成效低，假設即使全港有300萬人參與計劃，估計只能找出約40名隱形患者，而他又表示自己感染風險低，不會參與計劃。
+
+<figure>
+<img src="https://web.archive.org/web/20210928045734im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/許樹昌-何栢良-全民檢測-20200824151222_55dc_large.png" alt="">
+<figcaption>許樹昌（右）表示會參與今次檢測計劃；何栢良（左）表示自己感染風險低，不會參與計劃。資料圖片</figcaption>
+</figure>
+
+本港今日新增9宗本地確診個案，是自7月8日以來，首次回落至單位數。政府早前宣佈推出普及社區檢測計劃，為期七天，視乎實際進度最多延長七日，以識別在社區的隱性患者。距離計劃推出還有不足9天，聶德權今早在電台節目表示，檢測系統將於本周稍後開放。
+
+聶德權形容，雖然近日疫情稍為緩和，但源頭不明的個案仍佔3至4成，他引述專家指情況仍令人憂慮，「諗深一層，我哋第二波疫情，兩位數字都覺得好嚴重。」他呼籲市民積極參與，亦呼籲企業或僱主在辦公時間可以方便員工參與計劃，期望越多人參與，越能夠找到隱型患者。
+
+聶德權說，現時已找到超過3000名醫護人員負責檢測工作，當中包括醫科生。至於每個檢測中心的檢測量，他說要視乎場地大小、人手等因素。聶德權說，市民到已預約的檢測中心，會獲配樣本樽號碼，完成登記和接受採樣後便可離開，如檢測結果屬陰性，市民會收到短訊通知；若是陽性，則由衞生署跟進。
+
+許樹昌在同一個電台節目表示，若多人參與普及社區檢測計劃會有作用，他認為有過千名醫護人員以及過百的場地資源是以往香港做不到，而支援不會是永久，巿民不應該浪費機會。他認為，一個地區至少需要三分二的人士參與檢測才有代表性，如果只有數十萬人參加，對截斷社區傳播沒有幫助。他表示會自己參與今次檢測計劃。
+
+呼吸系統專科醫生梁子超則表示，能否動員巿民參與全民檢測，要視乎政府能否減少人群聚集和交叉感染風險。梁子超表示，今次檢測計劃，相信只能找出社區內大約三分之一帶病毒人士，不能代替之前防疫措施，「大家唔好諗住有普測就可以斬斷傳播，最緊要係社交距離同個案追蹤一定要快同埋到位。」他說，即使截斷傳播鏈，亦要做好檢疫，防止輸入個案。但梁子超認為，今次全民檢測是個學習機會，如果下次再有類似情況需要動員，會有相關經驗。
+
+何栢良在另一個電台節目表示，全民檢測成效很低，9月初隱形患者數目會隨疫情回落，即使有300萬人參與檢測，將可找出約40名兩周內受感染並仍有傳播能力的人。他亦擔心處理假陽性結果，會加重衞生署檢測工作的負擔。何栢良又說，自己嚴格管理生活，感染風險低，不會懷疑自己是隱型病人，不會參與普及社區檢測計劃。他認為市民可考慮自身風險以及隱形患者的可能性，而決定是否參與檢測。
+
+<figure>
+<img src="https://web.archive.org/web/20210928045734im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/健康碼-薛永恆-創科局-20200821200016_3b17_large.png" alt="">
+<figcaption>創新及科技局局長薛永恒表示，不會以香港健康碼用作市民出入公眾場所。資料圖片</figcaption>
+</figure>
+
+另一方面，特首林鄭月娥早前曾表示，若本港疫情緩和，可逐步落實健康碼。創新及科技局局長薛永恒表示，政府正研發的健康碼主要讓市民用作通關、包括到廣東或澳門，以恢復正常經濟活動及人流往來。薛永恒表示，不會以香港健康碼用作市民出入公眾場所，強調「諗都無諗過」，若要參考內地做法，在健康碼加入追蹤功能是不切實際，這個不是技術問題而是要全民支持參與，現時最重要是做好通關用的健康碼。
+
+截至上周五，政府派發約590萬個「銅芯口罩」。薛永恒預料下月初會為市民派發第二個「銅芯口罩」，以應付冬季疫情。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928045734/https://www.hkcnews.com/aboutus/#subscribe)

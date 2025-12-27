@@ -1,0 +1,82 @@
+---
+title: "【閱讀中國筆記】承前啟後　當前中國內地敢言的經濟學家"
+date: "2021-10-03"
+last_updated: "2021-10-03 10:59:50"
+author: "尹瑞麟"
+category: "眾說"
+tags:
+  - "改革開放"
+  - "向松祚"
+  - "陳劍"
+url: "https://web.archive.org/web/20220525093035/https://hkcnews.com/article/46086/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46091/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46086/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46091/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【閱讀中國筆記】承前啟後　當前中國內地敢言的經濟學家
+
+中共自建政以至改革開放以來，經濟學家在各階段所作過的知識貢獻和面對過的艱幸，值得加以系統性紀錄，供後繼者作參考和啟示。建政初期，中國緊跟蘇聯的計劃經濟，以為這就是社會主義經濟的發展模式，最後導致經濟停頓。當時在中國，以薜暮橋、孫冶方、于光遠、顧準、許滌新等經濟學家，甘冒勞改和入獄之苦，在五、六十年代率先掀起社會主義之下的「商品」、「市場」規律在社會主義經濟角色的辯論。
+
+這就是今天「社會主義市場經濟」最終寫入國家憲法的的源頭，期間中國經濟經歷了大躍進、三反五反、文革，以至改革開放初期的國企改革、股份制改革等「姓資姓社」辯論。期間，究竟包含了多少敢於冒天下之不韙的學者，勇於探索、撰寫報告、發表評論，他們又面對過多少爭議、質疑、抉擇和對抗。他們的努力證明，正確的政策取向，只能越辯越明。
+
+<figure>
+<img src="https://web.archive.org/web/20220525093035im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/經濟-中國-上海-20211003015207_1bcc_large.jpg" alt="">
+<figcaption>上海金融區一隅，大廈外牆顯示中國2021年第1-2季度的國內生產總值。美聯社</figcaption>
+</figure>
+
+### 「百年未有之大變局」的召喚
+
+有人形容我們今天處於「百年未有之大變局」中，表述是否洽當，有待推敲，但中國經濟無疑是進入新時期，標誌性的事件就如去年十一月突然叫停螞蟻金服數千億美元上市項目和要求滴滴出行下架，以及今年以來引用監管與系列政策措施、或用引導輿論的文章，輪番地打擊互聯網、培訓、外賣、電子遊戲等產業，和企業家巨額捐獻。連串難以理解的經濟動作，造成股市下挫、外資撤離、失業人數上升。
+
+這都是與經濟息息相關的領域，例如「共同富裕」目標是否陳義過高、舉措是否適當、第三次分配是否只有目前所見一途，均是具爭論性的課題。像以往一樣，面對此「時代召喚」，有人選擇緘默或附和主流，但在當前的嚴峻政治氛圍下，仍有不少經濟學者，選擇秉持專業，以不同形式繼續發聲。
+
+北京改革和發展研究會創始會長，「中國民營經濟50人談」成員 [陳劍](https://web.archive.org/web/20220525093035/https://www.aisixiang.com/thinktank/chenjian.html) 9月23日在他題為 [〈十大因素影響「毫不動搖」— 中國經濟發展未來走勢〉](https://web.archive.org/web/20220525093035/http://www.aisixiang.com/data/128694.html) 文章提出，國家領導人經常表示，維護「非公有制」的承諾「毫不動搖」，但在實際推行時，非公有制民營企業往往成為衝擊對象。陳劍認為出現落差的原因，包括：
+
+-  對作為執政的中國共產黨來說，馬列寧主義「曾經是革命的理論，造反的理論，是剝奪有產者財富的理論」。但「如果不能夠給予正確解讀，人們就會理解為消滅私有制，又要剝奪企業主財產」，這樣的認識「無疑會影響非公有制經濟發展」。
+
+-  文革思維沒有得到認真清理。例如，如何看待現在的民營企業家與舊社會資本家，「如果把現在民營企業家看作資本家，看作是剝削階級」，以及將「企業家妖魔化，這無疑會動搖民營企業發展的信心」。
+
+-  政府制定的政策波動過大，影響了人們對未來清晰預期。例如，近期有關部門陸續出台平台經濟、教育培訓、信息安全等多個領域監管舉措，從規範市場秩序等戰略高度出發，應當得到理解和支持。「但有關部門出台的這些監管舉措，事前沒有預兆，且力度過大，對於從事這些行業的民營企業來說，無疑承受了較大風險」。
+
+-  政府誠信不足。例如，一些基層政府在招商引資中常常做出很有吸引力的承諾，但當投資者資金一到，就變卦，承諾不再兌現，這現象十分普遍，都涉及到政府誠信問題。
+
+-  公權力經常逾越法律允許邊境。「十年前重慶唱紅打黑，很多企業家財產被剝奪，企業主遭受了牢獄之災，但給出的罪名普遍缺乏証據支撐」。「近期這種情況，在一些地方似乎又捲土重來」。
+
+-  市場化改革不徹底。「融資渠道的阻塞會給民營企業帶來流動性問題，導致企業經營停滯甚至破產」。此外，「政府經常給予國有企業補貼和特權，這本身是對非公有制經濟的不公平」。健全和完善市場化改革，重要的是推進競爭中性原則的實施，即「在要素獲取，准入許可、經營運行、政府採購和招標等方面，對各類所有制企業平等對待」。
+
+-  對「共同富裕」理解的偏差。共同富裕是努力方向和奮鬥目標。只有大力發展非公有制經濟，特別是大力發展民營經濟，才能夠實現共同富裕。「發展慈善和公益事業，也是推進共同富裕的措施之一。但這項措施只能是在自願和提倡的情況下進行」。
+
+### 私有產權、企業家精神是促進經濟不二法門
+
+另一位是不少港人認識的中國人民大學國際貨幣研究所副所長、農業銀行前首席經濟學家、大灣區金融研究院（深圳）院長 [向松祚](https://web.archive.org/web/20220525093035/https://zh.wikipedia.org/zh-hk/向松祚) ，認識的原因多是年前他對中國政府公布的GDP增長數據表示質疑，以及提出依靠高信貸、高槓桿的中國經濟增長的可持續性。
+
+今年9月，他在一個座談會上發表題為《共同富裕：怎麼看？怎麼辦》演說，他表示認同將「共同富裕」視為中國經濟發展目標的同時，提到社會公平正義是「社會政治穩定的必要條件」，「收入差距和貧富懸殊走向極端，必然導致經濟停滯、社會撕裂乃至政權崩潰」，他強調提升「效率」和追求「公平」是經濟學者持續研究的重大課題。
+
+
+{{< video src="https://web.archive.org/web/20220525093035if_/https://www.youtube.com/embed/S5B26Nj-WcA" >}}
+
+
+在提升「效率」方面，他表示「今天中國面臨的首要問題仍然是做大蛋糕，分蛋糕還是第二位」。「保護私有產權、激發企業家精神是促進經濟增長的不二法門」，企業家（entrepreneur），對他而言，不僅是商人（businessman），前者為社會帶來改變，是實現創新驅動發展的引擎。
+
+對於「第三次分配」，他建議應如美國和歐洲，通過稅收和法律法規，「營造社會氛圍，鼓勵富人成立例如各種基金會，將財富用於社會，轉化為教育、科研、醫療、社會救助、慈善等方面」。
+
+敢於秉持專業道德的內地經濟學者，為數不少，還有的是北京大學教授張維迎，在9月10日，他在北大國發院BiMBA商學院開學典禮上，作了題為 [〈對企業家的偏見和敵視〉](https://web.archive.org/web/20220525093035/http://www.aisixiang.com/data/128668.html) 的講話，不贅。他們的真知灼見，確實令我們更好地認清中國經濟發展的問題和方向，但遺憾的是，我們的社會能否對提出不和諧的聲音的人士作出尊重和保護，以及享有沒有恐懼的自由。
+
+**延伸閱讀：**
+
+<figure>
+<img src="https://web.archive.org/web/20220525093035im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/閱讀-中國-改革開放-20211003004355_2710_large.png" alt="">
+<figcaption>作者：張軍中信出版社，2010年作者是一名知名的經濟學家和經濟研究學者，他以置身其中的姿態，在書中回顧了30年來中國改革過程中的眾多影響深遠的事件和人物。他將視線投向了政治體制改革、金融改革、國有企業改革等改革中最為重要的幾個時間點，展示了眾多中國經濟學家的成長和沉浮，以及他們和那些最耀眼的事件中，未為大眾所知的背後力量。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220525093035im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/改革開放-經濟學家-中華人民共和國-20211003005328_e768_large.jpg" alt="">
+<figcaption>作者：向松祚中信出集團，2020年3月</figcaption>
+</figure>
+
+---
+
+![博客 | 尹瑞麟](https://web.archive.org/web/20220525093035im_/https://hkcnews.com/uploads/avatars/10010966-22c0-4595-b239-9cabe9a882b0.png?2146256469)
+
+**博客 | 尹瑞麟**
+
+【尹瑞麟・双修集】港大社會科學士、日本上智大學碩士、曾駐東京長期供職國際政府組織、國際會計師事務所大中華區總監、前策略發展委員會委員。

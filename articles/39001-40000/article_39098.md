@@ -1,0 +1,72 @@
+---
+title: "【2021兩會】教育提案百花齊放　學者指討論已近20年　改革未能落實因社會觀念未變"
+date: "2021-03-10"
+last_updated: "2021-03-11 14:46:06"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "大陸"
+  - "天朝"
+  - "內地"
+  - "中國"
+  - "中華人民共和國"
+  - "大學生"
+  - "教師"
+  - "老師"
+  - "教育"
+  - "中學生"
+  - "小學生"
+  - "中國教育部"
+url: "https://web.archive.org/web/20210726134516/https://www.hkcnews.com/article/39098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39144/%EF%BF%BD%EF%BF%BD%EF%BF%BD2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39098/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39144/%EF%BF%BD%EF%BF%BD%EF%BF%BD2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【2021兩會】教育提案百花齊放　學者指討論已近20年　改革未能落實因社會觀念未變
+
+
+{{< video src="//web.archive.org/web/20210726134516if_/https://www.youtube.com/embed/OLwBr7weP_s" >}}
+
+
+(報道由6:35開始)
+
+兩會期間，各項提案和議案百花齊放，當中針對教育的提議更是話題之最，連總書記習近平都列席政協教育界聯組會議。
+
+中國教育制度以往被詬病為填鴨式教育，以分數決定命運的高考更被外國報道為全球壓力最大的考試。連最高法副院長都發聲，指學校過度的競爭氛圍，嚴重影響青少年心理健康。
+
+### 倡高考引入多元評價機制　縮短學制至十年、取消英語主科地位
+
+「求學不是求分數」成為其中一個主要呼聲，身兼高中校長的政協委員唐江澎指教育應重視學生的全面發展，培養出終身運動、負責任、能夠解決問題、優雅地生活的人。全國人大代表、南京大學校長呂建就提議高考引入多元綜合評價機制，並要求黨政機關、國企帶頭扭轉「學歷至上」的用人導向，於選拔增加品德和綜合能力考察。
+
+與此同時，還要緩解學生的學業壓力。人大代表周洪宇建議全面取消小學生家庭作業。另一名人大代表張紅偉更建議縮短教育學制，小學和高中各縮短一年，大專改行開放教育，縮短到兩年至兩年半。入學不用考試，結合面授和網上教學方式，使學生可不受空間和時間的限制學習。
+
+甚至有政協委員認為，應該取消英語在中小學的主科地位，為音樂、體育和美術等科目擠出更多課時。提出建議的許進指，英語只對不到10%的大學畢業生有用，而且現時翻譯機解決問題的能力更高於英語課程的教學目標。不過有教育專家馬上以現今社會重視國際化為由，反對這個提案。
+
+<figure>
+<img src="https://web.archive.org/web/20210726134516im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/教育-20210310132835_333d_large.png" alt="">
+<figcaption>全國政協委員許進提議應該取消英語在中小學的主科地位。新華視頻/資料圖片</figcaption>
+</figure>
+
+### 教育改革十年未能落實　學者：因社會觀念未變　學歷仍為評價標準
+
+不同的教育提案好像排山倒海地湧來，但教育學者、21世紀教育研究院副院長熊丙奇指，這些提案大部分都是舊酒新瓶，過去十幾二十年來已多番討論過。而早於2010年，國務院已開始為期10年的中長期教育改革，並將於今年開始「新高考」。
+
+熊丙奇指改革的目標是希望能夠建立多元評價體系，但總體看來尚未完全實現：「在新高考改革當中，大學收生主要還是依靠學生的高考分數和排名，只有小部分的學校會進行改革試驗。例如在浙江有50多所學校進行『三位一體』的陸陸續續這樣的改革，但是它只佔整體的錄取中很小的一部分。」
+
+<figure>
+<img src="https://web.archive.org/web/20210726134516im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/教育-20210310132821_2081_large.jpg" alt="">
+<figcaption>21世紀教育研究院副院長熊丙奇指教育改革十年仍未能落實，因社會觀念未變。搜狐教育/資料圖片</figcaption>
+</figure>
+
+改革10年都只有些許成果，熊丙奇指源於社會輿論仍未能轉變觀念，令到即使國家想改革，政策在現實都未能落實。他強調教育改革是一件很系統性的事，並非改變局部就能夠實現，從政府、學校、家長到企業都必須全面改革。
+
+> 我們告訴家長要關注孩子的個性成長，以後不要關心分數，但家長會說我孩子沒有分數會進不了好的大學，他的求職、發展怎麼辦？因為現在你用人單位在招聘的時候就是要求高學歷、名校畢業。在這樣的情況下，如果我們不改變這樣的評價體系，還是用學歷來評價人，我們要求家長不去關注孩子的升學、關注孩子的身心健康，這樣他們能夠接受嗎？當然不能夠接受，所以我們就會出現『唯分數論』和『唯學歷論』的問題。
+
+熊丙奇認為要做到教育改革，政府必須破除社會這種頑固的思想陋習，建立一個從多方面評價學生，又能確保公平公正的教育制度。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726134516/https://www.hkcnews.com/aboutus/#subscribe)

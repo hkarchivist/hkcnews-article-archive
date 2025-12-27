@@ -1,0 +1,61 @@
+---
+title: "武官治港年代降臨　最壞時侯仍未來臨"
+date: "2021-06-25"
+last_updated: "2021-06-25 22:40:20"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "政務司"
+  - "Chief Secretary for Administration"
+  - "政務司司長"
+  - "張建宗"
+  - "Matthew Cheung"
+  - "Chief Secretary"
+  - "林特首"
+  - "李家超"
+  - "鄧炳強"
+url: "https://web.archive.org/web/20210928075809/https://www.hkcnews.com/article/42801/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42803/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42801/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42803/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 武官治港年代降臨　最壞時侯仍未來臨
+
+
+{{< video src="https://web.archive.org/web/20210928075809if_/https://www.youtube.com/embed/961AEJGh_Gw" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210928075809/https://bit.ly/2Cj8v4t)
+
+林鄭月娥班子5年任期進入最後1年前夕，中央換馬，踢走政務司司長張建宗，由保安局局長李家超接替，原本是警務處處長的鄧炳強接任保安局局長。較早前有報道，另一名副處長郭蔭庶會獲委任為新成立的「公務員學院院長」。
+
+香港一直奉行「文官治港」，以政務官（administrative officer AO）為核心，97後延續，象徵人物是陳方安生和曾蔭權，兩人先後擔任政務司司長，曾蔭權其後更再上一層樓，2005年接替董建華成為特首，前後7年管治，是「AO治港」 黃金時期。曾蔭權卸任後，「AO」光輝不再，角色被邊緣化。
+
+近年，多位紀律部隊出身官員出任政治問責官員，張建宗是在職最資深AO，政務司一職一貫由AO出任，具象徵和實質意義，換上李家超，加上鄧炳強火速上位，後者甚至是未來特首黑馬，由警隊郭蔭庶掌公務員培訓，整個佈局清楚是為全速、全面進入「武官治港」作出的部署，「武官治港」，首要是忠誠，次要亦是忠誠。
+
+林鄭解釋調動時說，香港迎來由亂轉治，目前是重新出發好時機。官方公佈指出任命是由林鄭提名，事實是否如此，林鄭自己最清楚，佈局有中央影子。林鄭出身AO，AO制度、文官治港走到盡頭，制度受到永久性破壞，在她任內發生，她須要負上很大責任。「武官治港」下，香港亂局難以盡早結束，走向更亂的可能性更大。
+
+文官制度時代，官員採取懷柔手段，聽取不同意見，甚至吸納入諮詢系統，林鄭在曾蔭權年代擔任發展局局長，保留中環天星碼頭激化發展與保育的爭議，她提出加強社會參與（social engagement），與社會持份者對話，政策制度講求透明度、程序公義，建立共識政治。
+
+2019年，她硬闖逃犯修訂條例，將香港推落深淵，當日負責的局長是李家超，處理遊行示威的是鄧炳強。李家超民望在班子中排名倒數第二，鄧炳強擔任一哥的警隊民望插水，但在中央眼中，他們是「平暴」 功臣，今日論功行賞。
+
+過去一年，香港進入恐怖統治年代，大拘捕、大檢控民主派人士、壹傳媒創辦人黎智英正服刑，被指違反國安法等案件將陸續提上法院，《蘋果日報》「被倒閉」， 六四晚會被禁，七一遊行將消失，公民團體受打壓，不同聲音被滅聲，自由空間急速萎縮，都與李家超及鄧炳強有莫大關係。市民對他們越痛恨，中央越滿意兩人表現，不少港人感到，北京在秋後算賬，懲罰他們上街「作反」、「反中央」。
+
+不少港人早已不抱有任命期望，亦無奈接受黑暗日子會持續一段長時間，不再輕言「鬥長命」，「人生有幾個十年？」不敢說已是最壞時候，不希望情況變得更壞，但清楚知道很可能會更壞。港人做足期望管理，換走張建宗，完全不感到奇怪，沒有半點可惜，但換上李家超，再加鄧炳強，恐怖程度完全超越想像。
+
+李家超日前接受《now 新聞台》專訪，指國家安全風險較以往低，但稱要防範「軟性」滲透，會透過「媒體、藝術、戲劇」宣揚港獨及危害國家安全訊息。鄧炳強任內一直針對傳媒，支持立法打擊「假新聞」。武官上台，以維護國家安全，進一步肅殺不同意見，唯一能夠肯定的是，最壞的日子仍未來臨。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928075809/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210928075809im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

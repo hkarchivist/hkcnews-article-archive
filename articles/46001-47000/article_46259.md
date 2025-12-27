@@ -1,0 +1,61 @@
+---
+title: "【7.1集會案陳情】陳皓桓：香港已變成一個只叫「香港」的地方，當初的擔心成為現實"
+date: "2021-10-07"
+last_updated: "2021-10-07 17:49:49"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "陳皓桓"
+  - "煽惑他人參與未經批准集結"
+url: "https://web.archive.org/web/20220120203332/https://www.hkcnews.com/article/46259/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46265/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46259/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46265/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【7.1集會案陳情】陳皓桓：香港已變成一個只叫「香港」的地方，當初的擔心成為現實
+
+<figure>
+<img src="https://web.archive.org/web/20220120203332im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/民陣-陳皓桓-20210423234738_4ffb_large.jpg" alt="">
+</figure>
+
+> ⚫香港已變成一個只叫「香港」的地方，只能容納支持政府意見的聲音，對異見者則不斷打壓，拘捕並檢控   
+ ⚫回望當初的擔心成為現實，我又怎會後悔當初和平公民抗命、遊行發聲   
+ ⚫願意為自己的行為負責，絕不後悔   
+ ⚫但願港人能心存盼望，在困難的日子，一起捱下去。
+
+
+前民陣召集人陳皓桓、前立法會議員朱凱廸、胡志偉等7人，今（7日）在區域法院承認於去年七一遊行，煽惑他人參與、組織及明知而參與未經批准集結。陳皓桓今日沒有律師代表，自行求情，讀畢陳詞後，庭上響起一片掌聲。案件明午判刑，法官游德康批准曾健成及鄧世禮繼續保釋，其餘被告還柙。
+
+### 陳皓桓陳情全文
+
+法官閣下：
+
+本案發生的日子，正是香港回歸紀念日，亦是《港區國安法》實施第一天。中央政府在沒有諮詢港人意見的情況下，就由一個遠在北京，又沒有港人一人一票民意授權的人大常委會，通過立法《港區國安法》，引起社會不安、不滿及恐懼。因此，民間人權陣線（下稱民陣）向警方申請遊行，希望港人能以合法方式表達訴求，希望中央政府能聽取人民訴求，撤回《港區國安法》。可惜，特區政府寧願舉辦書展，重開主題樂園，卻以疫情為藉口，拒絕讓民陣舉辦遊行。在未能合法發聲的情況下，我等只能選擇公民抗命違法舉辦遊行發聲，以和平、理性、非暴力的方式，向政府表達「反對國安法」的訴求。
+
+案發當天，因為警方以水炮車等驅散，我等的遊行只能聚集4分鐘，就被驅散離開。回看片段，令我想到今天的香港，由當日開始我們就失去了熟悉的人和事，而香港已變成一個只叫「香港」的地方，只能容納支持政府意見的聲音，對異見者則不斷打壓，拘捕並檢控，造成白色恐懼，結果導致多個政黨和民間團體相繼解散，眾多港人移民，自由和應有權力漸漸消失。回望當初的擔心成為現實，我又怎會後悔當初和平公民抗命、遊行發聲呢？
+
+不論如何，《港區國安法》已實施超過一年，我不期望政府會撤回，但願政府能在所謂「由亂轉治、重新出發」的環境下，聆聽人民就民生方面的訴求：為長者，設立全民退休保障；為工人，立法標準工時，取消強積金對沖；為基層，大量興建公營房屋，收回權貴用地；為小眾，就《性傾向歧視條例》立法；為難民，提供更多留港幫助；為外傭，要求僱主改善待遇及工資。
+
+就此案件，為堅守公民抗命的信念，我決定認罪，承認違反「公安惡法」，亦願意為自己的行為負責，絕不後悔。但願港人能心存盼望，在困難的日子，一起捱下去。
+
+最後，祝閣下與所有好人一生平安。
+
+陳皓桓   
+ 2021年10月7日   
+ 區域法院
+
+<figure>
+<img src="https://web.archive.org/web/20220120203332im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/2020七一遊行-水炮車-20200702132334_1373_large.jpg" alt="">
+<figcaption>警方在去年七一以水炮車驅散遊行隊伍及其他示威者。資料圖片</figcaption>
+</figure>
+
+### 為追求更美好社會犯案
+
+胡志偉由大律師Christopher Grounds代表。大狀求情指，本案與一般由貪念或報復引起的刑事案件不同，被告只是為追求更美好社會犯案，多封求情信均指被告備受尊重，對推動社會有寶貴的貢獻，完全值得法庭判緩刑。
+
+代表曾健成及鄧世禮的大律師吳宗鑾求情指，本案遊行規模較同類案件小，只有約100人參與，聚集短時間已遭警方驅散，被告及遊行隊伍並沒暴動行為，沒證據顯示同日其他暴動事件必然與被告有關。吳望法庭考慮曾及鄧在本案角色被動，多年來投入服務社會、有重要貢獻，年紀不輕，在最早階段認罪，能判處緩刑或較輕刑期。
+
+大律師黃宇逸代表梁國雄求情，希望法庭考慮其心臟健康欠佳，多年來服務社會，批准本案刑期與其他案件的刑期同期執行。代表徐子見的大律師黃錦卿，採納其他辯方律師的陳詞，望法庭以緩刑或較低的量刑起點。
+
+法官游德康押後案件至明午判刑。控方署理高級檢控官陳穎琛一度反對曾健成及鄧世禮保釋，惟游官認為即使只是一天時間，現將二人還柙仍不公平，批准他們繼續保釋。
+
+【案件編號：DCCC107/2021】

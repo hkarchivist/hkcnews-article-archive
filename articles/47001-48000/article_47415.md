@@ -1,0 +1,53 @@
+---
+title: "【煽惑六四集會案】入維園點燭光不用授權　鄒幸彤指最重要是各自悼念沒被禁令嚇倒"
+date: "2021-11-08"
+last_updated: "2021-11-08 18:23:00"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "煽惑他人參與未經批准集結"
+  - "六四集會"
+url: "https://web.archive.org/web/20220125053127/https://hkcnews.com/article/47415/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47424/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47415/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47424/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽惑六四集會案】入維園點燭光不用授權　鄒幸彤指最重要是各自悼念沒被禁令嚇倒
+
+警方去年以防疫為由禁止維園六四集會，多名支聯會成員和泛民主派人士被控當日組織及參與未經批准集結等罪，鄒幸彤今日繼續自辯。作為支聯會副主席的她上週五已明言，無論相關言論是否由她說出，她也會「完全承擔支聯會責任及決定」。控方今日大多針對主席李卓人當晚的發言作盤問，庭上播放多段蘋果日報及立場新聞及支聯會的直播片段佐證。鄒重申當晚支聯會只是向公眾表示「我哋支聯會會入維園」，從來沒強調一定要有集會，「最緊要每個人願意行出嚟，用佢哋各自可以承受嘅方法，而唔係俾一個禁令嚇到」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125053127im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/鄒幸彤-六四集會-20211108163743_28c7_large.jpg" alt="">
+</figure>
+
+開審前李卓人、蔡耀昌、梁耀忠、梁錦威及胡志偉等五人認罪，他們承認明知而參與未經批准集結罪。除胡志偉外，其餘4人亦承認煽動他人參與未經批准集結罪。李卓人另承認一項舉辦未經批准集結罪。餘下三人黎智英、鄒幸彤和何桂藍不認罪，黎被控一項煽動他人參與未經批准集結罪、鄒幸彤被控明知而參與及煽動他人參與未經批准集結罪、何桂藍被控一項明知而參與未經批准集結罪。
+
+鄒幸彤作供後，辯方打算傳召民主黨成員、八九民運工人領袖韓東方作供。辯方透露，韓當日較早時間曾因個人原因身處維園，但在晚上七時前已離開，他希望韓能向法庭講述維多利亞公園對他的象徵性意義。然而，法官胡雅文認為，上述內容跟控罪及鄒幸彤面對的指控無關，而他到維園的原因亦與本案無關，拒絕讓他出庭作供。
+
+<figure>
+<img src="https://web.archive.org/web/20220125053127im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/六四集會-20211108164241_1a5f_large.jpg" alt="">
+<figcaption>韓東方今日來了區院，準備擔任辯方證人，但遭法官拒絕。</figcaption>
+</figure>
+
+主控官伍淑娟盤問鄒幸彤時指出，當晚集會開始前，李卓人曾發言稱：「各位入咗維園嘅朋友」，又表示要「去我哋以前集會嘅地方燃點燭光……我哋再喺前面，繼續延續六四悼念」，是在呼籲維園附近的市民到足球場參與集會。及後李播放《自由花》時，有市民站在支聯會成員身後，高舉燭光及寫有標語的紙牌，反映歌曲是為維園內的市民播放。
+
+### 公眾行動任何人都可上前圍觀
+
+惟鄒幸彤反駁指，當日李卓人所用的揚聲器的音量有限，「企遠少少都聽唔到」，沒可能向整個維園內的人廣播，但市民可透過傳媒及支聯會的網上直播送到全世界。她表示，當晚支聯會只是公眾表示「我哋支聯會會入維園」，從沒對外宣稱有集會舉行。
+
+她又認為，警方禁止的是一個10萬人參與、有大台、有音響、有糾察的集會，而不是這個小型行動。而在公眾行動期間，任何人都可以上前圍觀，縱然他們身後的人不是支聯會的成員，也可以自行表達對六四的悼念，但不代表他們是一夥。
+
+### 呼籲遍地開花　無「物理上」的集會供參加
+
+控方又稱，何俊仁在集會開始前，曾叫喊有關六四、五大訴求、反對國安法等口號，而他們身後的群眾有回應，顯示他們之間有互動。
+
+鄒反駁指，支聯會是透過網上直播與全世界的人都互動，並非故意與身後的人互動。她強調「當日喺維園冇一個物理上嘅集會俾大家參加」，只是呼籲市民令六四燭光「遍地開花」，而遍地開花與集會是兩個概念。支聯會發言時提到的「大家」，則是指透過任何形式見到他們的人，而非僅指物理上在維園的人。
+
+### 各自用方法悼念　園內百花齊放有人叫喊港獨
+
+鄒承認當晚確實有支聯會成員以外的人身處維園，但「行入維園、點起燭光不用授權」，而且從口號及旗幟反映，當時場內內百花齊放，各式口號都有人叫喊，包括香港獨立。她不否認當晚有不同的人身處同一個地方，但支聯會肯定不是與舉港獨旗的人參與同一個集會。
+
+控方又質疑，李受訪時向傳媒稱當時有「六個足球場嘅燭光」，是否代表他們認為集會成功？
+
+鄒則表示，六四悼念燭光在禁令下擴散全香港，確實令人欣慰。她認為六四「唔一定要集會，我哋從來冇強調一定要有集會，最緊要每個人願意行出嚟，用佢哋各自可以承受嘅方法，而唔係俾一個禁令嚇到。
+
+案件編號：DCCC857-875、877-884、886-889、891、893/2020

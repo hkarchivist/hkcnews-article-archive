@@ -1,0 +1,55 @@
+---
+title: "花姐是香港師奶的驕傲"
+date: "2022-01-01"
+last_updated: "2022-01-02 13:18:13"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "花姐"
+  - "ViuTV"
+  - "MIRROR"
+url: "https://web.archive.org/web/20220518041343/https://hkcnews.com/article/49858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-viutv-mirror-49871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-viutv-mirror-49871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 花姐是香港師奶的驕傲
+
+【撰文：扮師奶】
+
+ViuTV今年廣告費大加，都是有Mirror及其引領連鎖效應之故。
+
+去年年初只是到處見姜濤，如今，各Mirror仔開始有自己個性，獨立發展，去到哪，不是這個Mirror仔，就是那個，逃不出他們大包圍，另還有Error。
+
+他們為何走紅，學者、文化評論員及娛樂圈人已有剖析，但罕有提及花姐的功勞，扮師奶替她不值。
+
+對，要不是有放手的上司魯庭暉，要不是社會氣候，Mirror未必如此爆紅。但不能抹煞花姐的靈魂作用，她負責構思《造星》，造就Mirror走紅，後來還成為他們的經理人。
+
+扮師奶去年年初因叱吒才知姜濤和Mirror，跟著…不得了，於是找回花姐的訪問來看，其中以陳志雲的訪問最深刻。
+
+**【尋】尋夢者・花姐 EP1 --- 《我在大台的日子》**
+
+
+{{< video src="https://web.archive.org/web/20220518041343if_/https://www.youtube.com/embed/yv46o9hoRoA" >}}
+
+
+花姐看上去只是一個香港眾多毫不起眼的師奶——不是冒犯，依稀記得花姐在訪問（忘了誰做的）也自認是師奶。她膚色黝黑，皮膚不是白晳零毛孔，隱約見皺紋和頸紋，沒有V字臉，腰圍該不止25吋，衣服來來去去不是藍就是黑，沒有style，絕非靚媽靚太。
+
+但她捧紅了連媽咪熟男都追捧的Mirror、 Error，她自己都身價急升（她坦承收入增多），亦受廣告商青睞；對香港，更作出劃時代貢獻。
+
+扮師師覺得花姐為一眾師奶出氣，因為香港傳媒鼓吹靚媽靚太的多，幾時欣賞過不著重打扮的師奶？「師奶」的身份是依附家庭，照顧家人妥當並不足夠，自己也要無贅肉、懂打扮、見得人，最好是凍齡，才獲傳媒大書特書（除了母親節）；若同時有自己事業，額外加分，可獲各式榮耀——最最奇怪的是，這些文章的撰寫人幾乎全是女性。大家似忘記那些靚媽靚太，很多天生麗質，要keep，容易很多。
+
+一個標榜每天最多人瀏覽的香港網媒，最愛以日本人妻做楷模，穿戴以普羅日本品牌為主，偶然有名牌配搭，但身型纖瘦，打扮時尚，即使未婚少艾也未必能及，扮師奶當然難望其背，絕對絕對不會以那身裝束去買餸。
+
+天天接觸這些觀念，師奶難言不受壓力，自慚形愧，努力達致大眾傳媒灌輸的「標準」（屋邨街市內都有美容檔口！）。2004年，品牌Dove推出 ["Campaign for Real Beauty](https://web.archive.org/web/20220518041343/https://www.dove.com/ us/en/stories/campaigns.html) "，持續十七年至今，儘管是市場推廣活動，但宣揚不要因自己外表而自卑的信息十分好，香港呢，人妻生了孩子後，體態若和產前一樣，肯定獲讚厲害，若更勝從前，就惹人艷羨了。
+
+所以，花姐撐起ViuTV，扮師奶確覺得是師奶驕傲。一個師奶，有腦力，構思有突破性節目，瘋靡不同年齡層的男女，而不是炮製師奶劇或婦女節目。希望各位師奶擺脫社會枷鎖，不用自嘲「只係一個師奶」，只要有腦，自身價值不低於他人。
+
+聯絡作者： [扮師奶雜記](https://web.archive.org/web/20220518041343/https://www.patreon.com/slowslow?fan_landing=true)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220518041343im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

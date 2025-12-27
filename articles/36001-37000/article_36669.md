@@ -1,0 +1,78 @@
+---
+title: "盧思位：十二香港青年偷渡案一審程序十問十答"
+date: "2020-12-23"
+last_updated: "2020-12-23 11:44:26"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "盧思位"
+  - "12港人"
+  - "偷渡台灣"
+url: "https://web.archive.org/web/20211205040645/https://hkcnews.com/article/36669/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36670/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/36669/12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36670/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 盧思位：十二香港青年偷渡案一審程序十問十答
+
+【撰文：大陸維權律師盧思位】
+
+<figure>
+<img src="https://web.archive.org/web/20211205040645im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/12港人-20201020213114_a0ec_large.jpg" alt="">
+<figcaption>12名港人因涉嫌內地偷越邊境罪，早前10人被正式起訴，兩名未成年人士則擇日聽證。資料圖片</figcaption>
+</figure>
+
+**一問：官派律師繼續「佔坑」辯護，家屬委託的律師無法介入案件，該怎麼辦？**
+
+答：從此前的情況來看，深圳市鹽田區公安局、鹽田區看守所、鹽田區檢察院均聲稱當事人已經自行委託了兩名辯護人，可以預見鹽田區法院也會以同樣理由排除家屬委託的律師介入。家屬委託的律師應繼續向鹽田區法院提交委託手續，要求閱卷，家屬同時應該要求官派律師自行退出辯護，否則，家屬可以對這些律師提起投訴和控告。另外，本案一直排除家屬委託的律師，使得本案的程序已經嚴重違法，將影響到審判程序的合法性。
+
+**二問：鹽田區檢察院是否應該向家屬提供《起訴書》？**
+
+答：內地刑事訴訟法沒有規定檢察院必須向家屬提供《起訴書》，但是辯護人應該向家屬提供《起訴書》複印件並有義務解釋《起訴書》的內容和法律依據，這是律師最基本的職業道德。
+
+**三問：兩名未成年人的聽證是一個什麼程序？結果會怎麼樣？**
+
+答：鹽田區檢察院之所以安排聽證程序，是基於《刑事訴訟法》中有專章規定辦理未成年人犯罪的特別程序，法律規定未成年人涉嫌刑法第四章、第五章、第六章的罪名，可能判處刑期在一年以下，但有悔罪表現的，檢察院可以附條件不起訴。本案涉嫌的偷越邊境罪屬於刑法第六章規定的罪名，且法定刑在一年以下，因此可以附條件不起訴。附條件不起訴有考察期，考察期限為六個月到一年。預計聽證結束後檢察院會做出附條件不起訴的決定，兩名未成年人很快會被送回香港，家屬應該主動與檢察院聯繫，了解具體情況，包括考察方式、考察期限等具體要求，爭取當事人利益的最大化。
+
+**四問：一審案件什麼時候會有結果？**
+
+答：鹽田法院立案後，一審應該在兩個月內判決，因此，案件應該在2021年2月25日之前有一審判決，考慮到2月12日是農曆年春節等因素，估計本案應該在2021年元旦前後開庭，然後在2021年1月有一審判決結果，也不排除開庭之日當庭宣判。
+
+**五問：被起訴的香港青年會被定罪嗎？有兩人被起訴組織偷越邊境罪是怎麼回事？**
+
+答：從目前部分官派律師與家屬溝通的情況來看，所有官派律師均將做罪輕辯護，因此，綜合各種因素考慮，十名青年基本可以確定都會被定罪。關於有兩人被起訴組織偷越邊境罪的問題，因為沒有看到具體卷宗，不好做確定性評價，但是，如果鄧棨然、喬映瑜並沒有收取費用，僅僅是因為聯繫了船隻、駕駛了船隻，或者準備了食物，或是設計了行進路線，則絕不夠成組織偷越邊境罪，因為，此種情形僅僅是在偷越邊境過程中起主要作用而已。
+
+**六問：家屬可否申請旁聽？該案是否會庭審直播？**
+
+答：嚴格來講，只要是公開審判的案件，不存在旁聽需要申請的問題，只是因為今年疫情的因素，法院可能會限制旁聽人數，但一般來講法院有義務保障每名被告人有兩名親屬旁聽，因此，家屬可以直接與法院聯繫開庭以及旁聽事宜，以確定具體行程。至於庭審直播，最高院要求各地法院盡量直播庭審，但是否直播的決定權在各地法院，綜合來看，本次庭審直播的可能性非常小。
+
+**七問：十名香港青年的刑種和刑期預計會如何？**
+
+答：偷越邊境罪的法定刑為1年以下有期徒刑、拘役或者管制，並處罰金；組織偷越邊境罪的法定刑是2到7年有期徒刑，並處罰金，影響量刑的因素比較多，包括立功、自首、坦白、「認罪認罰」、偶犯、初犯、被告人的身體健康和社會危害性等，綜合國際國內的各種因素來看，涉嫌偷越邊境罪的八人的刑種很可能會是拘役，期限會在六個月以下，預計會「實報實銷」；兩名涉嫌組織偷越邊境罪的被告人即便罪成，刑期應該是2年左右的有期徒刑，鑑於刑法規定判處三年以下有期徒刑的案件可以適用緩刑，估計該二人會被判二緩三。樂觀估計所有被告人會在春節前全部被遣送回香港，但是兩人的緩刑考驗如何在香港執行，這的確是一個新問題，要看兩地之間能否對此種司法協作達成一致。
+
+**八問：如果八名被告人被「實報實銷」，一審判決後會被立即送回香港嗎？**
+
+答：不一定，因為一審判決後有十天上訴期，內地法院的通常做法是一審判處緩刑或者實報實銷的會回到看守所馬上辦理取保候審手續，當天即可走出看守所。但是本案涉及香港居民，應該不排除暫留內地十天，待檢察院沒有抗訴、被告人沒有上訴後再將各被告人遣送回港。
+
+**九問：如果被告人對判決不服，應該如何處理？**
+
+答：任何被告人如果對案件判決不服，均可以在收到判決書次日起十天內提起上訴，家屬或其本人可以另行委託律師，此前家屬委託的律師可以繼續要求會見被告人並徵得被告人意見後提起上訴，上訴法院為深圳市中級法院。
+
+**十問：組織偷越邊境的二人被判處緩刑的可能性大嗎？如果萬一被判處實刑，後果會怎麼樣？**
+
+答：通盤考慮各種因素（包括法律因素和政治因素），尤其是內地監獄與香港監獄在人權保護方面和囚犯待遇方面的巨大差異，判處二人緩刑是上上之策，內地法院經常講要社會效果、法律效果的有機統一，相信承辦法官會仔細斟酌本案。如果判處實刑，法律規定，剩餘刑期在三個月以內的，由看守所代為執行，如果剩餘刑期超過三個月的，則將被送往監獄服刑。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205040645/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20211205040645im_/https://hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

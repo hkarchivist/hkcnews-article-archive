@@ -1,0 +1,73 @@
+---
+title: "如何看待這一次涉及議員去留的調查￼"
+date: "2020-08-20"
+last_updated: "2020-08-20 13:07:53"
+author: "鍾劍華"
+category: "眾說"
+tags:
+  - "香港民研"
+  - "立法會延任"
+  - "「我們香港人」 調查"
+url: "https://web.archive.org/web/20211128001714/https://hkcnews.com/article/33077/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33079/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33077/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33079/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 如何看待這一次涉及議員去留的調查￼
+
+有朋友提出這個疑問：
+
+**「就重大公共事件容許動員填報，由於沒有科學抽樣，並不是專業民調，而是網上動員。請教授謹慎處理。」**
+
+有這種誤解，我能理解，因為確實有議員及各界人士呼籲支持者積極參與這一周香港民意研究所的「我們香港人」意見群組調查。這幾天加入我們這個群組的人，確實大幅度增加。
+
+<figure>
+<img src="https://web.archive.org/web/20211128001714im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/「我們香港人」%20調查-香港民研-20200820123050_2c74_large.jpg" alt="">
+<figcaption>照片來源：香港民意研究所網頁</figcaption>
+</figure>
+
+首先說清楚，「意見群組」這種調查方式，不等同於公投。但如果說「意見群組」這種調查方式沒有參考價值，也是片面的說法。不是全港性抽樣，確實會令調查的誤差更大。但我們每一次總結數據及發佈調查結果之前，都會根據我們在其他調查計劃中得到的資料，作多重的數據加權，令調查結果的參考價值仍然不能忽視。   
+ 如果意見群組的人數夠龐大，這類調查方式的作用就會更明顯。我們呼籲，也歡迎大家加入意見群組，以後大家就可以利用意見群組這個平台，給予我們更多香港民意的信息！現在意見群組已經有超過10萬人，人數不算少，但距離理想仍然很遠。這是一個發展的過程，我們有耐心，我們希望各界對這一種調查方式的作用會更理解、更明白、往後也更重視￼。
+
+就著這一次立法會民主派議員去留抉擇的調查，我在接受訪問時已經說了：
+
+> **.…這份問卷雖不屬於全港性抽樣，但同樣會加權作為參考，因為有關做法偏差較全港性抽樣大，所以只是一個參考性調查。**
+
+
+「意見群組」這一種調查方法，也是一種常用的民調。但我們也沒有否定他的局限性，其實每種調查方法都有其局限。但世界各地很多地方，包括一些著名的民調機構，都有用這這種意見群組方法。香港才剛開始發展，香港民意研究所一直在推動這方面的工作。
+
+遲一些有機會再向大家詳細解釋這種方法的作用及其局限，但想重伸一點：這是研究所「科學、民主、參與」共融工作的一個部份。香港民意研究所屬於公眾，得到社會各界支持。「我們香港人計劃」正是要體現這種民主與科學共融的精神。由一群參與研究所工作的義務小組以討論、提出問題、讓公眾投票決定這一個流程，決定那一個題目會納入「我們香港人計劃」這一個民意群組的調查工作。我們尊重這個決定的過程！不會單純因為某一方的意見來推翻這個決定。
+
+我亦不妨重伸個人的立場，歡迎引述：
+
+> **我從來都認為，民意不是決定政治決策或領導人物作決定的唯一依據。民意當然要參考。但政治領導人應該有其理念。如果民意一面倒，當然要面對。所以我希望大家要有一個合理的態度面對民調結果及民意。我們也不應該認為可以用民意來騎劫整個社會。當民意出現明顯的分歧的時候，政治人物的理念及擔當就更重要。我對此也絕對尊重。**
+
+
+有人擔心，這一次因為事件太熾熱，有人抱著公投的心態加入我們的意見群組。我們也明白，有些人真的很熱心，很希望見到一個他們想得到的結果。也有人認為，這可以成為要求議員採取某一種判斷及行動的依據￼￼￼。
+
+我們仍然歡迎所有人加入我們的意見群組，將來還有很多問題需要你們提供意見！至於這一次會否變成變相公投？我們很清楚，公投是另一種方式！「意見群組」調查只是其中一種民意研究的方法。現在突然多了很多因為這個題目而加入這這個群組，回應我們的調查；甚至不能排除有人是想得出某一個結果來增強其訴求的力量，這些我們都是知道的。
+
+我們明白大家的願望，但我們也希望大家明白，調查就是調查，不是公投。
+
+所以也希望大家放心，我們已經知道這件事，也會有合理的方法來處理。香港民意研究所是負責任的，我們都是對我們的工作慎重的。我們明白民調的作用，也明白民調的局限性，我們也致力令民調歸民調，政治歸政治。雖然我們也明白民調也是政治的一部份，我們講民調，我們設計民調，也講民主，也講參與。
+
+#### 數字出來之後如何運用，如何理解，如何演繹，大家如何透過這個數字make sense，這是每個人自己的責任。我們深信香港人的水平足以合理地閱讀、理解、及使用這些民調結果，只有那些別有用心的、以葉公好龍的心態來面對民調的官員及政治爬蟲，才會想借個機會來抽水！￼
+
+我個人也不會因為民調工作而令我不發聲，不會刻意掩飾自己的政治立場。民調結果是否呼應我的立場已經是另一回事了！就以這一次為例，民調還未做，我在民主派議員「拒任」或「留任」立法會的立場，已經說得很清楚。無論行將公布的民意調查結果如何，我相信我都會仍然抱持我自己的看法。
+
+本文原刊 [筆者Facebook](https://web.archive.org/web/20211128001714/https://www.facebook.com/chungkw/posts/10157669126716938) ，圖片為編輯所加。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128001714/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 鍾劍華](https://web.archive.org/web/20211128001714im_/https://hkcnews.com/uploads/avatars/554a4fd2-3287-4bf3-954c-e6d229244091.png?1018652741)
+
+**博客 | 鍾劍華**
+
+【鍾劍華專欄】鍾劍華是理大應用社會科學系前助理教授、香港民意研究所副行政總裁。

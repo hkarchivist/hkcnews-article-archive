@@ -1,0 +1,69 @@
+---
+title: "我想活得像個人"
+date: "2021-02-27"
+last_updated: "2021-02-28 03:11:41"
+author: "譚瑞玲"
+category: "眾說"
+tags:
+  - "北韓"
+  - "朝鮮民主主義人民共和國"
+  - "脫北者"
+  - "我想活得像個人"
+url: "https://web.archive.org/web/20211202155011/https://hkcnews.com/article/38612/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38619/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/38612/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38619/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 我想活得像個人
+
+<figure>
+<img src="https://web.archive.org/web/20211202155011im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/北韓-脫北者-我想活得像個人-20210227160530_71bf_large.png" alt="">
+<figcaption>照片來源：《我想活得像個人》，大田出版</figcaption>
+</figure>
+
+最近看到一張北韓女冰屍的圖片，她在淺灘上橫臥著，離祖國十公尺，距中國三十公尺。露出水面的手指，彷彿是在訴説對人生的渴望。   
+   
+ 北韓多次無視國際輿論進行核爆，並聲稱已成功測試比原子彈強多倍的氫氣彈，常引起各國敏感關注，連長久盟友中國都強烈譴責。   
+   
+ 在一片反對聲中，卻很少人著眼在金氏家族（金日成、金正日、金正恩三代）的強國主義下，近年來出現越來越多的「脱北者」（指逃離國家投奔自由的北韓人）的下場。這條橫死的凍屍便是他們悲慘遭遇的見證。   
+   
+ 由南韓記者李學俊，藉多次親身參與偷渡和訪問脱北者所寫成的 [《我想活得像個人》](https://web.archive.org/web/20211202155011/https://www.books.com.tw/activity/2014/05/living/?loc=011_004) ，讓我們有機會認識這個常自稱擁有世上最幸福的人民，既禁閉又神秘的國家之另一面。
+
+
+{{< video src="https://web.archive.org/web/20211202155011if_/https://www.youtube.com/embed/1WpYfdVCu1c" >}}
+
+
+雖然北韓人民從小便受教育，逃離國家是背棄祖國的叛徒，會被處以極刑。然而，在九十年代，當北韓開始出現嚴重缺糧問題之後，便開始有人鋌而走險，跨越國界到中國尋生機。   
+   
+ 不過，即使成功越境，一旦被中國公安逮捕後，便立時無情的押返北韓，亦等同死亡或非人生活的開始。   
+   
+ 返國後這批叛國者若送到勞改營，每天要強行做十七小時的勞動，還常被看守員毒打，若女脱北者懷孕更要強行墮胎。如果在監獄囚禁，則整天要用同一姿勢坐著，稍為移動便受獄卒狠毆，大多數囚犯都不能存活。   
+   
+ 在這偷渡潮中，婦女的人口買賣成為中韓邊境常見的勾當。很多北韓女性都被掮客賣給地處偏僻的中國農民，因為沒有內地女子願意嫁給這些農戶。可是她們由於本身是非法人口，生下的孩子也沒有戶籍，成為悲劇的延續，被稱為「幽靈孩童」，估計人口達十萬之多。   
+   
+ 若果農民丈夫玩膩了女脱北者，甚至可以轉售。她們的身價看年齡而定，二十到廿四歲是七千人民幣，過了三十就降為三千。為了家庭不至餓死，一些可憐女性甚至直接投入賣淫，即所謂「晚花女」。   
+   
+ 脱北者不分男女在中國都永遠是非法人囗，故此又衍生了另一波的邊境逃亡，他們藉中寮、中越等這些素來用來走私或運毒的危險途徑，逃到泰國的庇護所中，再申請到歐美及各國居留。   
+   
+ 無論脱北者依循甚麼方法偷渡，都受著掮客欺凌敲詐，特別是那些本身亦是走私軍火和毒品的悍漢，手段非常殘忍。在一片風聲鶴唳中的脱北者，卻赫然見到一線曙光：神感動了南韓的一些牧師，帶來適切扶助和人生希望。   
+   
+ 冒著被北韓保衛隊及中國公安拘捕的危險，這些牧師用盡方法竭力營救脱北者，包括設立地下庇護所，秘密聯絡無國界醫生替幼弱治病，陪伴脱北者偷渡至邊境的東南亞國家，不斷籌集資金為被賣的北韓婦女贖身，替幽靈兒童尋找收養家庭，甚至帶頭衝進別國領事館要求政治庇謢。   
+   
+ 當然，這些牧師們也要付上沉重代價，若和脱北者一起被捕，便會同樣被押到北韓服刑。曾經幫助過上千脱北者的千基元牧師，曾經被捕入獄卻仍鍥而不捨地參與營救工作。他連生命都能豁出去，因為「這是上帝的呼召」，他閉眼就浮現脱北者痛苦的哀嚎，要終其一生服事脱北者。   
+   
+ 北韓核爆後，我們是否只留意自己國家的安全問題，還是心繫北韓饑民的哀歌？求神喚醒我們已經冰冷了的心。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202155011/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 譚瑞玲](https://web.archive.org/web/20211202155011im_/https://hkcnews.com/uploads/avatars/13312e53-b13a-4058-8b24-a928212cd0ac.png?1041607517)
+
+**博客 | 譚瑞玲**
+
+【譚瑞玲・書海逍遙遊】香港大學文學院歷史系學士，曾任教香港中學及羅富國教育學院歷史系。後隨夫移民美國，入讀俄亥俄州凱斯西儲大學 (Case Western Reserve University, Ohio) 研究院，獲歷史檔案學碩士及歷史系博士，專研美國華人歷史。 後由於一場重病，感到應從象牙塔走回人群中，開始從事文字工作，曾任討論普世社會公義的刊物《義顯之聲》 的編輯，在臉書專頁「來，咬一口」分享讀書心得、「華 人基督徒義顯社」評論時事，以及於其他美國華文雜誌如 《真愛》、《神國雜誌》、《傳揚》等寫作，並於洛杉磯華語電台節目談閱讀之樂 。 現與丈夫及三名子女定居美國加州。

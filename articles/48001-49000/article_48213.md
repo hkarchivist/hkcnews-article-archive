@@ -1,0 +1,51 @@
+---
+title: "中大檢討政政系資源　或與其他課程合併　小組成員蘇鑰機：唔會重組之後無咗"
+date: "2021-11-26"
+last_updated: "2021-11-27 04:12:41"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "中大政政系"
+  - "蘇鑰機"
+url: "https://web.archive.org/web/20220117061654/https://hkcnews.com/article/48213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 中大檢討政政系資源　或與其他課程合併　小組成員蘇鑰機：唔會重組之後無咗
+
+中大社會科學院成立研究小組，檢視和探討如何有效運用各學系和課程的資源，當中包括今年收生分數和數字見新低的政治與行政學系（政政系）。研究小組成員、新聞與傳播學院教授蘇鑰機表示，現時未有具體研究方向，但承認將政政系與其他課程合併，是考慮之一。他個人認為政政系歷史悠久，是十分重要的學系，相信該學系課程在檢討後仍會存在，不過可能會以新面貌示人。「唔會重組之後無咗（政政系），唔覺得個機會會有。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117061654im_/https://hkcnews.com/news_新聞/hk-discuss/2017/09/Hong%20Kong-學生會-中文大學-20170911041117_dbb5_large.jpg" alt="">
+<figcaption>中大社會科學院檢視和探討政政系與其他課程的資源，或將政政系與其他課程合併。資料圖片</figcaption>
+</figure>
+
+### 社科院一學系三課程參與研究
+
+中大社會科學院於9月成立跨學科課程委員會，並在委員會下設立研究小組，檢視和探討如何更有效運用學院在不同課程中的教學資源，據悉除政治與行政學系（政政系）以外，還有三個課程參與研究小組。
+
+眾新聞向社會科學院副院長、新聞與傳播學院教授蘇鑰機查詢檢討計劃。身為研究小組成員的蘇鑰機未有透露成員名單，以及尚有哪些課程參與，僅指是社科院內的課程。有報道指政政系或會與其他學系合併，蘇鑰機強調沒有其他學系參與今次檢討。
+
+目前中大社科院轄下除了各個學系，亦有5個課程，包括城市研究、全球傳播、全球研究、數據科學與政策研究、性別研究。據眾新聞了解，全球研究和數據科學與政策研究，是其中兩個參與檢討計劃的課程，但是否與政政系合併則未有定案。
+
+<figure>
+<img src="https://web.archive.org/web/20220117061654im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/中大新傳系-蘇鑰機-中文大學-20211126195304_2f85_large.jpg" alt="">
+<figcaption>中大社會科學院副院長、新聞與傳播學院教授蘇鑰機。中文大學圖片</figcaption>
+</figure>
+
+蘇鑰機表示，檢討和修訂社科院內的課程是恆常工作，而今次計劃亦與政政系的收生情況，以及社會情況有關。他稱小組仍未正式開過會，亦未決定成員分工，但相信下月會召開首次正式會議，現在談研究方向是言之尚早。但他承認，將政政系與其他課程合併，是研究小組的考慮之列。他指目前政政系與社科院其他課程的資源重複、內容相關，認為合併能達致互補，更好善用資源。他又透露，初步接觸其他參與計劃的課程成員，亦有意與政政系合併。
+
+但合併之後，政政系會否繼續存在？蘇鑰機指研究小組工作仍未展開，現階段「答唔到」。不過他個人認為，政政系歷史悠久，是中大社科院內十分重要的學系，強調政政系課程仍會存在，不過學系可能會以新面貌示人。「唔會重組之後無咗（政政系），唔覺得個機會會有。」
+
+### 教職員：「殺系」不會是方向
+
+有不願具名的政政系教職員向眾新聞表示，計劃仍在很初步階段，但相信「殺系」不會是方向。《明報》日前報道，引述中大社會科學院院長趙志裕稱「並沒有脅迫他們，政政唔係被抬上轎。」該教職員指出，現在商討仍未正式開始，政政系是否「上轎」是言之尚早，強調政政系可自行決定是否「上轎」。
+
+<figure>
+<img src="https://web.archive.org/web/20220117061654im_/https://hkcnews.com/news_新聞/hk-discuss/2019/08/中大政政系-迎新營-20190806200001_1272_large.jpg" alt="">
+<figcaption>中大政政系今年的收生分數和人數均創下設立中學文憑試以來新低。資料圖片</figcaption>
+</figure>
+
+趙志裕向眾新聞表示，研究小組旨在探討如何更有效運用學院在不同課程中的教學資源， 為學生在每一課程中有更多跨學科選擇。他稱政政系本年度的收生確實遇到挫折，但強調早於一年多前， 政政系內已提出課程改革， 鼓勵學生參與更多跨學科學習、實習等， 讓政政系的課程更多元化。他又指，研究小組的討論是一個完全開放的過程，學院沒有就研究定下時間表， 將由小組自行決定。
+
+中大政治與行政學系成立於1970年，今年大學聯招，政政系的收生人數和分數大跌。根據數字，今年政政系只錄取25名新生，較去年的37人下跌逾三成。而聯招報讀政政系的人數，亦由去年1158人，急跌至今年的876人，下跌24%。兩個數字均為設立中學文憑試以來最低。收生分數方面，以4科主科和2科成績最佳的選修科（4+2）計算，政政系收生中位數由去年的28分跌至25分。

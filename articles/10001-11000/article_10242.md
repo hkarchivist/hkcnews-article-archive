@@ -1,0 +1,75 @@
+---
+title: "【空污追兇】巴士車長多患呼吸系統毛病　醫生：戴口罩零幫助"
+date: "2018-02-22"
+last_updated: "2018-02-22 19:11:57"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "健康空氣行動"
+  - "巴士車長"
+  - "NO2"
+url: "https://web.archive.org/web/20210919121109/https://www.hkcnews.com/article/10242/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-no2-10290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/10242/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-no2-10290/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【空污追兇】巴士車長多患呼吸系統毛病　醫生：戴口罩零幫助
+
+「健康空氣行動」研究發現，馬路上其中一種主要空氣污染物二氧化氮（NO 2 ）的濃度，持續均介乎於120至150微克／立方米，比世衞標準高逾兩倍。對於長期在馬路上工作的巴士車長有何影響？他們又如何自救？
+
+有份參與研究的兩名車長接受眾新聞訪問時都指，行內不少人都患有呼吸系統毛病，他們平日行車時經常覺得喉嚨乾涸、鼻子癢、咳嗽，出入隧道更容易感到疲倦。其中，自幼就患有鼻敏感的羅志輝，入行數年後病情明顯惡化，近年要恆常服藥控制病情。惟空氣污染對健康的影響，往往不會即時浮現，而是日積月累而成，他們亦無從確定上述健康問題與空氣污染的有多大關係。
+
+受訪車長指，他們一般會用戴口罩、多飲水、用冷毛巾抹面等方法，來應對空氣污染帶來的不適反應。不過，醫生指出，空氣污染物是可吸入的（respirable），馬路工作者避無可避，即使戴口罩亦「零幫助」，根本的改善辦法是政府帶頭推動減排。
+
+【空污追兇】專題報道： [hkcnews.com/roadsidepollutants/](hkcnews.com/roadsidepollutants/)
+
+<figure>
+<img src="https://web.archive.org/web/20210919121109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/新巴-巴士車長-20180220170517_1689_large.jpg" alt="">
+<figcaption>面對馬路上的廢氣，不少巴士車長都選擇戴口罩「自保」。不過，醫生指，除非戴N99口罩，否則一般口罩無法起保護作用。</figcaption>
+</figure>
+
+現年60歲、駕駛巴士超過20年的城巴職工會外務理事長、城巴車長羅志輝（輝哥），入行之前已經患有鼻敏感。輝哥指，以前鼻敏感病情較為輕微，只有轉天氣的時候才會發作，他不需要恆常吃藥。不過，他入行3、4年後，已逐漸感到鼻敏感惡化，而近7、8年情況更差，他目前一個星期要吃兩日鼻敏感藥，「鼻敏感最嚴重，食咗（鼻敏感）藥都OK嘅，但過兩日又打乞嚏，要再食藥。」
+
+輝哥主要駕駛99（筲箕灣至海怡半島）、592（銅鑼灣摩頓臺至海怡半島）、171（海怡半島至荔枝角）巴士線。他指出，隧道口往往空氣質素較差，他駕駛行經香港仔隧道及紅磡海底隧道的171線尤其覺得辛苦，「由海怡半島開出，去到海底隧道突然塞車，等幾分鐘都冇乜嘢，但幾分鐘之後，出嚟就開始流鼻水，或者個鼻癢，最易（鼻敏感）發作就係嗰時。」
+
+輝哥表示，他行車時會盡量行左線，避免「迎面」吸入前面車輛車尾右邊死氣喉排放出來的廢氣。平日駕駛時，他間中感到喉嚨「涸」，唯有盡量多喝水，舒緩情況。他亦定期看醫生跟進鼻敏感，「醫生話，除非你去啲空氣清新啲嘅地方，如果唔係都好難根治到，始終出面空氣都比較污濁，對鼻敏感有影響。」對於「健康空氣行動」的研究發現馬路空氣污染嚴重，輝哥坦言不覺得太緊張，「我哋日日都咁揸車，已經有慣性。」
+
+
+{{< video src="//web.archive.org/web/20210919121109if_/https://www.youtube.com/embed/CQY-WQOQ4EA" >}}
+
+
+同樣今年60歲的巴士業職工會聯盟主席、新巴車長林錦標（標哥）則表示，過去缺乏資訊，一直不清楚空氣污染的嚴重性，今次與「健康空氣行動」合作研究，他希望得到更多相關數據，推動加強對車長、乘客的保障。「我哋巴職聯方面都會向運輸署、環保署同巴士公司開會，商討車廂裡面空氣質素符唔符合安全，我諗好多乘客都唔會知道原來有咁嘅事。」
+
+據入行40多年的標哥觀察，不少伙記都「無緣無故」有上呼吸道毛病，「有啲（原本）好健康嘅伙記，都患呢啲疾病。其實呢啲係累積嘅。」他目前身體情況良好，惟容易患傷風、感冒。
+
+標哥駕駛時會開窗及開生風，亦會全程戴口罩。「空氣好乾涸，我成日都要飲水。好多伙記都帶定水上車，一擺低架車就飲啲。」他續指，人多繁忙時間或下雨天，空氣會比較侷促，駕駛時容易昏昏欲睡。「入隧道係最辛苦，有好多伙記入大老山隧道，一入去成4、5分鐘先出到嚟，啲伙記好辛苦，通常都帶定啲食物、有啲冰巾（凍毛巾），我哋整定去，一有唔妥就抹面。」
+
+
+{{< video src="//web.archive.org/web/20210919121109if_/https://www.youtube.com/embed/SuShTmeBdXg" >}}
+
+
+參與研究的4名巴士車長，他們帶著的NO 2 監測盒子於執勤時錄得的讀數介乎122.3至145.7微克／立方米。任職車房技工的梁錦強（強哥）亦有參與研究，他攜帶的盒子在車廠錄得的NO 2 水平亦高達133微克／立方米，與馬路情況不遑多讓。
+
+強哥現年55歲，入行逾30年，見過不同年代、不同型號的巴士。他憶述，入行早期所見的巴士，會排放大量黑煙，「我經常收工呻鼻涕，張紙巾都黑晒。嗰個年代好犀利，嗰時啲車冇咩指標，冇咩監察呢啲煙嘅排放。」90年代香港陸續引入歐盟巴士後，情況已大有改善。
+
+強哥坦言，以前對空氣污染物的認知不多，「淨係知道係黑煙，污糟邋遢，唔好吸咁多，盡量避免……但可能以前後生，就少啲（病），但到年紀大，我30歲嗰時，就喉嚨聲沙、咳、心口翳焗，周不時都有。」他引述醫生稱，他有上呼吸道疾病的病徵，但成因不明。強哥指，行內不少人同樣有咳嗽、聲沙等問題。
+
+他認為，空氣污染對人體的影響很「無形」，「唔舒服有試過，但係咪關乎空氣質素，我哋證實唔到。」對於今次研究的結果，強哥直言不感到驚訝，但仍會擔心，「唔擔心就假，自己健康嚟㗎嘛。年長累月吸埋呢啲嘢，始終對人體有害。但現階段政府對動力唔係咁強，用電動車嗰啲唔係推得好強，我哋香港市民，難聽啲係要面對現實，都要捱住呢啲（污染物）。」強哥認為，巴士公司及車長在馬路空氣污染方面可以做的有限，但對於車廠內的空氣污染，技工的角色亦較被動，惟巴士公司可以設置空氣監測器，並改善抽風系統，令排氣口遠離車廠，「而家抽死氣、吸生氣（口）都係喺工場門口，啲風一吹，排出去嗰啲死氣又吹返入去，困喺裡面。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919121109im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/塞車-交通-私家車-20171206161647_2a37_large.jpg" alt="">
+<figcaption>巴士車長均指，隧道是空氣質素差劣的「黑點」之一。資料圖片</figcaption>
+</figure>
+
+在中環私人執業的兒童呼吸科專科醫生譚一翔坦言，對於大氣中的空氣污染物，市民可以做的防範措施很少，「除非你唔出街，但仲要希望係你屋企個空氣環境好啲喎，一係你離開香港。」至於路邊空氣污染問題，一般市民則有辦法避免，「你知道路邊污染情況邊度最犀利，你可以唔去嗰度，呢個係我哋大家唯一自保嘅方法。」不過，戶外工作者就避無可避，「揸車嗰啲都可以喺架車都裝個空氣清新機，但如果係喺路邊工作，譬如掘路，咁就冇得搞㗎喇。」
+
+有巴士車長會戴口罩防廢氣，不過，譚一翔指，除非戴N99口罩，否則一般口罩毫無作用，「戴口罩個幫助係零，因為空氣污染啲塵粒係respirable（可吸入的）。」
+
+「NO 2 好大問題係（來自）汽車廢氣。近年政府曾經試過一段時間推動電車，但唔知點解佢突然之間停止咗個進展，電車增長自然唔係有咁多。車嘅數目一路增加，NO 2 自然係搞唔掂，一定搞唔掂……喺香港咁講求效率，你叫啲揸車嘅唔好揸車，搭車嘅搭少啲車，呢個係好困難嘅。政府要帶頭做（減排措施），例如立法，或者提供incentive、津貼，令到佢（司機、乘客）有興趣、有好處，咁先會有機會。」譚一翔早已留意到交通引致的空氣污染問題，他身體力行減少駕駛私家車，近年亦改用電動車。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919121109/https://www.hkcnews.com/aboutus/#subscribe)

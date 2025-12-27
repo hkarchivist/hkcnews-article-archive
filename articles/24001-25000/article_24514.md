@@ -1,0 +1,108 @@
+---
+title: "8.31太子站被捕負傷　90後青年停工不停抗爭：一日未死都會出嚟"
+date: "2019-10-31"
+last_updated: "2019-10-31 02:16:41"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "雨傘革命"
+  - "雨傘運動"
+  - "umbrella movement"
+  - "umbrella revolution"
+  - "非法集結"
+  - "831警察太子站打人"
+url: "https://web.archive.org/web/20210926192026/https://hkcnews.com/article/24514/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24541/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/24514/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24541/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 8.31太子站被捕負傷　90後青年停工不停抗爭：一日未死都會出嚟
+
+8.31太子站事件的陰霾，在香港人心頭縈繞不散。兩個月過去，當晚在月台被捕、捱過多下警棍的Kelvin（化名）憶述事發經過，卻是一派從容：「一開始就有畀人射死嘅心理準備，已經唔係被捕，被捕好小嘢。」
+
+5年前在金鐘佔領區後方「齋坐」的少年已經長大，今次決心上前線保護幼小，即使被捕，仍然不悔、不退。「我一日未死、一日未入監獄，仲行得走得，我都會出嚟。」
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/831警察太子站打人-20191030162423_1907_large.png" alt="">
+<figcaption>Kelvin是太子站月台首批被捕者之一（相片中人並非受訪者）。Pakkin[email protected]Post影片截圖</figcaption>
+</figure>
+
+8.31原是民陣發起人大落閘五周年大遊行的日子，惟遊行遭警方發出反對通知書而取消。大批市於是自發到港島多處「行街」，Kelvin當日是港島群眾的一員。黃昏時份，港島的群眾陸續轉場至尖沙咀及旺角，Kelvin隨後改到旺角，但只趕上撤離旺角人潮。家住新界的Kelvin，便跟大隊乘搭港鐵離開旺角，登上往調景嶺方向的列車，列車到太子站時突然停駛。
+
+Kelvin憶述，他出到月台沒多久，迎面見到一批速龍小隊警員從電梯衝下月台。他們見到一身黑衣的Kelvin，就指着他衝上前，三名速龍將他按在地面，其中一人壓住他的背脊，令他動彈不得。另有速龍卻說他跑，至少一人揮警棍打他下身。Kelvin說，雙腳被打了約6棍，直至壓住他的速龍叫其他速龍停手，並為他上索帶，其他速龍才沒有再打他，有警員其後取走他的背囊。
+
+Kelvin與另一名男被捕者被帶到月台盡頭一處等候，其後陸續有多名男被捕者被警員帶到該處，累積有二十多人，故此Kelvin相信，他是月台最早一批被捕者之一。他們被要求一字排開，所有人面向牆壁，不得四處張望，也不可交談，而深近視的Kelvin在被捕時眼鏡被打甩，他可以看到的事物就更受局限。Kelvin憶述，有部 份受傷 的被捕者被帶到其他地方，但他見不到他們的去向。而他在太子站內，一直都沒有見到消防員或醫護員。Kelvin被警棍打傷腳，但沒有創傷流血，他亦沒為意傷勢，故未有要求醫療服務。
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/831警察太子站打人-太子站-警察-20191029213954_20cb_large.png" alt="">
+<figcaption>Kelvin及其他被捕者被警察要求面向牆，不得與張望或說話（相中人並非受訪者）。SocREC社會記錄協會影片截圖</figcaption>
+</figure>
+
+等候兩個多小時後，Kelvin和其他被捕者被警員帶到上一層月台。Kelvin動身起行，才發現其中一隻腳行動有困難，「膝頭一行就痛」，那時他提出要去醫院，但警員說「去咗差館先啦」，他最終和其他被捕者乘坐特別列車前往荔枝角，再被送到葵涌警署。Kelvin說，所有被捕者在太子站現場被告知他們是涉嫌非法集結被捕，有人到警署後被加添罪名，例如有人被搜出雷射筆，便加上藏有攻擊性武器罪名。
+
+Kelvin記得，葵涌警署有一塊被捕者資料板，他見到共有70多人被捕，部份人去了醫院。當晚，他們在警察輪流做各式程序，包括登記、影相、搜袋、搜身、打指紋等。Kelvin指，他們被影相兩次，一次沒有裝備，一次有裝備，有被捕者拒絕戴上裝備拍照，但警員發惡：「叫你戴就戴啦」，叫他們「合作」，Kelvin被迫戴裝備拍照。 到搜袋時，他發現其背囊多了一個不屬於他的面罩，他即時向警員反映，但對方反駁：「喺你個袋出現，就係你㗎啦。」據Kelvin了解，其他被捕者指的袋、背囊亦有被「加料」。
+
+Kelvin指出，警員對於被捕者要求打電話給律師、去醫院，甚至去洗手間的要求，都一律被拖延。他們被要求在律師不在場的情況下錄口供，有被捕者堅持等律師來，被約10名警員包圍施壓，Kelvin不清楚那些警員對該人做了什麼、該人最終有否屈服。Kelvin則決定自行錄口供，「因為有冇律師，我都係話『 我冇嘢講』」。事實上，他在警署持續提出見律師的要求，但警方只是反覆說「安排緊」，結果他尚未有機會打電話，已經有律師主動來到警署找他，他相信是被捕時有人聽到他喊出名字，並為他聯絡義務律師。
+
+
+{{< video src="https://web.archive.org/web/20210926192026if_/https://www.youtube.com/embed/vIau2kwxzZA" >}}
+
+
+入「臭格」之前，一眾男被捕者排隊等候被搜身。Kelvin形容，搜身的地方並不是一間密閉房間，而是警員用兩塊「壁布板」間出來的空間，兩塊板「中間有一大條罅」，等候搜身的被捕者在壁布板外仍可窺視搜身情況。警方沒有告訴Kelvin會如何搜身，他從罅隙見到板內的被捕者脫衣，才知道要脫衣搜身，而警方一直未有解釋原因。Kelvin排隊中途，有警員指他們該批被捕者被扣押達將近48小時，指示他們先處理保釋手續，搜身一度暫停。及後，他只需接受隔衫搜身，不久後保釋離開警署。Kelvin其後自行到醫院求醫，照X光確認沒有骨折。他再去看中醫，中醫指他腳部軟組織受損，要他持續覆診，估計約3個月才復原，「而家跑得多或者行得多會痛。」
+
+事隔個半月受訪，Kelvin說被捕的情況比想像中「輕微」。
+
+> **我準備好斷一、兩隻手，但最尾好似乜事都冇，比想像中好彩。其實一開始（抗爭）就有畀人射死嘅心理準備，已經唔係被捕，被捕好小嘢。**
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2017/10/雨傘運動-眾說-佔中-20171001073428_1342_large.jpg" alt="">
+<figcaption>2014年雨傘運動，是Kelvin參與社運的開端。飄楊攝</figcaption>
+</figure>
+
+Kelvin以前沒有那麼「熱血」。2014年雨傘運動時，他形容自己只是與朋友在佔領區大後方「坐吓、傾吓偈」、「湊人數」，參與度並不高。79日後清場，他未有很大感觸。
+
+Kelvin坦言，5年前， 他已經隱隱感到制度出問題。他在新界長大，對於涉及中港兩地、城市發展、人口等政策問題都有切身體會：自由行、水貨客充斥小社區、搶購奶粉；街坊小店逐漸換成名店、連鎖食肆、藥房；小學生用普通話交談，說不出純正廣東話……雨傘運動爆發，他感覺到改變社會的機會，於是不時到現場支持，雖然未竟全功，但他當時認為尚有機會，未感絕望。
+
+傘運之後，Kelvin更留意政治，及後兩年多名區議會及立法會的參選人及議員被DQ，才令他感到悲觀，「除咗梁天琦，游蕙禎佢哋入咗立法會先畀人DQ，根本就唔使玩，咁樣破壞個遊戲規則，你自己玩晒。」此後，他意志消沉，放棄政治參與，亦不想再接收任何政治新聞。
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2018/05/梁天琦-20180518235421_e328_large.jpg" alt="">
+<figcaption>Kelvin的政治立場傾向本土派，曾於2016年立法會新界東補選投票支持梁天琦。隨後包括梁天琦在內多人被DQ，令Kelvin感到絕望。蕭雲攝</figcaption>
+</figure>
+
+今年6.9百萬人上街、6.12金鐘催淚彈橫飛，Kelvin仍然不為所動，「因為已經決定咗唔理（香港）。」到6.16，他相隔5年再次走上街頭，與200萬港人並肩同行。
+
+> **最大原因係梁烈士，6.15佢自殺，去叫醒我哋啲人，我嗰時就諗到，呢件事唔止係關乎我一個人。**
+
+此後，Kelvin幾乎每一次遊行、集會都有出去，作為和理非一分子。7.1下午，Kelvin與「黃絲」媽媽一同遊行。他知道另一邊廂，立法會有衝擊，已經想到前線幫手，惟不能放下媽媽。
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/七一衝擊立法會-立法會-20190709204651_e235_large.jpg" alt="">
+<figcaption>7.1立法會衝突，觸發Kelvin上前線抗爭的意欲。黃思銘攝</figcaption>
+</figure>
+
+7.14沙田遊行，Kelvin再次與媽媽上街。他憶述，當和平遊行變成警民對峙，他感到會「有事」，便叫媽媽先行回家，他獨自留下。那時他連防護裝備都欠奉，只有一個單薄的口罩，他沒有走在最前線，但一心留到最後，做中場、後勤支援。入夜後，遊行人潮退到百步梯一帶，並開始散去，他以為行動結束，於是回家。「嗰陣冇諗住警察會入商場，啲人都散咗好多。」
+
+然而，眾所周知，大批警察隨後進入新城市廣場，與示威者爆發流血衝突。Kelvin在家中看到那些擦身而過的廝殺畫面，尤感難受，「個感覺係……點解我會走咗？」
+
+7.14之後，Kelvin開始添置裝備，並加入前線，主要負責「滅火」。Kelvin說，經過5年，他覺得自己現在更有能力，可以為運動付出更多。
+
+> **以前（雨傘運動時）仲細，18、19歲，冇呢個諗法要上前線去保護其他人。今次見到有好多後生嘅（抗爭者）出咗嚟，學生、十零歲嗰啲，會有個諗法：如果5年前成功嘅話，佢哋咪唔使出嚟。我又未去到自責，只不過係諗，如果而家可以做多啲，咁咪做多啲囉，唔使等將來後悔。**
+
+Kelvin是藍領技工，按工作量計酬，多勞多得。近月他因應抗爭活動而減少工作，「（收入）少咗都有一半，因為星期六、日係最多單做。」他為參與8.31遊行、9.1塞機場、9.2三罷，沒有在那三天安排工作。然而，8.31被捕後，他被扣留近48小時，最終無緣參與塞機場、三罷集會。
+
+因為腳傷未癒，Kelvin目前全面停工，但仍繼續參與反送中抗爭。身體未能應付前線工作，他便幫手做文宣、出國參與「民間外交」，或在街頭中、後方支援。Kelvin明言，被捕不損其抗爭決心，痊癒後定會重上前線。
+
+> **（香港）嚟到最後幾步，政府係咁推《國歌法》嗰啲嘢，啲政策、條例一步一步收窄（公民的自由），差唔多係抹煞我哋『香港人』呢個身份。我一日未死、一日未入監獄，仲行得走得，我都會出嚟。**
+
+<figure>
+<img src="https://web.archive.org/web/20210926192026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/10/國際特赦組織-831警察太子站打人-抗爭-20191029214625_285f_large.jpg" alt="">
+<figcaption>Kelvin早前與其他抗爭者與國際特赦組織人員會面，親身講解香港反送中運動的情況。Kelvin提供</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210926192026/https://hkcnews.com/aboutus/#subscribe)

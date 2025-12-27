@@ -1,0 +1,48 @@
+---
+title: "辨識聽力障礙你要識"
+date: "2019-12-06"
+last_updated: "2019-12-06 10:44:25"
+author: "與孩子同行之道"
+category: "眾說"
+tags:
+  - "兒童"
+  - "小孩"
+  - "言語治療"
+  - "聽力障礙"
+url: "https://web.archive.org/web/20220519010818/https://www.hkcnews.com/article/24531/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24531/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 辨識聽力障礙你要識
+
+【撰文：梁皓然】   
+ ***作者是聖雅各福群會樂寧兒童發展中心言語治療師***
+
+幼兒從出生開始，不斷透過五官感知去探索世界和學習，其中聽覺對學習語言方面扮演著十分重要的角色。我們依靠聽覺接收聲音訊息，這些訊息包括環境聲音及語言聲音，大腦把這些訊息與視覺、觸覺等訊息整合，讓我們知道這些聲音的意義，學習理解語言；此外，我們亦透過聽覺回饋機制，自我監察發音的準確度。換言之，假若我們的聽覺受損，我們便不能接收所有聲音訊息，直接影響到語言的理解及發音能力。因此，及早發現幼兒潛在聽力障礙十分重要，家長們可以在日常生活中觀察子女有否出現以下情況，考慮是否需要替子女檢查聽力。
+
+<figure>
+<img src="https://web.archive.org/web/20220519010818im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/聽障-兒童-聽力障礙-20191206103443_9315_large.png" alt="">
+<figcaption>聽力障礙會妨礙兒童的語言和發音發展。</figcaption>
+</figure>
+
+### 1)對聲音欠缺反應，找不到聲音來源
+
+聽力正常的幼兒，大多會對一些日常的環境聲音作出反應，例如門鈴及電話響聲、水喉流水聲、成人說話聲等，在寧靜的環境中，他們能聽到小鳥的叫聲、滴水聲、風吹動樹葉發出的「沙沙」聲等，他們會嘗試尋找聲音來源，並對聲音表示好奇和定睛望著發出聲音的位置。如果幼兒對上述聲音時常欠缺反應，有可能聽力已局部受損，而假如幼兒的聽力嚴重受損的話，有機會連叫喊聲和吸塵機等聲音也無法察覺。
+
+### 2)要求別人重覆說話及提高聲量
+
+一般兒童在專注的情況下與別人溝通，無需經常要求他人重覆說話或刻意說得大聲一點；但弱聽的兒童在接收聲音的時候會「打折扣」，往往未能完全接收所有訊息，於是他們會要求別人多說一次，讓他們有多一次機會聆聽遺漏了的訊息；而有些兒童更會直接地要求別人說大聲一點，令他們有更大機會可以聽得到。
+
+### 3)側起一邊耳朵聆聽並顯得吃力
+
+聽障可以是一邊耳朵的，如果兒童右耳受損而左耳聽力正常，他在聆聽時會傾向把左耳靠近說話者，相反，如果兒童左耳單邊受損，他在聆聽時會較倚賴右耳，所以，兒童習慣側起一邊耳朵聆聽，可能是單耳聽力受損的現象。此外，若兒童在聆聽時經常有皺眉頭、需要很花氣力才聽得到、表現迷網等情況，亦可能是聽力出現問題的警號。
+
+如果家長懷疑子女有聽力問題，可找聽力學家進行聽力測試，盡早確定聽障程度，接受適切的治療。
+
+---
+
+![博客 | 與孩子同行之道](https://web.archive.org/web/20220519010818im_/https://www.hkcnews.com/uploads/avatars/f75a67ae-df88-4561-9478-a8890cad0546.png?1991682236)
+
+**博客 | 與孩子同行之道**
+
+【與孩子同行之道】本欄作者是樂寧兒童發展中心同工。樂寧中心由聖雅各福群會一群關心兒童成長發展的專業人員於2005年成立，致力為有發展障礙的兒童及正在輪候服務的家庭提供支援。我們期望透過適切及全面的一站式服務，令兒童得到幫助。中心的專業團隊包括社工、臨床心理學家、言語治療師及職業治療師等，多年來已為超過一萬多名兒童及其家長提供服務。歡迎聯絡：[email protected]

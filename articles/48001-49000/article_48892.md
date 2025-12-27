@@ -1,0 +1,59 @@
+---
+title: "【8.25深水埗衝突】法官批被告旁聽市民用電話或藐視法庭　警告沒收手機查上線時間"
+date: "2021-12-10"
+last_updated: "2021-12-10 17:19:11"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "深水埗站"
+  - "藐視法庭"
+  - "非法集結"
+url: "https://web.archive.org/web/20220519042917/https://hkcnews.com/article/48892/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48905/%EF%BF%BD%EF%BF%BD%EF%BF%BD825%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48892/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48905/%EF%BF%BD%EF%BF%BD%EF%BF%BD825%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【8.25深水埗衝突】法官批被告旁聽市民用電話或藐視法庭　警告沒收手機查上線時間
+
+前年8月25日「荃葵青大遊行」演變成警民衝突，當晚多人於深水埗警署一帶被捕，9名涉非法集結的被告今(10日)在區域法庭繼續受審。審訊途中，法官李慶年先指有被告在被告席玩電話，其後再稱留意到不少旁聽人士用電話傳訊息、看新聞，又在庭上睡覺，認為關乎到審訊公平性及旁聽禮儀的問題。李官警告如發現情況持續，他會責成保安沒收手機，檢查最後上線時間，「睇下有冇藐視法庭嘅情況」。
+
+控方今日傳召警員14767盧俊禮（譯音）作供，他拘捕本案第一被告葉姓被告（17歲）。辯方盤問警員期間，法官李慶年突然問辯方律師：「我都想提出，審訊時候被告應唔應該使用手機呢？你哋（辯方）有咩意見。」
+
+### 辯方大狀：被告會用手機給予指示
+
+首被告的大律師指，被告有時會透過電話訊息給予指示，例如需要押後等等。李官稱：「好簡單之嘛， 舉手話想押後囉。」大律師同意如干擾審訊則不應使用手機。
+
+李官隨即發表意見，指留意到被告在被告席多用手機，旁聽席的人士亦然；如果檢查他們手機，上線時間是聆訊期間的話，則「全部都係藐視法庭」。
+
+<figure>
+<img src="https://web.archive.org/web/20220519042917im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/司法機構-李慶年-法官大人-20211210162437_1386_large.jpg" alt="">
+<figcaption>法官李慶年 (資料圖片)</figcaption>
+</figure>
+
+### 官：對外溝通或損公平審訊　與禁止證人旁聽同理
+
+李官批評部份旁聽人士，在法庭內用電話傳訊息、睡覺及飲水，「旁聽就係旁聽，俾個咁自由嘅環境你哋，都有要個基本旁聽禮儀」。他稱留意到每逢下午的審訊就有很多人在庭內睡覺，「旁聽咪旁聽，做咩嚟瞓覺？ 聽到手機鈴聲響，我都坐視不理啦已經」。他又指「我已經好寬鬆㗎啦，你哋鐘意飲水就飲水，休息就休息」，他認為即使審訊沉悶，也未至於要拿手機出來。
+
+李官解釋，旁聽人士不應在法庭內用手機，甚至與外溝通，是關乎到審訊的公平性問題，「點解唔俾啲證人入嚟聽審？就係驚佢會妨礙司法公正」，所有旁聽人士均應將手機調校到飛行模式。
+
+李官說，如再遇到同樣情況，「旁聽嘅人唔係嚟旁聽，係瞓覺、睇新聞、傳訊息；受審嘅被告唔係專注本案，喺度玩手機」，他將會責成保安沒收手機並檢查，「睇下有冇藐視法庭嘅情況」。李官稱不會再提醒，亦不會點名，認為旁聽人士「大個仔喇，做返成年人應做嘅嘢」。
+
+### 警告如干擾審訊將採行動　「盡返你旁聽禮儀嘅責任」
+
+李官特別提到，記者有監察的天職，或有需要用到手機，但「旁聽有旁聽者嘅禮儀，被告有自己應有責任」。李官最後重申，如審訊受到干擾，就可能提升級別，即沒收手機檢查；如有證據顯示違反法庭命令，法庭會有行動，「你有嚟旁聽嘅權利，就要盡返你旁聽禮儀嘅責任」。
+
+<figure>
+<img src="https://web.archive.org/web/20220519042917im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/825荃葵青集會-深水埗區-非法集結-20211206183206_246b_large.png" alt="">
+<figcaption>警方案發當日在深水埗驅散及拘捕。(資料圖片)</figcaption>
+</figure>
+
+案發時隸屬西九總區應變大隊的警員盧俊禮（譯音）供稱，當日在深水埗警署外組成防線，150米外的西九龍中心附近有約百名示威者在馬路上聚集，部份人著黑衫黑褲及戴頭盔，有人叫囂，亦有人用雷射筆照警察。
+
+### 示威者跑走時跌低　辯方爭議並非被告
+
+警方舉藍旗及警告後推進驅散，當盧跑到長沙灣政府合署外時，他稱見到25米外一個穿戴黑頭盔、防毒面罩、黑背囊、黑衫黑褲的示威者在欽洲街東北行車線上，右手拿著一支黑色行山杖向長沙灣方向跑。但該人突然調頭，「向返我個方向跑，我都留意到， 佢嘅身後都有其他警員」。其間該示威者失平衡自己跌低，行山杖則跌在身旁。
+
+盧隨即上前把他按在地上，當時男子的雙手「收喺心口位置」，盧將他雙手拉出並反手上膠手扣，以非法集結罪名拘捕。辯方不爭議被告被捕，但爭議跌低的人並非被告。
+
+9名被告被控前年8月25日在深水埗警署和長沙灣道交界的欽洲街參與非法集結。首被告葉姓學生另被控同日在深水埗警署和福華街交界參與非法集結。
+
+案件編號：DCCC 386/2020

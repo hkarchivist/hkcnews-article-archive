@@ -1,0 +1,60 @@
+---
+title: "港人選擇走　林鄭說尊重　中央施懲罰"
+date: "2021-01-29"
+last_updated: "2021-01-30 04:07:53"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "BNO"
+  - "bno passport"
+  - "bno 護照"
+  - "趙立堅"
+url: "https://web.archive.org/web/20211208162211/https://hkcnews.com/article/37634/bno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37642/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37634/bno-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37642/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 港人選擇走　林鄭說尊重　中央施懲罰
+
+
+{{< video src="https://web.archive.org/web/20211208162211if_/https://www.youtube.com/embed/vTcGvNgQvXc" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20211208162211/https://bit.ly/2Cj8v4t)
+
+2019年反修例風暴後，中央全面收緊對港政策，林鄭月娥政府成為傀儡，執行中央指示，打壓民主派，收窄自由空間，社會上再出現移民潮。去年7月港區國安法生效，英國政府其後公佈將推出港人移民英國計劃，方便持有英國國民海外護照BNO港人入境居留，不少中產家庭未等待計劃細節公佈已動身赴英。
+
+去年11月，特首林鄭月娥出席電台節目時表示，施政報告希望帶給市民希望，但最終每個人選擇到哪個地方發展及安居，都是他們的自由，又說香港歷史上都曾出現類似情況，部分人見到香港發展好就會回流。她日前接受外國傳媒訪問，指看不到會有大量港人移民英國，表示會尊重所有決定移民的市民。
+
+周四（29日），《壹週刊》報道指，全國人大常委譚耀宗的長子及兒媳入籍澳洲，開設公司， 除了提供會計服務，亦從事移民顧問生意，幫香港及內地人做外國公民。譚耀宗嚴厲譴責壹傳媒集團立場偏頗，長期以來攻撃愛國愛港人士，他指出，正如天下間為人父母者，兒媳的生活和工作是他們的選擇，他會尊重。
+
+林鄭家人持有英國護照，譚耀宗長子幫港人搞移民，口口聲聲說尊重所有決定移民的市民，他們有沒有要求中央尊重持BNO港人，申請到英國居留是他們的選擇，北京應理解和尊重，並非殺氣騰騰，以懲罰他們作為反制英國政府措施，甚至威脅可能採取進一步措施。
+
+英國政府將於星期日起實施英國國民海外護照BNO簽證政策，合資格人士當日開始可以在網上登記。在北京，外交部宣佈，中方星期日起不再承認BNO作為旅行證件和身份證明，並保留採取進一步措施的權利。
+
+發言人趙立堅說，英方試圖把大批港人變成二等英國公民，已經徹底改變原來中英諒解的BNO性質，嚴重侵犯中國主權，粗暴干涉香港事務和中國內政，嚴重違反國際法和國際關係基本準則，中方表示強烈憤慨，堅決反對。
+
+北京不承認BNO作為旅行證件和身份證明，不影響持有人出入境香港，基本法條文保障香港永久性居民享有出入境自由。外國會否因為中國不承認BNO，拒絕持有人入境，現在難以估計， 但不少港人同時持有BNO及特區護照，理論上可以特區護照出入境，現階段，中央不承認BNO，實質影響未必很大，有分析認為他們將失去中國國籍、領事保護權、公民投票權，這些就是進一步措施嗎？對已決定申請英國國民身份的BNO持有人，他們還希望保中國國籍和在港投票嗎？
+
+北京在英國實施計劃前夕公佈反制措施，除了在外交角力上不能示弱外，亦有恫嚇港人用意， 特別是預告可能有其他招數，製造恐懽，令有意移居英國的港人打消念頭。假如中央希望對香港未來失去信心，選擇離開的港人留下、或他日回流，應該大大方方，尊重港人選擇，正如中央在80、90年代，甚至97回歸，對不少已移民港人具雙重國籍，採取寬鬆政策，歡迎他們回流。今日的中央政府並非如此，想走的不但不會挽留，甚至有「留島不留人」的說法。
+
+中央和港府陸續的做法和推出的政策，都有「逼港人走」的味道。政府周五（29日）公佈，就立法推行電話智能卡實名登記制度，是一個最新例子。推行實名登記制度，令人擔心政府企圖全面監控市民，特別是市民的網上活動，自由空間越收越窄，選擇今天公佈，曲線幫英國政府宣傳港人申請移民計劃。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211208162211/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211208162211im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

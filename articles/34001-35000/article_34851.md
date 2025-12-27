@@ -1,0 +1,43 @@
+---
+title: "台官員：駐斐濟代表處雙十酒會大陸官員強闖爆衝突　台人員頭部受傷"
+date: "2020-10-19"
+last_updated: "2020-10-19 15:53:30"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "斐濟"
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "雙十節"
+url: "https://web.archive.org/web/20220807151955/https://hkcnews.com/article/34851/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34860/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/34851/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34860/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 台官員：駐斐濟代表處雙十酒會大陸官員強闖爆衝突　台人員頭部受傷
+
+<figure>
+<img src="https://web.archive.org/web/20220807151955im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/兩岸關係-斐濟-台灣-20201019121447_119a_large.png" alt="">
+<figcaption>台灣駐斐濟代表處10月8日在當地酒店舉行酒會。台灣駐斐濟代表處網頁</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220807151955im_/https://hkcnews.com/news_新聞/hk-discuss/2020/10/斐濟-台灣-兩岸關係-20201019120715_2692_large.png" alt="">
+<figcaption>《亞太報道》（Asia Pacific Report）有關報道。</figcaption>
+</figure>
+
+台灣外交部表示，台灣駐斐濟代表處本月8日在當地酒店舉行雙十節酒會，其間兩名中國大陸駐斐濟使館人員先在現場外四處張望，接着短暫離開，並很快回到現場，開始叫囂、企圖強行闖入。台灣駐當地人員試圖制止，雙方發生肢體衝突，有駐處人員頭部受傷，事後到醫院驗傷。
+
+中央社報道，台灣外交部政務次長曾厚仁周一上午到立法會外交及國防委員會就台美雙邊貿易作報告時，被跨黨籍立委追問外國傳媒有關事件的報道時證實此事。曾厚仁指，事發後駐斐濟代表處立即發電向外交部詳述過程，代表處並向斐濟外交部及警方說明事發經過，提供相關人證、物證。外交部將密切觀察斐濟後續處理情形，但因為台灣與斐濟沒有邦交，處理時間可能不會很快。
+
+中央社報道指，英文傳媒 [《亞太報道》（Asia Pacific Report）](https://web.archive.org/web/20220807151955/https://asiapacificreport.nz/2020/10/19/chinese-diplomatic-gatecrash-incident-alleged-at-taiwan-event-in-suva/?utm_source=dlvr.it&utm_medium=twitter&fbclid=IwAR3pJWrKEzLEJIF0sFPvSjX32vMhFiOs0YYREtIkoYIWGXdhCoFTfHI0C3w) 等外媒有關事件的報道，指事發後斐濟警方雖到現場，但中國大陸外交人員主張外交豁免權，斐濟警方無進一步行動。據台灣駐斐濟代表處官方 [網頁](https://web.archive.org/web/20220807151955/https://www.roc-taiwan.org/fj/post/1909.html) ，有提及當日在Grand Pacific Hotel的酒會。文章指，斐濟前總理、前第一夫人、政黨領袖、國會議員、政府部門官員、友邦及友好國家領事團成員、國際組織官員、南太平洋大學、斐濟國立大學及僑界等百餘人出席，但並無提及發生的肢體衝突事件。
+
+台灣外交部亞東太平洋司司長曾瑞利補充說，中國大陸使館人員當時企圖強行拍照蒐證，了解有哪些政要出席酒會。台灣外交部已通電台灣各駐外館處，警告中方外交人員的攻擊性越來越強、恐影響各駐外館處活動，應提高警覺。
+
+曾厚仁表示，對於中方以此粗暴、非理性手段破壞和平理性活動，外交部非常遺憾，予以譴責，將持續觀察此為有計劃、普遍現象或單一事件。至於過去是否曾發生類似事件，曾厚仁說「沒有到這麼嚴重的地步」。至於為何不在第一時間向台灣民眾說明，並公開譴責中方，曾厚仁說，外交部已多方研議，但希望在對外說明前，先確實釐清所有細節。
+
+台灣外交部發言人歐江安回應傳媒查詢時稱，台灣有駐斐濟代表處人員因事件導致頭部受傷；又稱中方人員遭斐濟警方強制帶離現場，向警方謊稱遭台灣方面攻擊，企圖顛倒是非、混淆視聽。外交部強烈譴責中國駐斐濟大使館人員嚴重違反法治與文明規範的行為，並向斐濟外交部表達對中國大陸大使館最嚴正抗議。
+
+歐江安說，考量中國大陸駐外人員近來屢屢挑釁的「戰狼外交」做法，外交部已請駐處與斐濟警方保持密切聯繫，並加強未來舉辦活動的維安作業。
+
+### 

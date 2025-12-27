@@ -1,0 +1,60 @@
+---
+title: "劉江華10日前說曾與勇武者對話　林鄭今稱「確實冇」"
+date: "2019-10-29"
+last_updated: "2019-10-29 19:24:04"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "勇武抗爭"
+  - "社區對話"
+url: "https://web.archive.org/web/20210730014351/https://www.hkcnews.com/article/24505/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24505/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 劉江華10日前說曾與勇武者對話　林鄭今稱「確實冇」
+
+行政長官林鄭月娥今早主持行政會議前見記者，指政府與社會人士有進行公開或小組深度對話，澄清並無與「勇武」人士、即那些「暴力衝擊破壞社會安寧的人」作深度對話。她說，雖然在對話前，不會問及對方立場，「但我可以確實咁同大家講，係冇。」她稱，出席對話者沒有提及他們是否做過「勇武」的行為。
+
+林鄭今天的說法，與民政事務局局長 [劉江華](https://web.archive.org/web/20210730014351/https://news.rthk.hk/rthk/ch/component/k2/1487214-20191020.htm) 本月20日在商台節目的言論不同。劉江華當天說，他曾與林鄭共同參與一場與年輕人的「深度對話」，全程約4小時，參與者包括「勇武」及抗爭者。劉江華受訪後，「光頭警長」劉澤基在微博寫道：「和暴徒深度對話，包括『勇武』……」，指若屬實他只能説「不可想像」，反問「這樣還是法治嗎？」、「我日後怎樣執法？」、「真的是誰大誰惡誰正確？！公理何在？！」
+
+商台今天的 [報道](https://web.archive.org/web/20210730014351/https://www.881903.com/Page/ZH-TW/newsdetail.aspx?ItemId=1195452&csid=261_341) 引述劉江華透過新聞秘書回應，當天他受訪時提及的「勇武」，「只是指比較積極和在社會事件中走得較前的人，並非違法破壞人士。」
+
+
+{{< video src="https://web.archive.org/web/20210730014351if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F528130547982226%2F&show_text=0&width=560" >}}
+
+
+林鄭今早被問到《金融時報》早前報道指，北京有意明年3月前撤換她，她會否考慮辭職。林鄭回應，一般來說她不會評論「揣測性的報道」，指外交部對此亦有澄清，認為相關報道是「別有用心」。她重申，她作為特首及特區政府，一直獲中央支持，依法處理現時的暴力事件，「四個月前是這個立場，直至今日都是」。
+
+林鄭重申支持警方止暴制亂，指她曾經到各區警署和警察總部與警員交流，明白前線警員除了要面對前線抗暴的工作壓力，亦擔心家庭成員被起底及欺凌。有警員曾向她表示：「不怕流汗、不怕流血，但不要讓我們流淚，擔心子女的人身安全受影響」。
+
+她說，過去4個多月，社會出現不實的指控或對警員有不公平的攻擊，警員每日當更10多小時，長期受壓。她已經要求各政府部門支持警隊工作，例如路政署人員協助清理路障、食環署人員清理連儂牆等，認為止暴制亂的工作，每個部門都有能力幫助，亦需要整個政府齊心協力。
+
+林鄭續指，政府現時推出一系列紓困措施都只是治標，但治本是要盡快遏止暴力，讓社會回復平靜。她說，周日及昨晚都見到有「暴徒」隨便找到藉口，作出極端暴力衝擊或破壞商店行為，形容他們是「無日無之」找藉口，以此作為對抗政府的理由，她希望社會各界不要為少數「暴徒」的行為提供合理化藉口。
+
+<figure>
+<img src="https://web.archive.org/web/20210730014351im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/行政會議-特首-20191029134912_1d4b_large.jpg" alt="">
+<figcaption>林鄭月娥稱，她作為特首以及特區政府，一直獲中央支持，依法處理現時的暴力事件。 美聯社圖片</figcaption>
+</figure>
+
+林鄭回應台灣殺人案疑犯陳同佳刑滿出獄後，已是自由身，特區政府無法再以法律基礎扣押他。政府目前的角色是按陳同佳的要求，對他打算到台灣自首提供協助，港府不會高調處理。她又稱並非政治操作，只是一名嫌犯希望負責任，呼籲社會各界以及台灣當局，都以這個心態去處理事件。她又說，暫時不知道陳同佳何時會到台灣，據她所知，陳同佳及家人在過去一個星期，收到很多訊息，而且訊息混亂，他們需要研究及釐清，確保到台灣後會得到公平的審訊。
+
+林鄭又主動提及會非常認真地落實《施政報告》中提出的措施，並會適時匯報。她指，本周四將公布第三季經濟增長預先估計的數字，有可能出現技術性衰退，按現時評估，今年可能會錄得全年負增長，即達不到經下調後 0%至1%的增長，經濟情況嚴峻。她說，政府會密切關注經濟下行情況，不會等待財政預算案才公布紓緩措施，會與業界保持密切聯繫，聽到意見後也會作回應。她指，「撐企業保就業」是目標，呼籲立法會跨黨派議員以社會福祉為依歸，財務委員會等立法會委員會能恢復正常運作，盡快批出撥款。
+
+<figure>
+<img src="https://web.archive.org/web/20210730014351im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/林鄭月娥-行政會議-20191029165618_1999_large.jpg" alt="">
+<figcaption>女G4陳嘉怡暈倒，在旁邊的林鄭沒有作出舉動或慰問。蘋果日報圖片</figcaption>
+</figure>
+
+林鄭發言期間，在場駐守的林鄭副官、女G4警員陳嘉怡突然暈倒，在場保安員將她扶起，並帶她到一旁休息，陳嘉怡被扶離場後，躺臥在地上由保安協助，數分鐘後甦醒，她在保安陪同下離開特首辦大堂，再自行上救護車。陳嘉怡暈倒時，林鄭曾轉頭觀察，之後繼續回答記者提問。事後她離開特首辦大堂，未有上前慰問及協助陳嘉怡。特首辦回應傳媒查詢時表示，林鄭當時不知道發生什麼事，故沒有作出任何舉動，指她事後有慰問陳嘉怡。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210730014351/https://www.hkcnews.com/aboutus/#subscribe)

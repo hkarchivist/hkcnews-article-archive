@@ -1,0 +1,35 @@
+---
+title: "陳太吳靄儀函李國章　促新校長堅守院校自主"
+date: "2017-02-27"
+last_updated: "2017-02-27 14:36:55"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "陳方安生"
+  - "Anson Chan"
+  - "香港大學"
+  - "HKU"
+  - "the university of hong kong"
+  - "Hong Kong University"
+  - "李國章"
+url: "https://web.archive.org/web/20210726155725/https://www.hkcnews.com/article/2191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/2191/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳太吳靄儀函李國章　促新校長堅守院校自主
+
+港大校委會明天將會開會，預計討論啟動物色新校長安排，接替明年初提早離任的現任校長馬斐森。三位知名港大校友，包括前政務司司長陳方安生、法律界前立法會議員吳靄儀、資深傳媒人詹德隆，今日向港大校委會主席李國章發聯署電郵，促請校委會以最嚴謹的國際標準物色新任校長，及盡早交代物色細節，期望新校長必須堅守學術自由及院校自主。
+
+陳太等人在電郵中指出，接納馬斐森早前辭職的解說，但認為坊間有疑慮，馬斐森在過去兩年所遭逢的挑戰，可能促使他掛冠而去，包括佔領行動、港大校委會否決馬斐森領導的副校長物色委員會建議等，這對港大管治質素可能蒙上負面印象，也難免引起新校長申請人的關注。
+
+陳太等人促請李國章，物色新校長的程序必須依照最嚴格的國際標準進行，透明且包容兼聽，以物色具崇高學術地位、誠信、人際及管理技巧的人選。更重要是在香港關鍵時刻，新校長必須堅守學術自由及院校自主的原則，以維護港大名聲。
+
+港大過去招聘校長經過兩階段遴選，先由校委會委任校內教授組成的物色委員會，其後提交遴選委員會考慮，後者包括不同成員，例如：學院教職員、學生團體及校友。陳太等人在電郵中促請校委會參考過去的遴選程序，並由大學內具有公信力的成員領導遴選委員會，確保物色程序不偏不倚，並及早公布委員會組成及職權，將大學過去兩年名聲破壞減至最低。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726155725/https://www.hkcnews.com/aboutus/#subscribe)

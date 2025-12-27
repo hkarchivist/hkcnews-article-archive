@@ -1,0 +1,54 @@
+---
+title: "封區強檢盡顯香港悲情"
+date: "2021-01-27"
+last_updated: "2021-01-28 14:44:19"
+author: "盧子健"
+category: "眾說"
+tags:
+  - "第四波疫情"
+  - "封區強制檢測"
+url: "https://web.archive.org/web/20211208221101/https://www.hkcnews.com/article/37585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37593/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37585/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37593/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 封區強檢盡顯香港悲情
+
+佐敦封區禁足，強制檢測。政府官員説行動成功，又説汲取了寶貴經驗。官員沒有講清楚成功在那裏、經驗是什麼。我卻想起了另一個經驗。差不多十八年前，經過「沙士」慘痛一疫，香港人汲取了深刻教訓，知道公眾衞生對防止社區傳播非常重要。另外，當年淘太花園大爆發令我們知道喉管可以是病毒傳播的重要途徑。
+
+因應這些「沙士」經驗，當年的政務司司長曾蔭權做了「掃街大隊長」，政府亦承諾會處理高樓大廈的喉管問題。但一場新冠病毒大流行，暴露了香港其實十八年來沒有多大長進。現時被劃出的幾個強制檢測管制區，都有衛生黑點，另外多幢實行強檢的大廈當中，不少都存在喉管問題。
+
+<figure>
+<img src="https://web.archive.org/web/20211208221101im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/封區強制檢測-佐敦-第四波疫情-20210124180110_2e01_large.jpg" alt="">
+<figcaption>EYEPRESS照片</figcaption>
+</figure>
+
+這是因為當年董建華政府的無能嗎？抑或是由「掃街大隊長」變身為特首的曾蔭權後來變得懶怠？但今天的政府高官可以推卸責任嗎？2003年「沙士」肆虐時，林鄭月娥是社會福利署署長，理應接近社會的基層。她後來曾經出任民政事務局常任秘書長、發展局局長，應該對社區很了解，亦領導過監管大廈維修的屋宇署。至於張建宗，2003年時他是經濟發展及勞工局常秘，後來做了接近十年勞工福利局局長，不是也應該了解勞工基層的狀況嗎？今天他們以抗疫總指揮的身份，見到佐敦被封地區的景象，心內有沒有一絲愧疚？回望十八年，香港管治有如衛生黑點的後巷，藏污納垢，無法洗滌，港人怎能不感到悲哀？
+
+令人倍感悲哀的是佐敦封區不單暴露出香港公眾衛生政策和工作長期不合格，更突顯了基層市民的辛酸。
+
+美國的統計數字顯示，新冠病毒感染者當中少數族裔相對比例較高，他們的死亡率也較高。這突顯了美國的種族不平等，更突顯了階層的不平等。少數族裔中基層者眾，生活、健康、醫療等條件都較差，再加上他們很多是提供基本服務的前線工作者，難以留家工作。由於這些原因，他們較容易感染新冠病毒，甚至較容易成為重症甚至死亡，完全是「合理」的結果。
+
+香港的疫情數字沒有階層分析。但佐敦封區成為新聞焦點，令我們無法不正視疫情中基層市民的生活困境。政府提供給他們的糧食質素差，但他們平日的糧食又如何？政府呼籲他們的僱主體諒，不要因為他們無法開工而扣減工資，姑勿論他們的僱主是否大方，但他們的工種就一定有基本固定工資嗎？政府呼籲被禁足的居民諒解，但是他們活在惡劣的環境，可能手停口停，甚至可能有長期病患，在這情況之下叫苦又有誰聆聽？
+
+<figure>
+<img src="https://web.archive.org/web/20211208221101im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/佐敦-第四波疫情-封區強制檢測-20210124222550_1266_large.jpg" alt="">
+<figcaption>佐敦局部地區封閉強制檢測，住在這裡的都是基層市民，很多是少數族裔。EYEPRESS照片</figcaption>
+</figure>
+
+世界上的天災，多數摻雜着人禍，社會的弱勢社群多數是天災的首當其衝受害者，疫症亦不例外。四條街，圍封四十八小時，一萬或者八千居民，三千工作人員，七千人測試，十三人確診。這些冰冷數字可能就是高官們總結經驗時的關注重點。但這些數字背後都是人，是有血有肉的人。那些密集的樓宇，狹窄的生活空間，被遺忘的衛生黑點，映照着胼手胝足的基層市民，他們歲月風霜的面孔，面對禁足是一臉無奈。我想起了去年夏天有一次政府全日禁堂食，大雨滂沱下，有位阿伯在公園撐傘吃飯盒。他被眾新聞訪問。在表達對政府不滿的同時，他説到最後還是怪自己窮，有什麼好説。當時這句説話令我悲從中來。今日再見到佐敦、油麻地的封區，感慨萬千。難道香港悲情，沒有最悲，祗有更悲？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211208221101/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 盧子健](https://web.archive.org/web/20211208221101im_/https://www.hkcnews.com/uploads/avatars/3aef7f14-86a8-426e-8366-41a753233580.png?1762819464)
+
+**博客 | 盧子健**
+
+【盧子健・盧子健專欄】盧子健，專業公共事務顧問。自小對政治社會有濃厚興趣，曾涉足學生運動、壓力團體、政黨、非政府組織、義務公職等。1980年開始業餘時事評論，2014年告別評論界。2019年，面對逃犯條例引發捍衛基本人權自由的全民運動，腦袋無法平靜，希望以再次發聲回報社會。

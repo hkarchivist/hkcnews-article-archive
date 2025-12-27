@@ -1,0 +1,60 @@
+---
+title: "告別港孩　需從家庭教育學懂自立"
+date: "2018-09-23"
+last_updated: "2018-09-23 15:38:13"
+author: "Carrie媽媽"
+category: "眾說"
+tags:
+  - "烹飪"
+  - "親子關係"
+  - "港孩"
+url: "https://web.archive.org/web/20211204050759/https://hkcnews.com/article/15178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15179/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/15178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15179/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 告別港孩　需從家庭教育學懂自立
+
+成為媽媽後，自然多瀏覽親子平台，參考天下媽媽的「育女心經」，看看明星媽媽如何教導子女。漸漸地，才發覺資訊多數是濫竽充數，根本不適合自己的孩子。我倒不如多花一點時間與女兒相處，至少要想辦法使她們不成為「港孩」，擺脫「三低」（自理能力低、情緒智商低和抗逆力低）及「六不得」（餓不得、飽不得、熱不得、凍不得、累不得、辛苦不得）。
+
+### 自理能力由協助做家務開始
+
+回想小時候，父母皆是早出晚歸地工作，無暇打理家務，又沒有財力聘請工人姐姐。於是，我和妹妹被迫協助家務，亦因此學會打婦、洗衣服，甚至是煮飯等技能。活在當下，新世代的環境絕對好得多，工人姐姐妥善照顧我們一家的起居飲食，孩子從小就被呵護備至，根本不用捱苦。正因如此，我更需要兩個女兒學習做家務，從而訓練她們的自理能力。小女兒還小，所以暫時都是先從大女兒入手，希望她當個她榜樣。首先，我希望她先能夠自理，例如起床後要收拾自己床舖，要將自己的衣服摺好，讓她明白自己的事要自己做；然後，她每星期就要打掃地板，當然我們在需要時也會幫忙協助。隨著她們日漸長大，我決定多花心思教導她們更多家務技能。
+
+日本的幼兒教育中，早已開始培養小孩的自理能力。小孩要輪流當值日生，不僅負責擦黑板，還須打掃課室、分飯菜予全班同學、收拾碗筷等等，既可提升他們的自理能力之餘，又能培養到他們的責任感。
+
+### 近廚得食　應自小近庖廚
+
+<figure>
+<img src="https://web.archive.org/web/20211204050759im_/https://hkcnews.com/news_新聞/hk-discuss/2018/09/港孩-烹飪-親子關係-20180923152229_2bfb_large.jpg" alt="">
+<figcaption>照片由筆者提供</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211204050759im_/https://hkcnews.com/news_新聞/hk-discuss/2018/09/港孩-烹飪-親子關係-20180923152336_1c4a_large.jpg" alt="">
+<figcaption>照片由筆者提供</figcaption>
+</figure>
+
+「我煮個麵比你食」一度成為大台的經典對白，但背後亦反映了社會現象。如果你走上街頭，詢問年輕人的拿手菜式，相信煮麵應成為冠軍。俗語亦有云：「留住個男人嘅心就先要留住佢個胃」。雖然我不是要從小開始教導女兒們男女相處技巧，但總不希望她們長大後加入「煮麵大軍」，因此最近作為媽媽的我也以身作則，參與屋苑會所舉辦的煮食興趣班，回來後再讓女兒一起合作烹飪；偶爾也會參與親子興趣班。
+
+<figure>
+<img src="https://web.archive.org/web/20211204050759im_/https://hkcnews.com/news_新聞/hk-discuss/2018/09/親子關係-烹飪-港孩-20180923152202_2934_large.jpg" alt="">
+<figcaption>參與屋苑會所舉辦的煮食興趣班。照片由筆者提供</figcaption>
+</figure>
+
+這種興趣班其實是個良好的平台，好讓我們一家學習健康美味的烹調方法之餘，也能讓小孩子建立自信。要防止孩子變成「港孩」，我們先要避免成為「怪獸家長」，拋開捨不得的心態，讓孩子多參與家務。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204050759/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Carrie媽媽](https://web.archive.org/web/20211204050759im_/https://hkcnews.com/uploads/avatars/ac190f7a-57c9-43b5-8e78-296aedffdbad.png?1657799024)
+
+**博客 | Carrie媽媽**
+
+【Carrie媽媽・養兒為樂】小時候夢想當職場女魔頭，霸氣地一統江湖，但英雌難過兒女關，生下兩個寶貝女兒後，甘願退隱江湖，當上全職媽媽，展開生活嶄新且豐富的新一頁。

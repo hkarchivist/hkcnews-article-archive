@@ -1,0 +1,53 @@
+---
+title: "【截止提名】選委會多自動當選　僅2成半議席有「競爭」　法律界突變16人爭15席"
+date: "2021-08-12"
+last_updated: "2021-08-13 11:37:16"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "湯家驊"
+  - "人大政協"
+  - "選舉委員會"
+url: "https://web.archive.org/web/20221004045007/https://www.hkcnews.com/article/44360/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44368/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44360/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44368/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【截止提名】選委會多自動當選　僅2成半議席有「競爭」　法律界突變16人爭15席
+
+將會選出下屆特首及部分立法會議席的1500人選舉委員會「選舉」周四（12日）截止提名，在北京重寫選舉規則及民主派杯葛下，多數界別均協調自動當選。據眾新聞點算，僅兩成半議席、即364個議席有「競爭」，實質上只篩走其中49名參選人。不過，所有報名參選人都需要經過資格審查，目前未知道會否有人被DQ。
+
+<figure>
+<img src="https://web.archive.org/web/20221004045007im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/2021選委會選舉-選委-20210812225526_2a36_large.jpg" alt="">
+</figure>
+
+撇除北京變相「欽點」的當然及提名產生選委，選委會36個界別中13個界別有競爭，其餘全部自動當選。經協調的中資企業組成的商界（第三）、金融服務界、創新科技界、法律界、中醫和港九新界分區委員會，意外地在最後一日多了一至兩名「趕尾班車」的人報名，造成表面上「有得選」的局面，但最多席位的全國性團體卻110人全數自動當選。
+
+社福界競爭最激烈，近每兩個人爭一席；勞工界則幾乎是工聯會對勞聯；教育界則14人爭13席，其餘界別報名參選者比議席空缺多出3至8人不等。
+
+整體選委會格局仍不變，北京及親中陣營在五大界別至少三個界別有絕對優勢，過去民主派票倉則「被洗倉」變成建制互撼，商界亦難再「做王」。
+
+在1500個選委會議席中，港區人大政協及經中方機構提名等當然議席，及全國性組織港代表已佔533席。例如，藝人譚詠麟及作家屈穎妍經中國文學藝術界聯合會香港會員總會提名成為體育演藝界別選委；港大微生物學系講座教授袁國勇則經「粵港澳大灣區院士聯盟」提名成為創新科技界選委，15名院士包括港大前校長徐立之、港大化學系講座教授任詠華等也提名參選。
+
+110名全國性團體香港成員無競爭下自動當選，包括立法會梁君彥兒子梁宏正、律師會前會長林新強、「賭王」二房長女何超瓊，拔萃女書院校長靳麗娟、導演高志森、民建聯林琳、工聯會陳穎欣、聖公會教省秘書長管浩鳴等。
+
+在其餘967席議席中，過半數議席都自動當選。新增的同鄉社團、基層社團、體育演藝及文化出版、商界協調的多數界別如金融界（銀行）、商界第一（總商會）、商界第二（中華總商會）、進出口界、航運交通界、地產建造界等都自動當選。實質競爭議席只得364席，中央對選舉實際可控程度仍然極高。
+
+以14人爭13席的教育界為例，13名教育團體及學校議會代表組成一張參選名單，與第14人、微笑行動中國基金創辦人及名緩趙曾學韞競逐。類似情況出現在多個原先經協調、估計會自動當選的界別。在法律界、在港中國國企組成的商界（第三）、金融服務界、中醫界、創新科技界、港九及新界分區界別等，最後一日有建制人士報名而「突章」。
+
+其中，律師白濤（Bai Tao）報名參加法律界，預計是中國企業協會法律專業委員會秘書長白濤是同一人。資料顯示，他在1984年起開始擔任深圳經濟特區發展公司的專職法律顧問，也是第十三屆北京市政協委員及北京市朝陽區政協委員。
+
+在30張團體票獲一半提名的行會成員湯家驊向眾新聞承認，對有建制派最後一日參選感到少許意外，「因為我以為夠鐘，臨尾突然走個人出來，一啲預先跡象都無，以為某個程度協調」。他不評論中方是否刻意製造競爭局面，只說「聽說（白濤）好有來頭，無辦法，要選就選喇！」
+
+在港九及新界兩個分區委員會，西貢區議會前主席吳仕福、民建聯李嘉盈、「西九新動力」前區議員林博、沙田市中心分區委員會副主席劉德榮都在提名期最後一日報名。在金融服務界，工聯會屬下證券及期貨專業總會關注行業主任陳志華報名加入；創新科技界則有物流及供應鏈管理應用技術研發中心行政總裁黃廣揚；在歷來都協調的前中企（現稱商界三），華潤堂副總經理曹偉勇亦最後一日報名。
+
+在相信自由搏擊的社福界有23人爭12席，工聯會旗下樂群社會服務處總幹事黃萬成、廣東省政協葉振都等組成9人名單，其餘參選人是被行內形容為溫和建制或中間派，包括社工學生滿門及多次當選社福界選委的港大社工系教授陳麗雲；大灣區社聯其中兩名董事、聖公會福利協會副總幹事文孔義、復康會總幹事梁佩如，以及新思維狄志遠等。單親協會總幹事余秀珠也參選，《文匯報》今年4月引述她支持修改選舉制度，並批評過去社福界參選人不是社工，無法反映業界。
+
+資深業內人士形容，除親中陣營協調名單，其餘均是業界服務為主，與政府尤其社署關係良好，但在2019年社會運動中公開表態不多。中大社工系教授馬麗莊當時曾以家長開放聆聽年輕人比喻當下時局，希望年輕人善用他們的憤怒去改革建設社會，而不是摧毀自己和社會。
+
+勞工界共72人報名爭60席，當中工聯會有50人，勞聯則15人，其餘7人則是公務員團體代表。有份參選的高級公務員協會主席李方冲預計最後由工聯會及勞聯佔多，「一般不會霸曬，估計三幾個位置（給公務員團體）」，但他透露獲工聯會及勞聯分會提名入閘，相信到時也要政綱爭取其他工會支持。
+
+曾多次參選選委的公務員工會聯合會總幹事梁籌庭今次無再參選。他直言，公務員在界別影響不大，「在呢個環境下，唔參與好過」。他形容：「守返自己條線，保持政治中立。」
+
+相關新聞： [教育界選民暴跌98%　教評會教聯會戰選委　倡檢視教師專業拒評林鄭表現](https://web.archive.org/web/20221004045007/https://bit.ly/3fJHcTA)
+
+### [更多【2021選委會選舉】文章結集](https://web.archive.org/web/20221004045007/https://www.hkcnews.com/event/119)

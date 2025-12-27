@@ -1,0 +1,55 @@
+---
+title: "【DSE歷史科爭議】教育局詳列4點　引史料批考題不完整易誤導"
+date: "2020-05-22"
+last_updated: "2020-05-22 21:30:46"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "教育局"
+  - "教育署"
+  - "香港教育局"
+  - "DSE考試"
+  - "取消歷史科試題"
+url: "https://web.archive.org/web/20221203193058/https://hkcnews.com/article/30175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30177/%EF%BF%BD%EF%BF%BD%EF%BF%BDdse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/30175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-dse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30177/%EF%BF%BD%EF%BF%BD%EF%BF%BDdse%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【DSE歷史科爭議】教育局詳列4點　引史料批考題不完整易誤導
+
+立法會教育事務委員下周一召開特別會議，討論中學文憑試（DSE）歷史科卷一必答題，引資料詢問學生是否同意「1900-45年間，日本為中國帶來的利多於弊」，引起爭議。教育局向立法會提交的 [文件](https://web.archive.org/web/20221203193058/https://www.legco.gov.hk/yr19-20/chinese/panels/ed/papers/ed20200525cb4-607-1-c.pdf) ，詳細列出以下四項對有關試題及資料的批評：
+
+<figure>
+<img src="https://web.archive.org/web/20221203193058im_/https://hkcnews.com/news_新聞/hk-discuss/2020/05/考評局-歷史科-dse-20200515202243_24a3_large.jpg" alt="">
+<figcaption>引起爭議的歷史科考題，引述兩份資料。教育局列出相關問題。</figcaption>
+</figure>
+
+### 「提供的資料容易誤導考生」
+
+教育局指，題目引用史料不完整，極有可能引導學生作出錯誤的演繹，更可能對歷史事件建立錯誤的理解。「問題的資料D對有關的歷史事件的交代忽略了重點。資料D內的引文一及引文二，均有關三井洋行的貸款背景和條件，當中牽涉複雜史實，資料並無全面交代，且其中一項引文並沒有列出全部借款條件。」
+
+「當時，日本一早覬覦中國的資源礦產，所以利用當時民國政府缺乏資金的弱點，要求民國政府如要取得貸款，就必須讓日方取得漢冶萍公司（以下附錄）的股份，如處理不當即可能喪失經濟主權，當時舉國洞悉背後的形勢而群起反對。現時課程及課本著重的內容，均以日本侵華歷史為主，在課本內涵蓋該些歷史事件只有一言半語，即使有個別教師會在教學上提及相關歷史事件，一般不會詳細或以「利」「弊」的角度論述。一般中六的學生學習中國這時期的歷史，深度亦不會達至可以了解這些事件來龍去脈。因此資料 D 兩份引文容易令學生以為日本貸款給臨時政府，是一件好事，幫助了新政府，亦即所謂的「利」，並在答案中利用以佐證日本對中國有「利」 ， 而題目中的資料本身已讓考生對該事件得出了一個偏頗或甚至錯誤的理解。資料要求對歷史事件的認識超越學生應有水準，其片面及具引導性的資料會令考生有所誤解。更重要的是會影響考生（特別是日後不再修讀歷史的考生）對此段歷史的認識。
+
+「資料C本身也不是一個十分確切的「利」。日本駐清國公使矢野文雄有撰文提及「將來清國政府會主動不斷向我國送來學生，因此在不知不覺中我國的勢力會在東亞大陸得到增強」，也有歷史學者認為「日本政府當時想到的是通過接受清國人留學，培植一個親日的中國社會精英層而已 」。作為公開試的資料，若以此顯示有「利 」，資料 C 並不穩妥。若以此顯示有「弊」，對考生則太艱深。
+
+### 「設題方式未能符合課程及評估指引中的宗旨及目標、不宜以開放式題型提問及無法設計評分標準」
+
+教育局指：「此題目設題方式不符課程理念，未能符合《歷史科課程及評估指引》中的宗旨及目標。歷史科的課程宗旨，是讓學生從探索過去人類文明的進程，認識國家和世界的歷史，從而培養認同國家的感情，並具備人文關懷與世界視野，以及建立正面的價值觀和態度。考核內容與中四至中六歷史科課程及評估指引內的學習目標有所偏差。高中歷史科課程確認了一些基本的價值觀及態度 （例如關懷人的生命與尊嚴，肯定人類對和平、協作與繁榮的訴求等）是我們的社會以至全世界所共同接納的。因此，歷史科作為三年制高中課程 力求提供讓學生建立正面的價值觀與態度的學習經歷，也要求教師在課堂討論中盡量   
+ 引入不同的角度，提醒學生檢討及反思自己的觀點，以能對議題作出客觀持平的判斷。在完成本高中課程後，學生應能建立有責任感的公民所具備的價值觀及態度。」
+
+「題目以「利 」多於「弊」作分析維度不但偏離史實，更有違課程理念，未能符合課程及評估指引中的宗旨及目標，忽略歷史科培育人文，道德及歷史價值觀的要旨。日軍侵華暴行不可能與任何在該段時間的所謂利益作出合理比較，更遑論「利」多於「弊」。考題提問的方式沒有考慮曾受日本侵略傷害的人士情感上會感到冒犯，缺乏同理心，等同在受害人士的傷口上撒鹽。」
+
+### 「不宜以開放式題型提問」
+
+教育局指：「題目設定雖然屬開放式題型，但相關歷史事件已有主流史觀，在中學歷史課程中可爭辯的空間極少。一個「利」 多於「弊」的分析是否有空間成立？這一類沒有另一個分析結果的議題，是否適合採用開放式題型來提問？開放式題型在這些議題上是否會對學生有導向性？更何況題目的用語亦不適當，整個國家在日本侵華中受的苦難絕不適合以「弊」這一字概括。」
+
+### 「無法設計評分標準」
+
+教育局指：「在題目上述的缺陷下，論述「弊」多於「利」或「表面的所謂的『利』其實是『弊』」或「一切所謂的『利』都已被日本的侵華暴行蓋過」的分析，與「利」多於「弊」的分析在得分上如何比較？「利」、「弊」均衡分析是否應得到高分，反而有「弊」無「利」的答案因為太「一面倒」只能得低分？還是要答「弊」多於「利」得分應較高？」   
+   
+ 「在這題以「利」「弊」分析中日 1900 - 1945期間發生的歷史已明顯不合適的情況下，加上資料 C 和 D 有很大機會誤導考生，已經沒有可能為該題設計一個有意義的評分方法。如勉強評分，會對歷史教育發出一個錯誤的訊息，令學生以為歷史教育的精髓只在於強辯。事實上 ， 1900 -1945 期間日本對中國帶來的傷害，是是非分明的事，難以不帶價值觀抽離評論，以所謂「利」「弊」例子多寡平衡與否作分析的依據。如不能定出評分客觀的標準，則不能公平穩妥地批改。」
+
+「此外，就資料 D 極有可能造成的誤導 ，如果評分以考生以資料 D為「利」的例子則當錯誤的話，對考生會不公平，因為以考生所學不能合理地期望考生能從資料 D 中總結出「弊」。但如果給分，則變成以一個對歷史事件錯誤的理解佐證論據而能得分 ，有違歷史教育宗旨，把歷史題變成閱讀理解題，會產生很壞的倒流效應，嚴重損害學生的學習利益。」
+
+### 附錄
+
+據香港中文大學歷史系的中國經濟史專家全漢昇研究（《漢冶萍公司史略》 ， 香港中文大學出版社，1972 年，154-156 頁 ）， 日本對漢冶萍公司早已有覬覦之心，於是透過向臨時政府借款，提出漢冶萍公司由中、 日兩國合辦，以乘機控制該公司。漢冶萍公司擁有鐵礦、煤礦，主要生產鋼鐵，為當時重要的國防企業，其重要性不言而喻。臨時政府向日本提出借款的事宜，由漢冶萍公司的總理盛宣懷負責商談。方法是日方入股漢冶萍公司，再由漢冶萍公司向政府放款。這個兩國合辦漢冶萍公司的計劃， 為全國普遍所反對，認為公司最終會被日本所吞併，以至喪權辱國。該次借款涉及三份合同。由於全國強烈反對，有關中日兩國合辦漢冶萍公司的第一 、 二份合同取消了，只簽了資料D引文二屬第三份的合 同 。該合同一共有五項條款，但資料只引述第二及第三款的部分文句 。

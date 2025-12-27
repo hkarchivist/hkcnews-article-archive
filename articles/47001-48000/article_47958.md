@@ -1,0 +1,44 @@
+---
+title: "量子科技及其投資"
+date: "2021-11-21"
+last_updated: "2021-11-21 03:15:39"
+author: "郭偉文"
+category: "眾說"
+tags:
+  - "量子科技"
+url: "https://web.archive.org/web/20220126211001/https://www.hkcnews.com/article/47958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47959/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47958/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47959/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 量子科技及其投資
+
+<figure>
+<img src="https://web.archive.org/web/20220126211001im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/量子科技-20211121030831_2a77_large.jpg" alt="">
+<figcaption>圖片來源：維基百科</figcaption>
+</figure>
+
+相信不少人也聽聞過「量子電腦」、「量子科技」等科技名詞，但估計大多數亦不了解當中是怎麼回事。我自己絕非這方面的專家，但由於擁有物理學的學士學位、科學哲學的訓練、幾年關注這方面發展的知識，以及一些相關的投資經驗，故此亦想嘗試分享少少看法和心得。   
+   
+ 從前其實已經有「量子科技革命1.0」，當中的成品例如是半導體和激光，它們對世界的重大影響也毋須說明了。現正進行的是「量子科技革命2.0」，而我自己估計此科技革命絕對非同小可，非一般的科技革命可以相比，是會極大地、根本地改變世界！   
+   
+ 為何這樣說呢？要了解就要首先知道此科技革命所依據的科學理論——量子力學（Quantum Mechanics）——是怎麼一回事。簡言之，量子力學是迄今人類嘗試探索微觀世界的最成功的科學理論，是人類的真正偉大成就。不過，它亦為想了解微觀世界的人構成巨大的困擾，因為經過差不多一百年（是指從量子力學的正式建立計起，而非從量子的觀念首先提出計起），當中有不少奇才甚至是天才下過苦功，仍然未能解開「量子之謎」——對於應該怎樣理解量子力學的認知內容仍然沒有共識，雖然有不少的詮釋建議。那麼，量子力學為何會極度費解呢？主要是由於它兩個——奇異的——核心特性：「疊加性」（Superposition）和「纏結性」（Entanglement；又稱「糾纏性」）。有何奇異呢？這裡就不討論了，總之足夠導致一個世紀無人能解便是了。   
+   
+ 要知道的是，量子科技革命2.0主要就是要開發疊加性和纏結性的應用潛能。請想想，我們談的是人類所知微觀世界中的兩個非常奇異和核心特性的應用，其影響的範圍和程度是難以想像的。我相信，假如未來世界變得很科幻，現正積極發展的量子科技應該會起著關鍵的作用。   
+   
+ 量子科技競賽已經在國家之間、科技公司之間展開了，不少資金投入其中。投資者有何機會呢？當然可以嘗試投資已經上市的涉及量子科技的公司，然而發展量子科技在相關的大公司（如Google、IBM、Microsoft等）中所佔的業務比例還相當低，多數不能滿足專意投資量子科技者的要求（類似問題亦存在於一些相關的金融產品，如量子科技的ETF），故此可考慮投資一些已上市的專攻量子科技的細公司（問題是數量很少）。另外，當然亦可以找渠道（下面舉一例）投資一些未上市的量子科技的初創公司。   
+   
+ 投資本身已經是一件很複雜、難度高的事情（商業因素、金融因素、情緒因素等等），而再加上量子科技的高度專門性複雜性，相信會令一些欲試的投資者卻步。網海固然有大量的有用參考資訊，可是一時亦未必能找對方向；以下僅介紹三個例子以供參考。   
+   
+ 1. [Quantonation](https://web.archive.org/web/20220126211001/https://www.quantonation.com/) ：想找專家幫助嗎？這家法國公司是一個選項，他們專攻量子科技和Deep Physics的初創公司投資。團隊由幾位相關的專業人士組成，例如Dr. Christophe Jurczak是Prof. Alain Aspect（對確立量子纏結性做了重要的實驗貢獻）的學生。   
+   
+ 2. [Quantum Computing Report](https://web.archive.org/web/20220126211001/https://quantumcomputingreport.com/) ：一個有一定江湖地位的量子科技資訊網站。據我了解，負責人亦提供收費諮詢服務，而亦曾向我提供過有用的免費建議。   
+   
+ 3. [Understanding Quantum Technologies 2021](https://web.archive.org/web/20220126211001/https://www.oezratty.net/wordpress/2021/understanding-quantum-technologies-2021/) ：一本涵蓋廣泛的量子科技參考電子書，最近更新，免費下載。
+
+---
+
+![博客 | 郭偉文](https://web.archive.org/web/20220126211001im_/https://www.hkcnews.com/uploads/avatars/0e93e104-230b-4295-9ac0-1b1d8230d851.png?1940952209)
+
+**博客 | 郭偉文**
+
+【郭偉文・吐露觀】汕頭大學文學院前副教授；熱愛自由、思考和理解世界；興趣廣泛，事業心不強；電郵：[email protected]；FB：wmkwok

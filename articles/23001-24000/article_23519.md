@@ -1,0 +1,75 @@
+---
+title: "獅子山下 2019"
+date: "2019-09-14"
+last_updated: "2019-09-14 18:12:12"
+author: "黃牛山人"
+category: "眾說"
+tags:
+  - "獅子山下"
+  - "獅子山精神"
+  - "獅子山下精神"
+  - "中秋節"
+  - "逃犯條例"
+url: "https://web.archive.org/web/20221002132026/https://hkcnews.com/article/23519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23520/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019"
+original_url: "https://hkcnews.com/article/23519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23520/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019"
+---
+
+# 獅子山下 2019
+
+所謂的「獅子山精神」，香港人一直似懂非懂。政府喜歡演繹為咬緊牙關捱到發達的決心，但在2019年的中秋，真・香港人卻賦與它一個不一樣的意義。
+
+同舟人，誓相隨，無畏更無懼。同行兒女，為正義，時代革命。獅子山下，願榮光歸香港。
+
+<figure>
+<img src="https://web.archive.org/web/20221002132026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/人鏈-獅子山頭-中秋節-20190914180920_269b_large.jpg" alt="">
+<figcaption>美聯社</figcaption>
+</figure>
+
+2019 的中秋對香港人來說很不一樣。經歷了三個月的社會運動，付出了沉重的代價，五大訴求卻只勉強達成了一項。這個中秋夜，還有很多抗爭者只能在牢中望月，正義未見伸張，強權仍在橫行。大家提著印了「光復香港，時代革命」字句的燈籠跑到街上，冒著被控「非法集結」的風險，不單是為了應節玩樂，更為了更鮮明閃亮地把人民的聲音化成佳節的祝願。
+
+有人發起晚上到獅子山及太平山頂組成人鏈。尤記得「香港之路」當晚獅子山脊光鏈的震憾，那時我剛從外地回來，趕不及參與，這次我不想再錯過。
+
+這三個月來幾乎每一個星期，香港人都在締造歷史時刻。要跟上還真的需要魄力。
+
+可惜我還是遲了一步。7：45左右去到樂富地鐵站時已經人山人海，到達天馬苑的山徑入口已擠得水泄不通。有師兄從山頂回程，告訴大家獅子山已經爆滿了。雖然難免有點失望，但我也唯有從山徑入口退到竹園道附近。
+
+但我一邊退，迎面卻繼續有絡繹不絕的人潮往山徑方向前進。這彷彿是一個朝聖的儀式，誓要展現出香港人百折不撓的決心和團結。
+
+在竹園路，有路過的車輛有節奏地響號為人群打氣。司機鄰座的女士探出半個身子舉起膀臂，我跟她好像有了默契，同時一起高呼了一句「香港人加油」，路人也立即呼應「加油」。
+
+由於人太多，不少人塞了在路旁，便隨意唱起歌來。大熱的《願榮光歸香港》固然少不得，還有一首我未聽過的用來諷刺警察的歌 [《肥媽有話兒》](https://web.archive.org/web/20221002132026/https://www.youtube.com/watch?v=nHzXk5bPmrQ) 。「光復香港，時代革命」，「五大訴求，缺一不可」，「香港人加油」等口號此起彼落，鐳射筆的光線代替了傳統中秋玩具瑩光棒在樹梢上亂晃。有位老伯手裡拿著垃圾膠袋，叫著「有冇林鄭？有冇林鄭？」呼籲市民丟棄廢物。
+
+有市民製作了小巧的紙燈籠黏在手機閃光燈上，上面寫著的是「沒有暴徒，只有暴政」。另一位市民在電筒上黏上雕通了的紙張，影照在地上的是「光復香港，時代革命」的影子。
+
+<figure>
+<img src="https://web.archive.org/web/20221002132026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/中秋節-獅子山下-20190914174705_21f5_large.jpg" alt="">
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20221002132026im_/https://hkcnews.com/news_新聞/hk-discuss/2019/09/光復香港，時代革命-中秋節-20190914174527_163c_large.jpg" alt="">
+</figure>
+
+我走到一個人較少的角落，抬頭仰望獅子山頂。圓月已不是眾人的焦點，路旁排著的專業攝影機都對準獅子山頂。延綿獅背上的光鏈在閃耀，獅頭射出燦爛的鐳射光線，像要照射到對岸的太平山頂，與全香港所有的同路人結連。
+
+身旁播著的是一首為這次抗爭原創的歌：
+
+***鐵欄前　守護著　淚流亦要去抵擋　堅守心裡價值已不枉***
+
+《自游》   
+ 獅子山下，今晚對我有了全新的意義。
+
+
+{{< video src="https://web.archive.org/web/20221002132026if_/https://www.youtube.com/embed/W7AZdzXXJQc" >}}
+
+
+樂富地鐵站門外，有一組人像平安夜般佈佳音，唱的當然是「香港之歌」。有路過的藍絲大叔站在人群中參與討論，感覺大家也像在傳福音。每逢警車駛過總會掀起人群激烈的咒罵，我在想什麼時候他們也能明白這「福音」便好了；但首先，他們要認罪悔改啊。
+
+回到新城市廣場，商場店舖早已打烊，連廣場的燈也已關閉，但廣場上卻仍聚滿了人。年輕人唱著歌，天真地嬉戲，互相追逐，彷彿要盡情抓住夏天的尾巴，把失去的暑假追回來。我想起廿年前的中秋，當我還會瘋狂的年紀。我發覺自己也像在盡情抓住青春的尾巴，想把失去的理想國追回來。
+
+---
+
+![博客 | 黃牛山人](https://web.archive.org/web/20221002132026im_/https://hkcnews.com/uploads/avatars/43dbd638-5ea5-4a1d-88d2-1b9a09fe6f9b.png?87451308)
+
+**博客 | 黃牛山人**
+
+【黃牛山人專欄】父親，創業者，《讚賞公民》團隊成員，oice 聯合創始人。企圖貢獻微小的力量改變社會上的荒謬事。 網誌：bchai.cc

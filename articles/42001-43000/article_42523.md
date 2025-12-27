@@ -1,0 +1,71 @@
+---
+title: "前博物館職員拍攝飛虎隊曝踪跡　阻差辦公罪成囚6個月　法官：被告是向理大示威者通風報信"
+date: "2021-06-18"
+last_updated: "2021-06-18 18:40:12"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "鄭念慈"
+  - "理大圍城"
+  - "陳志華"
+url: "https://web.archive.org/web/20210805035355/https://www.hkcnews.com/article/42523/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42530/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42523/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42530/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 前博物館職員拍攝飛虎隊曝踪跡　阻差辦公罪成囚6個月　法官：被告是向理大示威者通風報信
+
+前年11月理大衝突期間，時任博物館職員陳志華（43歲）涉嫌在歷史博物館拍下飛虎隊成員在館內觀察情況，照片在網上瘋傳，他被控一項「阻撓在正當執行職務的警務人員」罪。裁判官鄭念慈今午在九龍城裁判法院裁定被告罪名成立。鄭官指，被告當日的行為實際上是向身處理大的示威者通風報信，令飛虎隊成員在博物館內執勤的事實曝光，使清場行動受阻延。
+
+鄭官聽取求情後，判處被告監禁6個月，被告申請保釋等候上訴被拒，須即時還柙。
+
+<figure>
+<img src="https://web.archive.org/web/20210805035355im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/陳志華-20210618173747_10d2_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+裁判官鄭念慈認為，被告在互聯網上載和向親友發送飛虎隊成員執勤的相片，必然預期相片會在網上廣傳。鄭官又指，被告在發佈相片同時上傳一段錄音，指他在博物館內工作，透露有飛虎隊成員在館內執勤，呼籲「手足」小心。他認為「手足」在當時社會環境必然意指示威人士，即被告當時是向示威人士通風報信。被告行為直接導致飛虎隊成員需撤離以策安全，鄭官指出警方撤離合情合理，亦屬必要，被告的行為令警方行動需延遲，裁定被告當日屬故意阻撓警員執勤。
+
+### 法官：被告呼籲手足小心  是向理大示威者通風報信
+
+鄭官指出4名控方證人的供詞可信，被拍攝的警員事後認出被告，以及表示當時只有他和被告身處後樓梯，因此認為涉事相片必然由被告所拍攝。至於被告同時發佈一段錄音，被告上司事後辨認該錄音與被告聲線吻合，加上相關內容必須要在當時身處博物館才能講出，故鄭官接納上傳錄音的人同為被告。
+
+<figure>
+<img src="https://web.archive.org/web/20210805035355im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/理大圍城-陳志華-20210618172159_127a_large.jpg" alt="">
+<figcaption>被告陳志華須即時還柙。蘋果日報圖片</figcaption>
+</figure>
+
+對於辯方指，當日在被告發佈相片和錄音前，已有不同片段和社交網站貼文披露有警員在博物館內執勤，認為警方行動並非完全保密，被告不構成阻撓。鄭官接納有示威人士在被告發佈相片前，或已知悉有警員在博物館內執勤，惟他指出該些影片和貼文內容空泛，只屬估計性質，被告的相片和錄音提供了具說服力的證據，證明有警員在博物館內行動。
+
+辯方以人權法下保障表達自由作合理辯解，惟裁判官鄭念慈表明不接納。就著表達自由與限制所需程度的相稱性，辯方爭議指被告當時並不知道警方行動需要保密，警方當日的行動亦非完全保密，強加保密義務在被告身上不符人權法。惟鄭官反駁，被拍攝的警員當日曾問被告，窗外人士能否看到他在館內觀察，認為警員明顯表示不希望被外面的示威者看到，加上警員低調地進入博物館，認為被告清楚知道警方行動要保密。
+
+至於辯方爭議需要平衡社會利益和公眾知情權，鄭官認為被告當時不是記者，並非進行採訪工作，只是向示威者通風報信，亦沒有足夠證據支持被告當時真誠相信在揭露警方濫權或非法行為，故不接納此作為合理辯解。
+
+<figure>
+<img src="https://web.archive.org/web/20210805035355im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/理大圍城-防暴警察-拘捕-20210618172801_739b_large.jpg" alt="">
+<figcaption>前年11月的理大衝突。美聯社圖片</figcaption>
+</figure>
+
+### 被告失去博物館工作
+
+代表被告的大律師吳宗鑾求情時指，被告在2019年10月破產，案發後亦已失去博物館的工作，早前曾短暫工作，目前失業。而被告早前被診斷患上椎間盤突出，將於明年2月進行手術。他表示被告父母今年分別82歲和75歲，其中父親行動不便，現時被告與父母和哥哥同住。他指被告在破產前與哥哥同為家中的經濟支柱，即使被告已經破產，但仍有用部分維持生活的基本收入供養父母。
+
+吳宗鑾希望法庭接納本案不牽涉暴力，被告沒有令警員受傷，亦沒有增加警員執勤的風險，僅令警方行動延遲。惟裁判官鄭念慈指，阻差辦公控罪沒判刑指引，判刑需與警方當時所處理案件的嚴重程度相稱。而對於本案，鄭官指出理大事件對公眾秩序影響大，被指違法的人眾多，他更形容當時理大猶如「軍火庫」。
+
+鄭官聽取求情後，表示被告不認罪，認為被告沒有悔意。而理大事件聚集人數眾多，對公共秩序有影響大，越早平息越好，惟被告的行為延遲警方部署，案情嚴重。鄭官表明不考慮判處社會服務令或緩刑，最終判處被告監禁6個月。被告即時申請保釋等候上訴，惟被鄭官拒絕，須即時還柙。
+
+<figure>
+<img src="https://web.archive.org/web/20210805035355im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/警察舉槍-理大圍城-防暴警察-20210618173020_1f38_large.jpg" alt="">
+<figcaption>裁判官鄭念慈形容前年理大衝突時，理大猶如「軍火庫」。美聯社圖片</figcaption>
+</figure>
+
+案情指，前年11月17日理大衝突期間，警方飛虎隊成員到理大附近的歷史博物館內執勤，觀察外面情況。陳志華被指當時拍下兩張飛虎隊成員執勤的照片，發布到網上並被瘋傳，導致警方觀察點暴露。聲稱被阻撓的警員早前在盤問時承認，被告當時配合他的要求，並未造成任何阻礙，但他認為由於觀察點曝光，對隊員造成危險和令行動受阻，所以任務需要終止。警方最終要在翌日凌晨才能再派員進入博物館，行動延遲10多小時。
+
+案件編號：KCCC1122/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805035355/https://www.hkcnews.com/aboutus/#subscribe)

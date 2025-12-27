@@ -1,0 +1,69 @@
+---
+title: "新屋嶺要帶給示威者恐慌"
+date: "2019-08-30"
+last_updated: "2019-08-30 17:21:29"
+author: "袁天佑"
+category: "眾說"
+tags:
+  - "新屋嶺拘留中心"
+url: "https://web.archive.org/web/20210727221446/https://www.hkcnews.com/article/23218/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23219/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23218/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23219/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 新屋嶺要帶給示威者恐慌
+
+<figure>
+<img src="https://web.archive.org/web/20211128150830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/811多區示威-新屋嶺拘留中心-20190830002919_10c2_large.jpg" alt="">
+<figcaption>新屋嶺扣留中心。</figcaption>
+</figure>
+
+昨午（8月29日），隨着銀髮一族的人，前往新屋嶺扣留中心，看看這個神秘地點。
+
+由九龍塘地鐵站，乘坐旅遊巴士前往，沿途交通𣈱順，車程大概是40多分鐘。是遠是近？每個人的計算都不同。但假若從港島前往，或乘坐公共交通工具，相信時間將會超過個多兩小時。在凌晨時分，沒有公共交通工具，計程車單程也要花上數百元了。
+
+到達後，旅遊巴士先將眾人車往一個小山崗上，從山崗遙望新屋嶺扣留中心。中心除被重重鐵絲綢包圍外，還被許多草和樹木所包圍。剛下着大雨，雖有雨傘，但眾人多全身盡濕。在這情況下，扣留中心，在眾人眼中，更顯淒涼。
+
+<figure>
+<img src="https://web.archive.org/web/20211128150830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/銀髮族-新屋嶺拘留中心-20190830162700_1fd9_large.jpg" alt="">
+<figcaption>滂沱大雨下的新屋嶺扣留中心。周滿鏗攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211128150830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/逃犯條例-銀髮族-新屋嶺拘留中心-20190830170114_1a9a_large.jpg" alt="">
+<figcaption>警員在新屋嶺扣留中心外站崗佈防。照片由筆者提供</figcaption>
+</figure>
+
+從山崗下來，繞了一個很大的圈，走到拘留中心的正門，大概約行了40分鐘。門外有多位警員站崗，築起防線，我們都不能越過，只能在較遠處着見門和門上的牌，寫上「新屋嶺扣留中心」。其中一位銀髮族的成員向大家講解這中心的歷史，原來遠自很久前已使用過多次。港英時期，中心用作將偷盜來港的內地人士在譴返前暫作停留，現在已很少作這用途。89六四黃雀行動，接收逃來香港的民運人士，停留以待核實身分。2005年韓農在港示威，超過千人被捕，部份人士也被扣留在此。除此以外，中心基本上很少使用，可想而知，中心設備必然十分簡陋，CCTV可能也沒有，所謂的臭格也必然比市區內的警局的差很多。事實上，警方記者招待會中所顯示的圖片也指出中心內的簡陋情形。由於中心週圍都多是雜草，蚊蟲很多，大家站在中心外，也經常要拍打蚊，相信中心內的情況也會如此。
+
+<figure>
+<img src="https://web.archive.org/web/20211128150830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/新屋嶺拘留中心-811多區示威-20190830002932_652e_large.jpg" alt="">
+<figcaption>新屋嶺拘捕中心週圍多雜草。周滿鏗攝</figcaption>
+</figure>
+
+自811後，不少被捕者被送往這中心。雖然2個多月的返送中運動中，被捕者已超過800人，但不是在同一時間被捕，每星期只是數十人而已，市區內任何一所警局均可接收。為甚麼要這麼遠，勞師動眾將被捕者送來此地？心中只能有這樣的答案：要令被捕者心驚。
+
+離市區遙遠，電訊信息接收很弱。被捕者要聯絡家人律師等都不容易。事實上，811當天的54位被捕者便遇到這情況。律師與家人都不知被捕者被扣留在這地方。最後知悉，還需花時間於舟車。律師在門外等了十多小時，也不准見被捕者。三分一被捕者是在錄取口供後才可見律師。假若律師要聯絡家人，電訊接收差也難以聯絡。
+
+令大家最不明白的，就是54位被捕者中，31人要送院，其中6人情況嚴重。警方指他們都是在被捕時反抗受傷，但假若他們在被捕時已受傷，為甚麼不是即時將他們送往就近醫院？事實上，我們從電視畫面上看到被捕人士在被捕時多沒作出反抗，反而求情。在被捕時仍神智清醒，但幾十小時在扣留中心後便腦部充血。這不難使人感到他們是在扣留期間被虐打。
+
+警方多次指被捕者自己選擇在沒有律師在場錄口供，也沒有被捕者投訴或指出在扣柙時遭虐打，如有，市民可投訴。但想想，示威者一直知悉，在沒有律師陪同下，不會說任何話。此外，有誰敢在沒有法律保障下去投訴？向警監會投訴，便會交回警方調查。就算投訴，警察便指沒有錄像，警察也沒將事紀錄在簿。投訴何用？更有趣的是，不少傷者被問及知否在甚麼情況下受傷，大家的回答是「不記得」。受傷的情況和地點，怎會不記得。相信只有一個原因，就是「怕」，怕被警方多加控罪名！
+
+林鄭一直不肯成立獨立調查委員會，就是怕開罪警方。但對於這扣留中心留下給市民和示威者恐佈的印象外，個多月來，警察在市民心中所留下的，都是不良的印象。我們常聽到街坊罵警察，記者在採訪時被問候，醫務人員對他們的不滿等，假若林鄭繼續以警打壓，只有造成更負面印象。
+
+沒有獨立調查委員會作出調查，情況將會更惡化。林鄭要負起全責，不過，她也無力負得上責任。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128150830/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 袁天佑](https://web.archive.org/web/20211128150830im_/https://www.hkcnews.com/uploads/avatars/b909af29-3bce-494f-8148-c08c8671dbb5.jpg?1097845335)
+
+**博客 | 袁天佑**
+
+【袁天佑・牧者隨筆】筆者是香港循道衞理聯合教會牧師，現已退休。在香港出生，成長，接受教育，地道香港人。經歷過中國加入聯合國、89民運、97回歸的年代；見證香港從小小漁港變成國際大都會。期望着香港有更美好的明天時，看見社會的撕裂，民主倒退，「一國兩制」被蠶食，不少青年人民主夢想幻滅。退休後，仍希望能盡上些微力量，鼓勵信徒和年青人要存着信心和盼望，黑暗永遠不能勝過光明。

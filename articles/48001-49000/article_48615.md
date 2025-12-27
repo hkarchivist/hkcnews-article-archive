@@ -1,0 +1,91 @@
+---
+title: "【立會選舉】民主黨不以黨名義支持候選人　黨內啟動紀律程序查副主席梁翊婷"
+date: "2021-12-06"
+last_updated: "2021-12-07 05:50:21"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "民主黨"
+  - "Democratic Party"
+  - "the democratic party"
+  - "立法會選舉"
+url: "https://web.archive.org/web/20220127075754/https://www.hkcnews.com/article/48615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48664/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48615/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48664/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【立會選舉】民主黨不以黨名義支持候選人　黨內啟動紀律程序查副主席梁翊婷
+
+5名不屬傳統建制派的立法會選舉候選人向民主黨申請支持，民主黨今日（6日）晚上召開特別中委會，決定不會以黨名義支持任何候選人，但批准前荃灣區議會副主席李洪波，以個人名義支持新界西南候選人劉卓裕。該黨副主席梁翊婷在中委會決定前搶閘為潘焯鴻簽署「支持同意書」一事繼續燃燒，民主黨紀律委員會啟動紀律程序調查是否違紀，中委會亦將去信要求梁翊婷以書面解釋。
+
+<figure>
+<img src="https://web.archive.org/web/20220127075754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/區議員宣誓-梁翊婷-20210924132824_f086_large.jpg" alt="">
+<figcaption>民主黨副主席梁翊婷今晚未有出席特別中委會，中委會將去信要求她解釋為潘焯鴻簽署「支持同意書」一事。資料圖片</figcaption>
+</figure>
+
+### 質疑狄志遠與建制企埋一齊　劉卓裕問卷答案相對合理
+
+5名立法會選舉候選人早前申請民主黨支持，包括香港島東潘焯鴻、新界東南蔡明禧、新界東北黃成智、新界西南劉卓裕、以及社會福利界狄志遠。民主黨今晚召開特別中委會，決定不會以黨名義支持任何候選人，未有公佈理由，但批准前荃灣區議會副主席李洪波，以個人名義支持新界西南候選人劉卓裕。劉卓裕民主黨及李洪波表示感謝。
+
+據了解，中委會認為黃成智因為於2015年政改時支持「袋住先」，然後被開除黨籍，民主黨沒有理由再以黨名義支持他參選立法會。至於狄志遠，則因為新思維與湯家驊的民主思路結盟，狄亦有提名前新聞統籌專員馮煒光參選，中委會質疑他與建制派「企埋一齊」，故拒絕支持他，亦不容許前立法會議員李華明以個人名義支持他。
+
+至於另外三人，主要因為中委會對他們認識不深，所以決定不會以黨名義支持。但劉卓裕的背景相對其他候選人較為有跡可尋，包括2019年區選時名列泛民的推薦名單，而他回覆民主黨的問卷內容亦相對合理，所以即使中委會對劉部分答案不滿意，仍容許李洪波以個人名義支持他。據悉，由於事前只有李華明和李洪波兩名黨員申請以個人名義支持候選人，如果再有黨員想支持其他候選人，需要另外申請，並視乎中委會會否再處理。
+
+申請支持新思維狄志遠的李華明表示，只是申請以個人名義支持候選人，對中委會決定感到失望。他希望先了解中委會決定的理由再作進一步評論。他又指出，現時距離投票日不足兩星期，即使民主黨批准他支持狄志遠，也「唔幫得幾多」。他續說，不會考慮退黨支持狄志遠。
+
+<figure>
+<img src="https://web.archive.org/web/20220127075754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/李華明-Democratic%20Party-20210926202028_15c7_large.jpg" alt="">
+<figcaption>李華明表示不會考慮退黨支持狄志遠。資料圖片</figcaption>
+</figure>
+
+### 中委會要求梁翊婷解釋涉違規支持潘焯鴻
+
+民主黨副主席梁翊婷在民主黨中委會開會前兩日，已經為潘焯鴻簽署「支持同意書」，涉嫌違反黨內守則。她今晚未有出席會議解釋，中委會將去信要求她以書面解釋，並要求她出席下次會議親身解釋。至於潘焯鴻則於早前向傳媒解釋，是與梁翊婷出席清談節目才獲得簽署。記者曾致電梁翊婷查詢，她未有接聽電話。
+
+民主黨紀律委員會副主席袁海文接受查詢時證實，已有相應人數黨員聯署投訴，根據機制須立案處理，正式啟動紀律程序。他說現階段不回應何時完成處理，會先邀請當事人解釋。
+
+### 4候選人認同遊行集會不需向警方申請
+
+民主黨早前向5名候選人發問卷，詢問他們就不同議題的立場。其中劉卓裕、黃成智、潘焯鴻、狄志遠均認同，市民舉行遊行集會不需向警方申請，只需通知警方；蔡明禧則沒有回應，僅回覆「言論、集會、結社為基本人權」。
+
+就政府有否維護本港的言論及表達自由、結社及集會自由，黃成智批評，政府正剝奪市民過去能行使的合法權利，如悼念六四、舉行不滿政府政策的遊行示威等。劉卓裕亦認為，近年不少事例可見港人的自由受限制，認為特區政府不應借疫情為由否決遊行集會申請，也不應作任何政治審查。
+
+潘焯鴻則表示，一些過去容許的集會、言論及結社自由，因國安法實施和抗疫限聚措施而被取締，認為回歸前和回歸早期相對寬鬆的自由表達空間，是必然追求的目標。狄志遠則回覆指，民間社會應享有自主自由的空間，不是由政府維護，政府也不應干預民間社會運作。
+
+### 劉卓裕批假新聞源於政府不確認消息
+
+政府高官近期不斷就「假新聞」問題開腔，劉卓裕、蔡明禧、黃成智、狄志遠均表明反對訂立「假新聞法」。其中劉卓裕直指，不少「假新聞」源於消息傳出後，政府及各持分者不願確認，甚至任由假消息散播，他批評例如早前DQ區議員和追討薪津安排的消息「滿天飛」，惟當局一直不置可否。
+
+黃成智則擔心「假新聞法」會造成寒蟬效應，亦認為現有法例已足夠讓受害人追究責任。潘焯鴻未有正面回應，僅表示會以保障新聞自由及防止法例成為剝奪公民權利的政治工具，作為贊成與否的原則。
+
+<figure>
+<img src="https://web.archive.org/web/20220127075754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/劉卓裕-宣誓-20211008202608_1691_large.jpg" alt="">
+<figcaption>劉卓裕批評，早前DQ區議員和追討薪津安排的消息「滿天飛」，惟當局一直不置可否。資料圖片</figcaption>
+</figure>
+
+### 潘焯鴻：現時制度是重大倒退　不希望被藐視為「小圈子產物」。
+
+就現時的立法會選舉是否小圈子選舉，以及是否同意盡快普選立法會，潘焯鴻承諾當選會推動就普選特首和立法會進行政制改革。他又批評現時立法會選舉的民主成份出現重大倒退，他又指親身嘗試新制度下的提名及資格審查程序後，不希望被藐視為「小圈子產物」。
+
+劉卓裕、黃成智、狄志遠同樣認為目前選舉制度不理想，會推動政改；蔡明禧則沒有評論現時制度，僅指必須盡快落實以公平、公正、公開方式提名的雙普選。
+
+就《基本法》23條立法，劉卓裕、黃成智、狄志遠認為現時不是立法時機。潘焯鴻認為，落實立法會普選後就23條立法，更易獲得市民接納。他更指出，23條立法是憲制責任，而所有立法會議員都需要宣誓擁護《基本法》，認為在本地自行審議和立法，較能掌握市民意願，條文內容應充分諮詢市民。
+
+就其他政策主張，劉卓裕、蔡明禧、潘焯鴻、黃成智均明確反對「明日大嶼」，狄志遠未有正面回應；劉卓裕、蔡明禧、黃成智、狄志遠同樣贊成放寬4人限聚令，潘焯鴻則沒有正面回應。
+
+<figure>
+<img src="https://web.archive.org/web/20220127075754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/潘焯鴻-中科興業-20200521181724_aa2d_large.jpg" alt="">
+<figcaption>潘焯鴻指他親身嘗試新制度下的提名及資格審查程序，但不希望被藐視為「小圈子產物」。資料圖片</figcaption>
+</figure>
+
+### 區議員楊浩然薦兩人　黃成智獲妻兒推薦
+
+問卷亦列明5名候選人在民主黨內的推薦人，其中狄志遠於的推薦人為前立法會議員李華明，中西區區議會副主席楊浩然分別推薦潘焯鴻和蔡明禧，前荃灣區議會副主席李洪波推薦劉卓裕。至於黃成智的推薦人，則包括仍為民主黨黨員的妻子黃靜嫺和兒子黃文軒。
+
+候選人亦需要在問卷申報，現正或已經邀請哪些政黨或人士支持，其中蔡明禧申報正邀請民協和前西貢區議員林少忠支持；狄志遠則申報獲民主思路支持。
+
+<figure>
+<img src="https://web.archive.org/web/20220127075754im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/楊浩然-區議員宣誓-20210910133330_1d50_large.jpg" alt="">
+<figcaption>中西區區議會副主席楊浩然分別向民主黨內推薦支持潘焯鴻和蔡明禧。資料圖片</figcaption>
+</figure>
+
+*（完整參選名單，見選舉事務處網頁https://www.elections.gov.hk/legco2021/chi/index.html）*

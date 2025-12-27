@@ -1,0 +1,64 @@
+---
+title: "反對是噪音　抗議當音樂　一國兩制　一場噩夢"
+date: "2020-11-17"
+last_updated: "2020-11-17 23:57:27"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "基本法"
+  - "基本法 45 條"
+  - "基本法 考試"
+  - "基本法 遊戲"
+  - "基本法 測試"
+  - "基本法 題目"
+  - "香港 基本法"
+  - "基本法 考試 題目"
+  - "張曉明"
+  - "zhang xiaoming"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+url: "https://web.archive.org/web/20210805043431/https://www.hkcnews.com/article/35678/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35679/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35678/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35679/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 反對是噪音　抗議當音樂　一國兩制　一場噩夢
+
+
+{{< video src="https://web.archive.org/web/20210805043431if_/https://www.youtube.com/embed/omd-J6KBv50" >}}
+
+
+今年是基本法頒布30周年，實施亦踏入第24年，港府今日（17日）舉辦法律高峰論壇，行政會議每周例會亦要讓路，中央官員和特首等輪流發言。特首林鄭月娥兩番引述1997年逝世領導人鄧小平的講話，強調愛國者治港、中央可干預；國務院港澳辦副主任張曉明發言有不少「金句」，「愛國愛港者治港，反中亂港者出局」，又反駁近來針對一國兩制批評，指只當作「背景音樂」、「噪音」。港人發聲，北京當作噪音，林鄭京官講話，港人也聽不入耳，不少人以為北京和港府在舉行一國兩制追悼會。
+
+<figure>
+<img src="https://web.archive.org/web/20210805043431im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/基本法%20考試-zhang%20xiaoming-一國兩制-20201117235147_a740_large.jpg" alt="">
+</figure>
+
+林鄭引述鄧小平1987年的「干預論」，「如果中央把甚麼權力都放棄，就可能出現一些混亂， 損害香港的利益，所以保持中央的某些權力，對香港有利無害。」事實是，整本基本法160條條文已清楚分權，列明中央的權力及授予特區的權力，當中包括23條自行立法維護國家安全、 79條立法會議員在甚麼情況下喪失議席。
+
+中央收回授權、事事管，直接立國安法、立DQ議員法，並不符合高度自治，違反一國兩制。林鄭放棄高度自由，令末代港督彭定康在1996年10發表的任內最後一份施政報告內，提出97後的其中一大憂慮，再次應驗，他說：「我感到憂慮的，不是香港的自主權會被北京剝奪，而是這項權利會一點一滴地斷送在香港某些人手裡。」彭定康可能沒料到北京改變主意，更沒料到斷送香港的自治權的，是港英政府培殖的林鄭。
+
+港澳辦前副主任馮巍發言時說，回歸之後總是說「不變」，是指生活方式不變，為穩定香港社會和香港人心，才少談體制上根本的變化；他說，香港的政治體制不是三權分立，但掌握立法、行政和司法權力的人士，在運作時按三權分立的理念操作。說法混亂、自相矛盾。港人過去30多年來一直誤會，「50年不變」只是生活方式不變，政治體制走向極權一套，經濟重規劃輕市場，原來才是「初心」，23年後，終於講清楚了。
+
+港澳辦副主任張曉明發言內容及姿態儼如香港特區之首，他表示人大常委會日前撤銷4名民主派議員的決定，是立下一國兩制下「政治規矩」，「愛國愛港者治港，反中亂港者出局」。基本法、本地法律都沒有「政治規矩」，人大「想點就點」。張曉明又反駁本港及國際批評，「什麼最黑暗的一天，一國兩制已死啦、法治已死啦，我們已經聽得很多，就讓這些詛咒成為香港和國際上一些人自我打臉的歷史紀錄吧」；又引述終審法院前法官烈顯倫早前提出「司法改革」的言論，認為值得司法及法律界重視。「司法改革」風暴勢將升級。
+
+港英培殖的精英自毀長城，中央官員撕下面具，露出真面目，任意訂立「政治規矩」、合力重新演譯「干預論」、愛國者治港原則。馮巍更引用國父孫中山「軍政、訓政及憲政」框架，認為香港處於「訓政」，香港社會需要知道及接受中港新的憲制秩序，形容「香港未來一國兩制的路，確實的話，很漫長」。
+
+基本法是香港的「憲法」，憲制安排早在1997年7月1日已開始運作，今日卻說離憲制仍遠，港人像走入一國兩制迷宮，感到迷惘、憤怒、恐懼，不少人早已當作噪音，關上耳朵，趕快逃離迷宮。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805043431/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210805043431im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

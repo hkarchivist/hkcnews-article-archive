@@ -1,0 +1,63 @@
+---
+title: "從火海展翅的飛龍"
+date: "2021-05-09"
+last_updated: "2021-05-10 15:29:16"
+author: "譚瑞玲"
+category: "眾說"
+tags:
+  - "八仙嶺山火"
+  - "張潤衡"
+url: "https://web.archive.org/web/20211202154838/https://hkcnews.com/article/41131/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41165/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41131/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41165/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 從火海展翅的飛龍
+
+2015年6月27日在台灣的八仙樂園「彩色派對」發生了粉塵爆炸，造成二人死亡，超過五百人受傷，很多受害者的皮膚嚴重燒傷，即使能逃過死亡關，也要飽受不斷的整型及植皮手術的痛楚，他們正値靑春少艾，如何能走前面艱辛的路呢？   
+   
+ 然而，一位肇事時年僅十二歳的香港男孩，卻向世人展示，火雖燒傷了他的身體，卻燃點了他的生命，你願意聽他的故事嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20211202154838im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/八仙嶺山火-張潤衡-20210509043145_260c_large.jpg" alt="">
+</figure>
+
+同樣叫「八仙」的香港高山，是九六年初中生張潤衡參加學校遠足的地方，沒料到那天山火遽然而至，奪去了兩名老師、三名學生的生命。他雖最終獲救，但六成皮膚已被焚傷，面容和四肢嚴重燃損，右邊視力和聽覺也被破壞，昏迷整整三個月。   
+   
+ 康復的每一天都像接受極刑一樣，單是洗傷口，已是錐心痛得直叫，而那些被除皮的患處，更是數級跳的劇痛。隨之而後的物理治療更是日復一日的折磨，全身皆是傷口和疤痕，卻要將關節重新拉鬆，怎不嘶吼眼涙直流？   
+   
+ 可是，接著的職業治療的痛楚，更過之而無不及。必須每天穿著壓力衣和壓力面具，並且四肢要放在固定架上，不能移動，也無法一刻喘息。   
+   
+ 不過，這些治療都不比每隔個多月的手術難捱，要忍受逾百次矯形、植皮和整容的手術還不止，每次走出手術室都要墮入拆線及清洗傷患的循環噩夢中。   
+   
+ 各種痛入心肺的治療令他度日如年，可幸年輕的身體一天天進步，而他期望已久的週末返家小休也實現了。   
+   
+ 可惜，踏出醫院的一刻卻狠狠打擊他剛剛起步的信心。四方八面的無情世人目光，似連環發炮地打在他帶著烈火印記的顏容和傷殘身軀上，他的幼小心靈受到重挫！他甚至覺得與他在小學便認識的神隔絶了，要離祂獨行。   
+   
+ 其實，神正默默地伴他同行，在背後有力地推他前進。只是滿腔怒火的他，聽不見神的安慰，誤認神是殘酷不仁的。   
+   
+ 他一度陷入極度憂鬱低谷，起了輕生念頭。當他正拆除家中窗框想跳樓了卻生命之際，在生死懸於一線之間的時候，神的呼喚藉著電話鈴聲叫停了他。   
+   
+ 出乎意料的事逐漸發生了。他出院復課，右手因手指被切除不能握筆，左手卻奇蹟地在當下便能執筆寫字。本來連站穩都困難的雙腿，竟能跑起來參加學校足球隊比賽。連沒有手指的右手，也可握住鼓棍，與樂隊上台表演，完了他童年的夢想….   
+   
+ 漸漸地，山火後曾憤世疾俗的他，不再常對身邊的人強烈排斥，反而像眼睛換了新視野，看到他們發自内心的關懷：包括不離不棄陪伴在側的父母，任他發脾氣的醫護人員、不斷挑戰他極限的老師、陪伴弱聽的他練習的樂隊成員等，皆數之不盡。   
+   
+ 他開始感受到神沒有離棄他，是他自己關了對話的門。看似無言的神，其實亦步亦趨地照顧著他，縱然沒有戲劇性的震撼或轉捩點，在崎嶇的康復路上起起跌跌，卻讓他不期然地支取著非凡但沒有苦澀的生命力，每次再爬起身便感受到與神親近一些，終於慢慢真切地感受到主跟他作了「接力的擊掌」，且能戰勝曾令他痛不欲生的可怕山火回憶，寫成 [《過渡期：八仙嶺山火後再生記》](https://web.archive.org/web/20211202154838/https://www.logos.com.hk/bf/acms/content.asp?site=logosbf&op=show&type=product&code=962883827X) 。焚身傷痛只是人生的過渡期，願意對神敞開心扉，接受祂的呼喚，自能再展翅高飛，火海重生。   
+   
+ 願正在痛苦中掙扎的火災傷者，能受到這本書的激勵。神早已預備了浴火飛龍走在前頭，給你們安慰，述説神的奇妙作為，請聽！   
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202154838/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 譚瑞玲](https://web.archive.org/web/20211202154838im_/https://hkcnews.com/uploads/avatars/13312e53-b13a-4058-8b24-a928212cd0ac.png?1041607517)
+
+**博客 | 譚瑞玲**
+
+【譚瑞玲・書海逍遙遊】香港大學文學院歷史系學士，曾任教香港中學及羅富國教育學院歷史系。後隨夫移民美國，入讀俄亥俄州凱斯西儲大學 (Case Western Reserve University, Ohio) 研究院，獲歷史檔案學碩士及歷史系博士，專研美國華人歷史。 後由於一場重病，感到應從象牙塔走回人群中，開始從事文字工作，曾任討論普世社會公義的刊物《義顯之聲》 的編輯，在臉書專頁「來，咬一口」分享讀書心得、「華 人基督徒義顯社」評論時事，以及於其他美國華文雜誌如 《真愛》、《神國雜誌》、《傳揚》等寫作，並於洛杉磯華語電台節目談閱讀之樂 。 現與丈夫及三名子女定居美國加州。

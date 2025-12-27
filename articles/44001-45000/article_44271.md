@@ -1,0 +1,49 @@
+---
+title: "清算演藝界浪接浪　廉署表忠貞　攬政治調查"
+date: "2021-08-11"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "廉政公署"
+  - "藝發局"
+  - "黃耀明"
+url: "https://web.archive.org/web/20211025162807/https://www.hkcnews.com/article/44271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44271/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 清算演藝界浪接浪　廉署表忠貞　攬政治調查
+
+過去一周，最矚目的政治新聞要算藝人黃耀明被廉署拘控提堂，罪名是2018年3月於立法會補選中，在區諾軒的造勢會上唱了兩首歌，涉嫌提供「娛樂」替候選人拉票，但案件提堂時，廉署卻基於案件性質輕微同意撤銷檢控，只要求黃耀明及區諾軒以二千元自簽保守行為18個月，這宗針對藝人的政治官司高高舉起卻輕輕放下，到底有何作用？隨著周博賢、陳錦成、李俊亮等藝發局民選委員相繼辭職，公眾開始看到，針對演藝界的政治清算已進行得如火如荼。
+
+<figure>
+<img src="https://web.archive.org/web/20211025162807im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/黃耀明-ICAC-20210811155613_2191_large.jpg" alt="">
+</figure>
+
+過去一年，為配合國安法實施而全速發動的連串政治案件，調查工作主要由警隊國安處牽頭，警務處長和負責國安處的副警務處長，是政府設立的國安委員會當然成員，至於海關關長和入境處長，也是國安委員會成員，海關在主動打擊黃店上，入境處在阻截受查人士離境上，都積極配合國安委的決策。 **廉署向來沒有代表加入國安委，過去外界以為廉署不用參與國安工作，直至2016年立法會選舉的雷動計劃突然被廉署翻舊帳，接著是藝人黃耀明與區諾軒為2018年的競選活動被廉署翻舊帳，公眾這才意識到，原來廉署也加入了政治清算的執法行列，積極配合國安委的部署，圍剿非建制政治人物。**
+
+廉署調查雷動計劃，檢控推動這計劃的戴耀廷等人，以及檢控黃耀明，均帶有明顯的政治色彩，這不單是因為涉案的包括著名政治人物（戴耀廷、區諾軒），更重要的是這兩宗選舉案件均已「過氣」，按正常的選舉舞弊執法慣例，是不會在選舉已結束後3年甚或5年，才啟動針對選舉期間某些言行作調查和檢控，這類調查和檢控一般應在選舉結束後6個月內進行，讓法院有機會糾正選舉舞弊，及時進行補選。除非有特殊的理由，例如舞弊形式甚為隱蔽，難有表面證據，並且有重大公眾利益，才會在選舉後逾6個月再作介入。 **雷動案和藝人獻唱案涉及的事情，均是公開進行，過程高度透明，為何廉署當時不調查，等到選舉結束數年，甚至當選人已悉數落任，甚或身陷囹圄，才發動調查和檢控？這樣做給公眾的印象，明顯就是政治的秋後算賬。**
+
+<figure>
+<img src="https://web.archive.org/web/20211025162807im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/黃耀明-區諾軒-ICAC-20210811155836_f709_large.jpg" alt="">
+<figcaption>2018年3月，區諾軒（上）參選港島區立法會補選，黃耀明出席其造勢大會。區諾軒Facebook影片截圖</figcaption>
+</figure>
+
+廉署檢控黃耀明和區諾軒，案件論法律屬性與國家安全無關，不能由國安法指定法官審理，只能當一般選舉舞弊案提堂，廉署清楚知道，這宗檢控相當牽強，因為候選人區諾軒沒有付錢，黃耀明雖是藝人，當日卻並非接了工作，也不是為了任何報酬，單純是因為政見上支持民主而為區諾軒站台，主動以唱歌的形式表達心意，所選的歌曲帶有政治信息，完全不是一般人所理解的提供免費娛樂來賄賂選民投票支持，稍為有點常識和正義感的法官，都可能會判黃耀明無罪，廉署敗訴的風險甚高。結果 **廉署選擇了強行檢控，但甫提堂即表示同意不提證供起訴，這樣做既可向國安委交差，表達廉署積極配合國安工作的政治忠誠，起了針對泛民演藝界支持者予以強烈警嚇的政治貢獻，同時免除了案件敗訴的司法風險** 。
+
+廉署這次行動，示範了不用檢控成功定罪，單是調查和起訴，已經可以傳達強烈的政治阻嚇，這個策略用來對付知名度高的演藝界人士，尤其容易奏效，因為演藝界人士很靠名聲和關係來接工作，一旦被執法機關調查，有被檢控風險，不單藝人和家人寢食難安，商業上的合作伙伴也會作鳥獸散，演藝事業就很難發展下去。在黃耀明被檢控之時，北京在港喉舌媒體立即一併算帳，點名抨擊去年曾與黃一起反對過國安法實施的幾位藝發局委員，這幾位被點名批鬥的演藝界民選代表在數日內相繼辭職，其中一位透露近日被北京喉舌媒體派人跟蹤，仔細記錄其日常行蹤，令他和家人深深感受到人身安全受威脅。由此可見，雖然黃耀明獲撤控，但針對演藝界的政治清算並沒有平息，反而有愈演愈烈的跡象。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025162807/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20211025162807im_/https://www.hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

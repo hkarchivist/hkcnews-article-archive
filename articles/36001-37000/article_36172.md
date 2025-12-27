@@ -1,0 +1,56 @@
+---
+title: "香港黑暗的一星期　能走的都想往外跑"
+date: "2020-12-04"
+last_updated: "2020-12-05 20:50:42"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "許智峯"
+  - "HUI Chi-fung"
+  - "黎智英"
+  - "周庭"
+url: "https://web.archive.org/web/20210725161525/https://www.hkcnews.com/article/36172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港黑暗的一星期　能走的都想往外跑
+
+
+{{< video src="https://web.archive.org/web/20210725161525if_/https://www.youtube.com/embed/skbfKHoTzGE" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210725161525/https://bit.ly/2Cj8v4t)
+
+疫情第4波社區大爆發，新型冠狀病毒擴散令人煩憂；政治氣氛、 環境亦令人窒息。過去幾天，前香港眾志3位年輕人黃之鋒、周庭、 林朗彥被判入獄，壹傳媒創辦人黎智英被控欺詐罪，申請保釋被拒， 還押至明年4月中再訊，變相「未審先關」；昨晚（3日），身在丹麥的前立 法會議員許智峯正式宣布流亡。
+
+許智峯雖然涉及9宗罪，但不包括港區國安法，相對輕微，但一併看近日發生的事情，眾志3子判刑、黎智英及較早前人民力量譚得志「未審先關」，香港逐步走向極權統治，恐怖氣氛瀰漫，不少市民也正考慮留或走，民主派是政治清算目標，範圍更似不斷擴大，面對政治檢控、罪成坐牢的風險越來越大。
+
+每一個人都難免為個人、家庭考慮。許智峯涉及案件雖然相對輕微， 但中央、林鄭政府全面清剿「反對派」，不能以常理估算， 亦不能高估現行包括司法的制度下獲得的保障，流亡的決定令人感到意外，但又可以理解。
+
+97回歸前，香港出現信心危機，大量港人移民，相信無論當日決定走或留的，在7月1日港區國安法實施前，發夢也沒有想像到今日香港的景象。2名前直選立法會議員及超過10名社運人士被逼流亡，黃之鋒、周庭等年輕人入獄，整個立法會內民主陣營被瓦解，下一站是18區區議會。
+
+中央、特區政府和建制派中「政治病毒」，症狀是疑神疑鬼、感到四方八面的都是敵人，擔心「反中亂港」民主派勾結外部勢力，進行「叛變」，出賣香港，教師「荼毒」下一代，醫護「攬炒」，公務員「作反」，「警察拉人，法官放人」，傳媒與政府對著幹、不配合、不合作，結論是要以秦朝年代的嚴刑峻法整治香港，不能仁慈。
+
+特首林鄭月娥在《施政報告》提到，在反修例風波中被檢控的2300多人，對於18歲以下有悔意而非涉及嚴重罪行的被捕人，警方願意視乎情況考慮採取讓其可改過自新的措施，例如以警司警誡或簽保守行為來處理，但前提是該未成年人需要承認他犯錯的行為。
+
+林鄭只是重覆現行制度，沒有半句所謂寬待年輕人的說話，但已觸動一些強硬派人士神經，生怕林鄭「做好人」，心軟手鬆，急不及待出聲喝止，是一場醜陋的誤會，低估了林鄭精忠報國的志向、證明「我沒有做錯」 的決心及爭取連任的野心。
+
+過去幾天，政治打壓一個接著一個，有線新聞風暴也敲起傳媒自由喪鐘。今日特區政府舉辦國家憲法日線上座談會，中聯辦主任駱惠寧表示，《香港國安法》落實數個月以來，威力初顯， 是進一步築牢維護國家安全的堤壩，但《香港國安法》 仍有許多規定，還需要轉化完善制度機制，成為香港市民自覺遵守的行為準則。
+
+政治堤壩不斷加高加厚，自由空間越來越少，恐懼氣氛越來越濃，令人抖不過氣，走得的都會想住外跑，不能走的都想走。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725161525/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210725161525im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

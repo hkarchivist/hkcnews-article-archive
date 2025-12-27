@@ -1,0 +1,39 @@
+---
+title: "英國及愛爾蘭四大律師公會譴責中國制裁律師行"
+date: "2021-04-27"
+last_updated: "2021-04-27 17:24:13"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "制裁"
+  - "新疆"
+  - "英格蘭及威爾斯大律師公會"
+url: "https://web.archive.org/web/20210727062843/https://www.hkcnews.com/article/40703/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40705/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40703/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40705/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 英國及愛爾蘭四大律師公會譴責中國制裁律師行
+
+代表英國及愛爾蘭大律師的四個法律專業團體發表聯署聲明，譴責中國3月就新疆問題制裁英國倫敦Essex Court Chambers（埃塞克斯園大律師事務所）及家人，批評中國當局無差別攻擊法律專業，有違尊重法治，促請中國檢討制裁措施。
+
+參與聯署的分別有英國及愛爾蘭四個地方的大律師公會，分別是英格蘭及威爾斯、愛爾蘭、北愛爾蘭及蘇格蘭。部分該所的英國大律師事後離開或與Essex Court保持距離，包括香港國際仲裁中心前主席祈文輝（Matthew Gearing）。
+
+<figure>
+<img src="https://web.archive.org/web/20210727062843im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/英格蘭及威爾斯大律師公會-制裁-新疆-20210427164918_acba_large.png" alt="">
+</figure>
+
+他們在信中指出，四名提供法律意見的涉事大律師就新疆人權提供法律意見，因此受制裁明顯違反《聯合國關於律師角色的基本原則》中提及，「不得由於律師履行其職責而將其等同於其委託人或委託人的訴訟事由」。涉事的Essex Court共約95名大律師，本身互不從屬、為獨立自聘人士，四個公會批評制裁獨立大律師是無差別攻擊法律專業，不符合尊重法治精神。
+
+他們在信中稱，中國政府、公民及商家均受惠於國際法律規則，但制裁措施令人質疑中國政府對法治的承諾，及中方作為國際商貿夥伴的狀態及聲譽，促請中國政府重新檢討制裁措施。
+
+他們在信中強調，類似制裁措施威脅國際法律社群，呼籲全國性及國際法律組織譴責同類干預律師行使專業職責及攻擊法治的措施。
+
+英格蘭及威爾斯大律師公會主席Derek Sweeting向蘇格蘭傳媒The Scotsman說，法律界必須嚴厲駁斥對全球律師的威脅，因為律師基本工作就是提供獨立法律意見。他說：「一個國家絕不應該因為不同意法律意見，而採取霸凌及懲罰性措施（針對律師）。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727062843/https://www.hkcnews.com/aboutus/#subscribe)

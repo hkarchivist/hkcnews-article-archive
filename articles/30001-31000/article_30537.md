@@ -1,0 +1,85 @@
+---
+title: "【美國警暴】《紐時》重組過程　弗洛伊德不足5分鐘至少16次喊「我不能呼吸」"
+date: "2020-06-02"
+last_updated: "2020-06-09 18:27:43"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "紐約時報"
+  - "警暴"
+  - "跪頸死亡"
+url: "https://web.archive.org/web/20220118034052/https://hkcnews.com/article/30537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/30537/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD16%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【美國警暴】《紐時》重組過程　弗洛伊德不足5分鐘至少16次喊「我不能呼吸」
+
+
+{{< video src="https://web.archive.org/web/20220118034052if_/https://www.youtube.com/embed/vksEJR9EPQ8" >}}
+
+
+《紐約時報》調查組記者根據目擊者拍攝的片段、保安電視片段，以及官方文件，重組5月25日弗洛伊德（George Floyd ）被警員跪壓8分46秒間由生至死的過程。《紐時》這一段長逾九分鐘的重組事件過程影片顯示，手無寸鐵的弗洛伊德被警員壓着頸部時現場有四名警員，而弗洛伊德在少於5分鐘內至少16次喊叫「我不能呼吸」。該報取得的明尼阿波里斯巿警方內部指引，對疑犯施以頸部制壓（Conscious Neck Restraint）時，對方須是「強烈反抗」（actively resisting）。
+
+事件由上周一說起，在明尼蘇達州的明尼阿波里斯巿，46歲非裔男子弗洛伊德，疑被警察膝跪頸部致死。警察濫用暴力觸發全國怒火，民眾大規模上街抗議要求公義。《紐時》說，弗洛伊德在最近的武漢肺炎疫情中，失去在餐館的工作。
+
+對於弗洛伊德之死，《紐時》通過整合店舖閉路電視和旁人拍下的片段、官方記錄文件以及專家意見，仔細重整他在短短8分46秒間由生至死的過程。其間，他在不足5分鐘裏，至少16次痛苦地向警察喊叫「我不能呼吸」（I can't breathe)，路人也替他求救，但警察無動於衷，繼續跪着他的頸。《紐時》說，片段顯示，案中警察採取連串違反警局政策的動作，結果造成這次致命事件。
+
+《紐時》重組過程的影片一開始，根據Cup Foods便利店的閉路電視片段顯示，7:57pm（片段時間比實際時間快24分鐘），便利店兩名店員走向泊在對街的藍色SUV車，其中一人上前與坐在司機位的弗洛伊德發生爭執。據店員指，弗洛伊德用20美元偽鈔，從店中買了一包煙。店員要求他交還香煙才能走，但無功而還。4分鐘後，店員報警。
+
+911報案中心記錄文件顯示，警方引述店員說：弗洛伊德「給我們偽鈔」（give us fake bills），我們要他交還煙才能回家，他不肯，「他坐在自己車內，因為他太醉了，並且不能自制（he is awfully drunk and not in control of himself)」。
+
+便利店閉路電視片段顯示，不久，首輛警車載着警察萊恩（Thomas Lane）和庫力（Alexander Kueng）到場，兩人下車走向藍色SUV。幾秒後，萊恩不知甚麼原因拔出手槍，他下令弗洛伊德把雙方放在軚盤上。之後萊恩把槍放回槍袋，與弗洛伊德來來回回19秒後，將他拉出車廂。
+
+泊在藍色SUV後面的車輛錄影片段顯示，萊恩將弗洛伊德雙手銬在身後，之後要他靠牆坐在行人路上。據911報案中心記錄，直至此時，三個重要事實是：一、警察相信他們面對的是一個失控的醉漢；二、《紐時》指，「看不到弗洛伊德有粗暴行為」；三、這時，弗洛伊德看來已很痛苦。幾分鐘後，兩警察將弗洛伊德帶回警車，之後見到他跌倒地上。
+
+根據後來對警察沙文（Derek Chauvin，即跪在弗洛伊德頸上的警察）的刑事起訴書，弗洛伊德扭到腳踝跌倒，他拒絕上警車，掙扎期間多次用頭撞警察，又曾對警察說不能呼吸。
+
+8:17pm，這時調查了9分鐘，第三輛警車到場，上面載着警察沙文和杜滔（Tou Thao）。兩名警察都曾多次被投訴，杜滔6次，包括2017年將一名男子推落地及毆打，被控警暴；沙文17次，3次涉及警察開槍，其中一次致命。
+
+Cup Foods閉路電視片段顯示，沙文與弗洛伊德在警車後車廂糾纏，之後不知為何，把他拉出車廂推落地上。這時，弗洛伊德臉朝地伏在行人路上，《紐時》的記者說，不知是什麼原因。
+
+這時，有兩名目擊證人幾乎在同一時間拍攝。第一個的片段顯示，三名警察圍住弗洛伊德，他們是沙文、庫力和萊恩，杜滔站在一旁看着。這是首次清楚可見三名警察用力壓着弗洛伊德的頸、身軀和腳。
+
+8:20pm，首次可聽見弗洛伊德的聲音。他哀求說：「我不能呼吸，老兄。求求你！」（I can't breathe, man. Please），　「我不能呼吸」。他痛苦地呻吟着，直至萊恩叫拍錄的人走開，片段結束。
+
+接下來，據記錄文件，警察用無線電召喚緊急醫療救援：「我們能有二級緊急醫療服務嗎？」(Can we get EMS code 2?）「有人在吐血。」（We got bleeding from the mouth）。之後的部分召喚內容難以聽到，只知緊急醫療救援瞬間就升至三級。
+
+另一個目擊證人從另一角度拍錄的片段顯示，儘管已召喚緊急醫療救援，警員沙文仍繼續跪着弗洛伊德的頸7分鐘，但看不到警員庫力是否仍壓着他的身軀。其間，錄得一名警察和弗洛伊德的對答：
+
+警察問：「你想怎麼樣？」（What do you want?）弗洛伊德答：「我不能呼吸。求求你，膝蓋跪在我頸上。我不能呼吸」（I can't breathe. Please, the knees in my neck—I can't breathe）。
+
+警察說：「那麼起來上車，老兄。」（Well get up and get in the car, man）。
+
+弗洛伊德説：「我會。」（I will）。
+
+警察：「起來上車。」（Get up and get in the car）。
+
+弗洛伊德：「我動彈不得。」（I can't move）。
+
+警察：「起來上車。」
+
+弗洛伊德大叫：「媽媽⋯⋯」（Mama—）
+
+弗洛伊德：「媽媽⋯⋯我不能。」（Mama—I can't.）
+
+在兩名目擊證人的片段中，短短不到5分鐘，弗洛伊德至少說了至少16遍：「我不能呼吸。」
+
+8:25pm，弗洛伊德眼睛閉上，似乎已失去知覺，但沙文依然跪着他的頸。旁人説「現在放開他好了」（Get off him now）。另一人詰問警察「你們搞甚麼鬼」(What's wrong with y'all）。之後有人說「噢，他一動也不動了」（Oh, he is not moving），「他們殺了他嗎？」（Did they kill him?）沙文從褲袋拿出了一支噴劑搖晃。
+
+據醫學和警察專家，警察採取的連串動作違反了警方政策，而在這個案中更是致命的：警察要弗洛伊德臉朝下伏地，並且用力跪着他至少5分鐘，這些動作令他胸腔受壓，根本不能呼吸。而沙文跪着他的頸的動作，很多警局都禁止，明尼阿波里斯巿警方更說明，唯有遇到某人激烈反抗（actively resisting），警察才能跪頸予以制服。
+
+即使召喚了緊急醫療救援，四名警察沒有給弗洛伊德即時施救，沙文繼續跪着他的頸。旁人拿着手機拍錄，一名白人女子和一名非裔男子輪流向杜滔説：
+
+「檢查一下他的脈搏」（Check his pulse）。
+
+「現在就檢查一下」（Check it right now）。
+
+「那男子不動了，老哥」（The man ain't moved yet, bro）。
+
+根據對警察沙文的起訴書，萊恩曾兩次問沙文「我們應將他翻側身嗎？」（should we roll him on his side?」，他說「不用」。
+
+8:27pm，救䕶車到場，救護人員替弗洛伊德檢查脈搏。沙文繼續跪着他的頸，直至一名救護人員要求，他才鬆開腳。據起訴書指，沙文鬆開腳時是8:27:24pm，至此他已跪着弗洛伊德的頸共8分鐘46秒，而在最後2分鐘53秒，弗洛伊德已毫無反應。
+
+救護人員把弗洛伊洛伊德翻轉抬上擔架，再送上救䕶車。可能由於人群聚集，救䕶車駛離現場，但救䕶人員同時請求消防局提供額外醫療支援。
+
+8:32pm，一輛消防車抵達現場。據消防局就事件的報告，警察告訴消防救援人員不淸楚弗洛伊德在哪裡，這耽誤了消防給醫䕶人員的支援。同時間弗洛伊德心臟病發，消防車用了5分鐘，才能駛至支援救護人員，搶救他。不久，附近一家醫院宣布弗洛伊德死亡，死亡時間是9:25pm。

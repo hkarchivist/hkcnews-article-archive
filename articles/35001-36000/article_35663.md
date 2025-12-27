@@ -1,0 +1,72 @@
+---
+title: "支聯會投維園年宵花檔食環職員需「請示上面」再考慮　傍晚終獲簽約　蔡耀昌：支聯會是合法組織"
+date: "2020-11-17"
+last_updated: "2020-11-17 19:56:10"
+author: "記者黎卓欣"
+category: "眾聞"
+tags:
+  - "維園年宵"
+  - "支聯會"
+url: "https://web.archive.org/web/20211025173135/https://www.hkcnews.com/article/35663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35671/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 支聯會投維園年宵花檔食環職員需「請示上面」再考慮　傍晚終獲簽約　蔡耀昌：支聯會是合法組織
+
+**於維園舉行的年宵市場，明年只設濕貨攡位，今日（17日）起一連兩日展開公開競投，支聯會一如過往投攤位，秘書蔡耀昌早上以底價投得3個攤位，但他指食環署未有如過往般立即簽約落實，而是有職員表示要「請示上面」再作決定，並需核實資料重新考慮其投標，請他明天到食環署辦事處會面商討。惟今午2時許，蔡耀昌收到署方電話通知，表示會與他正式簽約，傍晚完成雙方完成簽約手續。**
+
+**蔡指，署方聲稱須審查支聯會過往年宵攤位有無違規紀錄，競投費用繳交方法等，又指要「請示上面」，但沒有具體說明是何人。他認為，今次的安排並非單純行政混亂，而是有政治目的。**
+
+農曆年宵市場將於明年2月6日至12日，在全港15個地點舉行，不設乾貨和快餐攤位，1021個濕貨攤位今日（17日）起一連兩日展開公開競投。支聯會秘書蔡耀昌以底價每檔5440元，投得維園年宵1號、2號及8號攤位。他指投標後，食環署衛生總督察（行動）周勁時向他表示，收到「上頭指示，須重新考慮有關投標」，又指需要核實資料，暫未能辦理簽約手續，請他明天下午4時到灣仔食環署的辦事處，再通知相關詳情。
+
+<figure>
+<img src="https://web.archive.org/web/20211025173135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/支聯會-蔡耀昌-20201117164503_7e58_large.png" alt="">
+<figcaption>支聯會秘書蔡耀昌今早參與競投。（網上直播截圖）</figcaption>
+</figure>
+
+食環署高級總監凌美寶今早回應傳媒提問時稱，作出有關安排是希望向蔡耀昌索取更多資料，了解情況再作決定，至於當局想索取甚麼資料，她多次稱「我哋覺得有咁嘅需要（索取資料）」，但未有具體回應。
+
+<figure>
+<img src="https://web.archive.org/web/20211025173135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/食環署-支聯會-20201117164500_2d29_large.png" alt="">
+<figcaption>食環署高級總監凌美寶回應傳媒提問時稱，作出有關安排是希望向蔡耀昌索取更多資料。（網上直播截圖）</figcaption>
+</figure>
+
+### 數小時後突然獲通知可簽約 蔡耀昌認為有政治目的
+
+其後，蔡耀昌於下午2時許，收到周勁時致電通知，表示他們經核實資料後，決定今午會和蔡耀昌正式簽約。蔡簽約後接受記者提問，他引述署方人員指，須檢查過往營運年宵攤位的記錄是否有違規、繳交投標費用資料，如用支票還是現金、哪一間銀行等。
+
+<figure>
+<img src="https://web.archive.org/web/20211025173135im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/蔡耀昌-年宵-20201117191417_b650_large.jpg" alt="">
+<figcaption>支聯會最終成功簽約。（黎卓欣攝）</figcaption>
+</figure>
+
+署方檢查後，認為沒有問題便安排簽約，簽約的過程亦順利。但蔡耀昌認為安排不合理，形容今日情況過去30年都從未試過，質疑為何其他競投人則不用受審查，支聯會是否已被列入黑名單。
+
+他提到食環署職員曾表示要「請示上面」再作決定，但又未能明確說出「上面」是甚麼團體或人員，認為並非單純行政混亂，而是有政治目的。
+
+去年支聯會曾售「自由花」，蔡耀昌稱會今年仍未決定花卉的定名，但希望在賣花的過程中，能帶出相關訊息。他坦言，擔心年宵攤位最終仍會被其他理由阻撓，甚至被取消經營，但強調支聯會的攤檔是合法合規，會堅持按理念做事。
+
+**被問到食環署的做法，是否與內地學者近日批評支聯會是顏色革命組織有關，蔡耀昌說無法知道是否有關係，但從近期的政治環境可見，北京的紅線愈收愈近，即使沒有田飛龍的文章，支聯會亦已有心理準備迎對打壓。他重申，支聯會是合法組織，所有帳目、活動都非常公開，過去三十多年都是依靠市民的捐款支持工作，將支聯會的工作扣上外國勢力是無稽之談。他說，支聯會會繼續堅持「五大綱領」，亦會繼續舉辦維園六四燭光晚會。**
+
+###   
+ 內地學者田飛龍撰文稱支聯會涉違國安法
+
+北京航空航天大學法學院副教授、全國港澳研究會理事田飛龍昨日（16日）在《商報》撰文，指香港支聯會是「政治顛覆性組織」，涉嫌違反港區國安法及3條本地法例，他認為應啟動並窮盡本地法律資源加以檢控和懲治，若本地法律無法有效懲治，則可啟動國安法的程序。
+
+田飛龍指支聯會屬西方顏色革命和民主全球化議程的一部分，長期得到中國海外民運組織以及外部反華勢力的資助和支持，又批評支聯會未能謹守法律邊界，一再突破法律，將顛覆性綱領和意圖轉變為具體化的抗爭行動，一步步走向與「一國兩制」憲制秩序及國家安全利益相對抗的境地，形容支聯會的行為具有雙重違法性，既違反本地多部法律，也違反國安法。
+
+田飛龍認為，支聯會煽動對社會主義制度與國家政治體制的仇視、憎恨以及以民主方式顛覆國家政權，涉嫌觸犯《刑事罪行條例》的叛逆罪和煽動意圖罪。他指出，支聯會所參與的抗爭活動中，不少均屬未經警方批准的非法集結，在涉及暴力抗爭的活動中，扮演一定的暴動角色，涉嫌觸犯《公安條例》上的非法集結罪和暴動罪。他又認為，支聯會的行為涉嫌危害國家安全、公共安全、公共秩序並與外部政治性組織有勾結和聯繫，屬於《社團條例》上的行為禁止規定，認為保安局局長可以禁止支聯會運作。
+
+國安法方面，田飛龍指出，國安法生效後支聯會繼續接受外部勢力捐贈和資助，例如「接受外部勢力如NED、台灣等方面資助」，涉嫌觸犯了國安法上勾結外國或境外勢力危害國家安全罪；籌辦「六四記憶人權博物館」是為了搶奪歷史話語權，在香港及國際社會傳播不實及具煽動性的歷史信息，意圖煽動對中央政府的仇恨情緒，而網上活動亦無法避免與外國或境外勢力進行資金、資料、輿論宣傳及技術合作。
+
+他又說，支聯會維持「五大綱領」不變，繼續從事具有顛覆性和顏色革命色彩的「民主中國」範疇的激進運動，是涉嫌顛覆國家政權。
+
+### 
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025173135/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,63 @@
+---
+title: "范太倡立會應三分二愛國　選委議席復辟　泛民恐變萬年少數"
+date: "2021-02-28"
+last_updated: "2021-03-01 10:34:17"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "范徐麗泰"
+  - "Rita Fan"
+  - "夏寶龍"
+url: "https://web.archive.org/web/20211028113240/https://www.hkcnews.com/article/38643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38647/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38643/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38647/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 范太倡立會應三分二愛國　選委議席復辟　泛民恐變萬年少數
+
+北京預計將出手整頓香港選舉制度，港澳辦主任夏寶龍一連兩日南下深圳出席座談會。前全國人大常委范徐麗泰表示，會上提出參選立法會要由若干特首選委會成員提名，並重新引入回歸前的特首選舉委員會互選產生議席。她指出，過去民主派議員犯法後其他議員或盟友拒絕取消資格，令取消議員資格的法例形同虛設，認為日後「立法會要有三分之二好清晰地愛國愛港」。
+
+今次是建制中人比較明確提出在立法會所佔議席目標。如果假設取消超級區議會及引入1998年立法會10席選委會議席，民主派在雙議席單票制之下恐怕連地區直選都不能過半，只能成為萬年少數派。
+
+<figure>
+<img src="https://web.archive.org/web/20211028113240im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/夏寶龍-范徐麗泰-20210228235802_571d_large.jpg" alt="">
+<figcaption>范徐麗泰認為，區議會只是非政權性區域組織，無需加入特首選舉委員會，取消超級區議會也是反映所謂《基本法》立法原意。港台圖片</figcaption>
+</figure>
+
+大陸官方新華社報道，港澳辦主任夏寶龍一連兩日到深圳出席座談會，在閉門下聽取「各界人士」對特區選舉制度、落實愛國者治港的意見。港澳辦副主任張曉明、中央統戰部副部長譚天星、中央網信辦副主任牛一兵、國安處處長鄭雁雄都有出席。
+
+曾任立法會主席的范徐麗泰在會後見記者時聲稱，愛國者治港、行政立法互相制衡及配合是《基本法》的立法原意，但認為經歷2014年至2019年在立法會及區議會選出不愛國的人，在立法會拖特區政府後腿。
+
+范徐麗泰在立法會層面的主要建議包括：
+
+・取消超級區議會議席   
+ ・.候選人須獲若干特首選委提名以「保障獲提名的都是愛國愛港」   
+ ・選區至少劃分為10個   
+ ・雙議席單票制   
+ ・新增若干特首選委互選產生以支持特首施政。
+
+她在特首選委會方面建議則有：
+
+・取消區議會代表，改由全國政協擔任當然代表   
+ ・新增工商聯、婦聯、青聯等選出代表擔任委員。
+
+在立法會層面而言，值得留意范徐麗泰提出將直選沿用比例代表制，改為實行雙議席單票制（《南華早報》早前引述消息改為18區，每區兩席，離島一席），加上重新引入選委會議席，均指向北京有意透過選委提名先篩選，再壓縮民主派在議會內影響力，達至穩奪三分二「47+」的效果。
+
+所謂雙議席單票制，是指每個選民在選區內只投一票，最高得票兩人勝出，在劃細選區效果下，令對陣雙方基本上穩奪一席，並減少派出多張名單內鬥的誘因。
+
+至於立法會選委議席，1997年臨時立法會及1998年首屆立法會30席功能組別，地區議席佔20席，選委會選舉產生餘下10席。在2002年，選委產生議席減少至6席，地區直選增加至24席。
+
+由於選委會議席在分組點票下計入地區直選，假設功能組別維持35席而樂觀估計不取消個人票，在地區直選新增10席，餘下25席位若以10至12區計算，建制經協調預計可得其中一半，基本上北京穩控50席，一舉掃除政改、DQ議員門檻。
+
+范徐麗泰似是安撫說，中央不是搞「清一色」標準，只要無做過反對國家、破壞一國兩制的人，「無做過都可以參與的，希望慢慢變成真正的愛國愛港者。」
+
+前中央政策組首席顧問邵善波表示，修改選舉制度有迫切性，因為9月立法會選舉，12月特首選舉委員會，明年3月就是行政長官選舉。不過，他罕有在研討會上提出，不應過分修改選舉制度。
+
+邵善波會後向傳媒說：「經過國安法及其他行動，反對的勢力退出的退出，走佬的走佬，收監的收監，已不再形成大的抗拒力量。加上立法會的情況，實際上政府已可以順利地推動政策。在這情況下，中央法律道理上完全有權處理（選舉制度），也只能中央處理，香港政府也有角色。特別是這樣情況下，所做的就要更小心，不要overkill、過份處理，病人醫成死人。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028113240/https://www.hkcnews.com/aboutus/#subscribe)

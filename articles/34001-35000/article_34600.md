@@ -1,0 +1,67 @@
+---
+title: "宣道同學起來！"
+date: "2020-10-08"
+last_updated: "2020-10-09 01:39:24"
+author: "黃牛山人"
+category: "眾說"
+tags:
+  - "聖經"
+  - "和合本聖經"
+  - "聖經和合本"
+  - "教師釘牌"
+  - "宣道小學"
+url: "https://web.archive.org/web/20210920201539/https://www.hkcnews.com/article/34600/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34627/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34600/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34627/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 宣道同學起來！
+
+註：筆者為香港九龍塘基督教中華宣道會轄下小學舊生
+
+### 「船到痛鶴氣LOI！」
+
+> **大家立定心志！努力學業，充實自己，聖經訓言常記。** 宣道小學校歌
+
+
+當此惡勢力橫行嘅時間，等我哋嚟重溫一個小學時學過嘅聖經故事，充實下自己啦。老老實實，學校就嚟連呢啲聖經故仔都俾人禁埋，冇得聽㗎喇。
+
+<figure>
+<img src="https://web.archive.org/web/20210920201539im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/宣道小學-教師釘牌-聖經-20201008133200_15b8_large.jpg" alt="">
+<figcaption>圖片來源：小羊聖經有聲書《但以理的故事》第二集《火窯和金像》</figcaption>
+</figure>
+
+話說古時有個巴比倫王名叫尼布甲尼撒，係一個好巴閉嘅王帝。有幾巴閉？有次佢叫人幫自己整咗個成八層樓咁高嘅巨大黃金像，然後叫齊政府入面啲奴才包括首長、太監、信差、司局長、議員、師爺、各級官員等等出嚟，可能都包括埋啲宗教領袖同老師呀嗰啲啦，總之要冚世界一聽到国歌奏起就立即要俯伏向金像下跪以表忠誠，同而家見到支咁核突嘅乜乜旗要立正差唔多啦。佢仲立咗條宇宙大法，任何人如果唔跪，就要掟落火坑，「依法」懲處咁話。
+
+大帝一吹雞，全人類跪低；點知但以理有三個 friend 偏偏好硬頸唔肯跪，挺直腰骨楝喺度，因為佢哋只會向自己所相信嘅神下跪咁話。呢個時候有啲藍絲家長就爭住走出嚟篤灰，同大帝講：「吾王萬歲！我王講過話一聽見国歌響起，無論做緊乜都要向住你個金像跪低，凡唔肯跪嘅就要動用宇宙大法定罪；偏偏有幾個猶大人唔放吾王喺眼內，死都唔肯跪喎！嗱，就係佢哋三個！夠膽唔聽你支笛，唔信你嗰套，簡直當你冇到！一定要將佢哋依法處置，掟落火坑，殺一儆百！」
+
+大帝知道後梗係嬲到震，竟然有人膽敢挑戰祖国嘅權威？於是叫咗佢哋三個人嚟再問一次：「你哋究竟跪唔跪？最後機會。如果死都唔聽話，唔好怪我掟你哋落火坑咧。」點知呢三條友竟然仲寸寸貢咁答：「我哋做乜要答你呢啲廢問題？你鍾意點樣由得你，就算你掟我哋落火坑，我哋嘅神都會救番我哋出嚟。」
+
+「但係就算我哋嘅神唔嚟救我哋，你都應該知道，我哋唔會跟住你指鹿為馬，亦都唔會聽你支笛！慳啲啦你！」
+
+大帝見佢哋唔合作，仲咁寸咀，嬲到震啦顏面何存呀？於是佢叫人將個火坑加熱多七倍，驚死燒佢哋唔死，然後綁起呢三個唔識時務嘅真猶大人再踢入火坑。呢個時候奇怪嘅事發生咗，就係佢哋三個竟然燒唔著（？！），個火坑裡面仲好似有第四個人喺度同佢哋遊花園，唔通係天使嚟？！大帝走近個火坑望望吓，覺得唔對路，始終佢都驚天堂唔留位俾佢㗎嘛！於是佢叫番嗰三個真猶大人出嚟，仲轉軚話佢哋三個嘅神先係真正嘅神添。
+
+呢個故事教訓我哋，現實中雖然嗰啲唔信神嘅人好多時都作威作福，但做人都應該要俾啲腰骨，有嗰句講嗰句，堅持唔好做嗰啲違背良心嘅事。就算面對要俾人踢落火坑嘅下場，都唔應該為咗生存而輕易放棄做人嘅原則同尊嚴，指鹿為馬。
+
+各位宣道嘅同學仔，師長講嘅故仔真係有啲道理㗎。
+
+**延伸聆聽／行動：**
+
+[故事來源：但以理書第三章](https://web.archive.org/web/20210920201539/https://oice.com/story/ffc535ac84404493b725bd66b3a63d3e)   
+ [一人一信：要求教育局撤回取消教師註冊決定](https://web.archive.org/web/20210920201539/https://form.jotform.com/202796506933059)   
+ [教協眾籌幫被釘牌教師司法覆核](https://web.archive.org/web/20210920201539/https://www.hkptu.org/66756)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920201539/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 黃牛山人](https://web.archive.org/web/20210920201539im_/https://www.hkcnews.com/uploads/avatars/43dbd638-5ea5-4a1d-88d2-1b9a09fe6f9b.png?87451308)
+
+**博客 | 黃牛山人**
+
+【黃牛山人專欄】父親，創業者，《讚賞公民》團隊成員，oice 聯合創始人。企圖貢獻微小的力量改變社會上的荒謬事。 網誌：bchai.cc

@@ -1,0 +1,48 @@
+---
+title: "愛恨交織的心路歷程3——洗腦教育害了我的一生"
+date: "2017-06-28"
+last_updated: "2017-06-28 16:23:28"
+author: "向飆"
+category: "眾說"
+tags:
+  - "印尼華僑"
+  - "洗腦教育"
+  - "向飆"
+url: "https://web.archive.org/web/20220123131624/https://hkcnews.com/article/4921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4925/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/4921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4925/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 愛恨交織的心路歷程3——洗腦教育害了我的一生
+
+<figure>
+<img src="https://web.archive.org/web/20220123131624im_/https://hkcnews.com/news_新聞/hk-discuss/2017/06/印尼華僑-洗腦教育-向飆-20170628155835_1128_large.png" alt="">
+<figcaption>上世紀五、六十年代，很多印尼華僑學生都投入北歸深造熱潮中。學生擠滿北航的輪船甲板上，向岸上歡送的親友揮別的畫面常常見到。照片由筆者提供</figcaption>
+</figure>
+
+從出生到成長，我都是在遠離中國的印尼度過的。印尼才是我的祖國我的故鄉，應該從小就愛這個美麗的家鄉，長大後為這祖國的發展盡自己一份心力才是道理。但我卻作為炎黃子孫而須延續祖先的傳統遺志接受中華文化的教育，這是必須遵守的祖訓。常在腦海裡想：我是否無可奈何呢？
+
+也許是天生，未足三歲我就想上學，當時還沒有什麼幼兒班，直到差不多的年齡我才進入幼稚園。入學不久就發生事情：按規定學生必須在進校時90度鞠躬，我卻稍低頭點一下，從來不肯行日本式90度禮。幼稚園院長是一位嚴厲但資深教育的上海人，她堅持要我按規矩，我就偏不聽。於是她懲罰把我禁閉在鋼琴下面那地方，但她也忘記了此事。直到放學，傭人接不到我才醒悟；她緊張地在鋼琴下那黝黑的小地方看到我縮在裡面睡著而琴鞬被我逐一地拔散，趕快讓我回家，回家後聽到傭人回答的父親非常生氣即到學校理論：一個幾歲大的小孩子一般都怕黑，萬一嚇壞了，誰負責？當時是荷蘭與日本殖民統治印尼的年代。
+
+上了傳統華校的小學三年級不久，公民課本的首頁是青天白日國旗，次頁為蔣介石的領袖相。年輕的父親剛聽到新中國宣告成立而感鼓舞，於是當即給我轉學，插班進入左派學校。從此我就開始步上了被洗腦的不歸路，可以說是改變了一生。 **上世紀1949年後，從中國派出了不少教育工作者，也培養了很多的地下共產黨員在各個華校教歷史（其實就是政治）。不只印尼，馬來西亞、泰國、柬埔寨、越南、緬甸、老撾（寮國）等都如此這般，對東南亞諸國的華人進行洗腦。** **惟新加坡的建國英明領袖李光耀堅決反共逃避了洗腦，他們是實施英文教育的。**
+
+**洗腦教育就是如此從幼小年紀滲透到腦海中繼而根深蒂固，從課堂上的教學到課外書籍與中國電影的配合，都與這種洗腦有關聯的。家裡父母未必清楚孩子學到的是什麼，當接受了那些教育就變成自己的學識無法轉彎。** 小時候我父親常看書報接受新事物讓我佩服聽話，但母親就因沉迷武俠、愛情小說變得市儈令我瞧不起，我就常常反叛不聽話，有一次激得她罵我：你是誰的孩子？我竟然回她：我是祖國的孩子！她也無可辯駁只有生氣，完全沒察覺我已被洗腦變得忤逆（我從小就很乖而且最聽話）。
+
+<figure>
+<img src="https://web.archive.org/web/20220123131624im_/https://hkcnews.com/news_新聞/hk-discuss/2017/06/向飆-洗腦教育-印尼華僑-20170628155709_726b_large.png" alt="">
+<figcaption>啟航到中國讀書的印尼華僑學生，在輪船甲板上留影。</figcaption>
+</figure>
+
+在那個年代北上到中國求學的青少年之中，不少是父母愛國愛鄉覺得新中國正在發展，要求孩子去深造為國家出力，將來自己可以落葉歸根，返回家鄉做堂堂正正的中國人。我父親因為長期閱讀新加坡中文報，多少還了解一些情況，想再看多幾年的進展。當我選擇要在高中尚未畢業的1960年時到中國讀書，父親就商量地勸道：爸爸想在你中學畢業後送你到新加坡的南洋大學深造，何不再等兩年才決定？ **我沒有考慮就是堅決回國不願意再延後。當時是印尼左派華校掀起「回國大浪潮」，學校內外轟轟烈烈都以「回國參加社會主義建設」號召華裔子弟。青少年的心是熱的，加上一些中國電影的感染，年輕的華裔一代幾乎無可抵擋都響應「祖國的號召」上船回國。那時從東南亞各地通向中國的路途只有航海，乘搭荷蘭輪船公司的萬噸巨輪，航行一星期左右到黃埔港登陸然後到廣州。我就這樣到了祖籍國，從此成了我一生的命運。**
+
+其實，1960年是中國遭受三年自然災害加上老毛搞的大躍進、人民公社、三面紅旗失敗致使全國餓死人最多的時期。由於中國的閉關鎖國政策，新聞閉塞，在東南亞各國，大家都不清楚中國發生了什麼？都相信中國的人民畫報所宣傳的那樣「人可以坐在稻田上歡天喜地迎接豐收年」這種謊言。「謊言一說再說就變真話」矣。但我竟然發現香港的不少年輕人，仍在步我們昔日走過的路，相信了「中國已經在改變」。就如當年，我也以為中國正在走向進步，不再是土改前的狀況。我有親戚老人家曾勸告我不要去大陸，中共是共產共妻的，而且吃番薯！我反罵他「造謠」。哪知給我看到了一本有關發生在延安的書，就是「共產共妻」。從1949年以來，蔣介石國民黨改變了台灣，而大陸呢？何曾有一天還人民以自由？
+
+#### 我自小愛好文學，如果不是去中國讀書而改變了命運，也許我會研究文學。但歷史沒有如果，奉勸年輕人多思考三思：命運要掌握在自己手中，走錯一步回頭就難了。
+
+---
+
+![博客 | 向飆](https://web.archive.org/web/20220123131624im_/https://hkcnews.com/uploads/avatars/4716ee58-c566-400d-96c3-c5082d4efc3d.png?860766051)
+
+**博客 | 向飆**
+
+【向飆・歲月無情】我出生、長大在印尼雅加達，父母和祖父母都與我一樣在印尼出生長大，因此我們是三代的印尼華裔。只有我的曾祖父才是廣東梅縣務農的中國人，因家鄉困苦而出洋到南非的毛里求斯謀生後來輾轉到印尼居住營商。直至培養了我父親經商後才離開印尼回鄉居住安享晚年。我從小就愛讀書，除了學校教育外，還酷愛讀課外書，但都是1949年以後中國出版的書籍。楊沫著的《青春之歌》印象最深也最受影響。我在大學親身經歷了當年的無產階級文化大革命，是出名的造反派骨幹。1968年大學畢業我被分配到河北滄縣工作（再教育），1970年在這家小型車具廠被民兵連長在我頸上掛了很重的鐵環批鬥，一掛上去就流了一身血，有工人偷偷飛奔隔壁把解放軍（8341部隊）叫來救了我。於是我在工廠善良的黨委書記支持鼓勵下申請出國，3個月後獲批准出境到澳門。
+1971年從澳門坐漁船偷渡到香港生活的我曾回到印尼工作生活，在當地的報紙雜誌出版公司做過打字、記者、編輯。晚年選擇住在香港。

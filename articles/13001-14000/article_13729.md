@@ -1,0 +1,39 @@
+---
+title: "前特首曾蔭權上訴被駁回　即時再入獄　刑期減至12個月"
+date: "2018-07-20"
+last_updated: "2018-07-20 22:00:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "曾蔭權"
+  - "Donald Tsang"
+  - "Tsang Yam-kuen"
+  - "donald tsang yam kuen"
+  - "曾蔭權案"
+url: "https://web.archive.org/web/20220124201339/https://www.hkcnews.com/article/13729/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13729/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 前特首曾蔭權上訴被駁回　即時再入獄　刑期減至12個月
+
+<figure>
+<img src="https://web.archive.org/web/20220124201339im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/曾蔭權案-曾蔭權-曾鮑笑薇-20180720103127_213d_large.jpg" alt="">
+<figcaption>曾蔭權今早由太太鮑笑薇陪同到庭。何君健攝</figcaption>
+</figure>
+
+前行政長官曾蔭權因一項藉公職作出不當行為罪罪成，去年被判監20個月，另須付500萬元訟費。他早前就定罪、判刑及訟費提出上訴。就定罪方面，曾蔭權的上訴今早被駁回。但其判刑和訟費上訴得直，分別改判入獄12個月及改付100萬元訟費。曾蔭權去年申請保釋等候上訴前，已服刑63天。
+
+代表曾蔭權的資深大律師余承章一度申請保釋，但上訴庭副庭長麥機智表示，今天有其他案件處理，未能處理申請，建議余承章先閲讀判詞再考慮，曾蔭權即時還柙。
+
+曾蔭權聽到裁決時，雙眼一度緊閉、神情沉重。他離開犯人欄時，以眼神向家人道別。他其後再步出犯人欄，將紅色煲呔、手錶、戒指等隨身物品交給太太，又與太太隔著玻璃對話。曾蔭權其後報稱不適，救護車將他由高等法院送往瑪麗醫院，曾蔭權一度戴上氧氣罩、閉上眼，抵達時由擔架送到羈留病房。曾蔭權的家人其後到瑪麗醫院了解情況。余承章下午到瑪麗醫院，曾與曾蔭權交談，被問到曾蔭權可會上訴至終審法院，余承章指未有決定。
+
+曾蔭權今早與太太曾鮑笑薇牽手到庭，其弟弟曾蔭培、妹妹曾璟璇、兒子曾慶衍和曾慶淳均有到場。曾蔭權開庭前與民主黨何俊仁和李永達擁抱，又輕拍曾慶衍的心口。何俊仁和李永達表示，今日是自發到庭，以朋友身份支持曾蔭權，透露曾在保釋期間與曾蔭權見面，形容曾的心情「ok」。
+
+曾鮑笑薇離開法庭時表示「好失望、心痛」，與律師商討後，會盡快決定下一步行動。她未有回應提問，與家人一同乘車離開。
+
+曾蔭權去年2月經審訊後，被裁定藉公職作出不當行為罪罪成，控罪指他於2010年1月1日至2012年6月30日期間，身為行政長官及行政會議主席身份，參與決定雄濤廣播有限公司（及後改名為香港數碼廣播有限公司、DBC）的聲音廣播牌照及相關申請時，沒有向行政會議申報、披露，或向行會隱瞞他與雄濤主要股東黃楚標就深圳東海花園物業進行商議。
+
+<figure>
+<img src="https://web.archive.org/web/20220124201339im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/高等法院-Donald%20Tsang-20180720152449_1251_large.jpg" alt="">
+<figcaption>救護車抵達高院，將曾蔭權送往瑪麗醫院。何君健攝</figcaption>
+</figure>

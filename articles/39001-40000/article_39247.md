@@ -1,0 +1,36 @@
+---
+title: "【文字直播.不斷更新】初選47人案　高院處理最後4人保釋覆核"
+date: "2021-03-15"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "47人初選案"
+url: "https://web.archive.org/web/20210712055712/https://www.hkcnews.com/article/39247/47%E4%BA%BA%E5%88%9D%E9%81%B8%E6%A1%88-39247/%E3%80%90%E6%96%87%E5%AD%97%E7%9B%B4%E6%92%AD%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0%E3%80%91%E5%88%9D%E9%81%B847%E4%BA%BA%E6%A1%88-%E9%AB%98%E9%99%A2%E8%99%95%E7%90%86%E6%9C%80%E5%BE%8C4%E4%BA%BA%E4%BF%9D%E9%87%8B%E8%A6%86%E6%A0%B8"
+original_url: "https://www.hkcnews.com/article/39247/47%E4%BA%BA%E5%88%9D%E9%81%B8%E6%A1%88-39247/%E3%80%90%E6%96%87%E5%AD%97%E7%9B%B4%E6%92%AD%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0%E3%80%91%E5%88%9D%E9%81%B847%E4%BA%BA%E6%A1%88-%E9%AB%98%E9%99%A2%E8%99%95%E7%90%86%E6%9C%80%E5%BE%8C4%E4%BA%BA%E4%BF%9D%E9%87%8B%E8%A6%86%E6%A0%B8"
+---
+
+# 【文字直播.不斷更新】初選47人案　高院處理最後4人保釋覆核
+
+<figure>
+<img src="https://web.archive.org/web/20210712055712im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/47人初選案-20210315094909_1c14_large.jpg" alt="">
+</figure>
+
+47人因參與民主派初選被控串謀顛覆國家政權案，總裁判官蘇惠德原批准其中15人保釋，但律政司要求覆核其中11人的保釋決定。高等法院分三天處理律政司就初選案11人的保釋覆核，最後一批共4人的覆核，包括張可森、何啟明、施德來、李予信，將由高院原訟法庭法官杜麗冰審理。
+
+- 09:30 -   
+ 開庭，高院先處理律政司就張可森提出的保釋覆核。開庭前，張可森不時望向旁聽席，其妻今早也在庭上。延伸庭內，約有20名公眾人士旁聽。
+
+法院低層平台出入口未見有人排隊取籌旁聽。法院外的金鐘道現停泊約10輛警車，佔據了一整條行車線，逾20名警員於囚車的出入口站崗戒備。
+
+<figure>
+<img src="https://web.archive.org/web/20210712055712im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/47人初選案-20210315100818_cf29_large.jpg" alt="">
+<figcaption>金鐘道現停泊約10輛警車，逾20名警員於囚車出入口戒備。曾港深攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712055712/https://www.hkcnews.com/aboutus/#subscribe)

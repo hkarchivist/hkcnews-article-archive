@@ -1,0 +1,50 @@
+---
+title: "九東順利紀律部隊宿舍票站　投票率逾65%　全港最高"
+date: "2021-12-22"
+last_updated: "2021-12-23 17:37:11"
+author: "記者鄭佩珊、鄭啟智"
+category: "眾聞"
+tags:
+  - "投票率"
+  - "順利紀律部隊宿舍"
+  - "2021立法會選舉"
+url: "https://web.archive.org/web/20220519155209/https://www.hkcnews.com/article/49495/2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49545/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD65-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49495/2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49545/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD65-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 九東順利紀律部隊宿舍票站　投票率逾65%　全港最高
+
+立法會選舉投票率創歷史新低，僅得30.2%，眾新聞分析全港各票站的投票率，其中九龍東雙順選區今年新增的順利紀律部隊宿舍會所票站，投票率為65.99%，較全港投票率30.2%高出1.18倍，大幅拋離其餘600多個票站。建制派陣營在此票站的得票率同樣冠絕全港，達99.05%。
+
+眾新聞分析全港620個票站（註1）的投票數據，各票站的投票率由21.39%至65.99%不等，逾六成、共396個票站的投票率低於全港投票率，218個票站的投票率介乎30.2%至40%，餘下5個票站的投票率介乎40%至43.6%。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20220519155209im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/投票率-2021立法會選舉-順利紀律部隊宿舍-20211222204535_1f4d_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+至於全港投票率最高的票站，位於九龍東雙順選區順利紀律部隊宿舍會所的票站。雙順選區位於觀塘區，包括順利紀律部隊宿舍、順緻苑、以及順利邨其中三座樓宇。今屆共有11,093名選民，設有3個票站，順利紀律部隊宿舍會所屬新增票站，獲編配3,969名選民，有效票數2,619，投票率達65.99%，較全港高出1.18倍。另外兩個票站則位於順利社區中心及中華基督教會基順學校，投票率分別為26.18%和29.61%，與全港平均水平相若。
+
+眾新聞翻查資料，2008年、2012年及2016年三屆立法會選舉，以及2019年區議會選舉（註2），雙順選區均只設有順利社區中心和中華基督教會基順學校兩個票站。2019年區選，區內兩個票站 共有10,759名選民，今屆略增334人至11,093名登記選民。在選民人數未有大幅增加的情況，今屆立法會選舉新增順利紀律部隊宿舍的票站。
+
+根據立法會選舉活動指引，選舉事務處會編配選民／獲授權代表在其選區並鄰近其登記住址的投票站投票。眾新聞向選舉事務處查詢，為何雙順選區在選民人數未有大幅增加的情況下會新增順利紀律部隊宿舍會所票站，選舉事務處僅重複相關指引，按示在立法會選舉中為選民編配投票站時，會按當時選區界限、選民分佈、可借用的場地情況和大小等因素，盡可能為選民安排較接近其住所的投票站，方便他們前往投票。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20220519155209im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/順利紀律部隊宿舍-投票率-2021立法會選舉-20211222205346_1ad7_large.jpg" alt="">
+<figcaption>圖為順利紀律部隊宿舍，今屆在其會所新增票站，成為全港最高投票率的票站。Google Maps圖片</figcaption>
+</figure>
+
+另外，今屆選舉建制派陣營在全港的得票率由過往「黃金六四比」逆轉至「九一比」，得票率達93.15%，而在順利紀律部隊宿舍會所票站，更高至99.05%，屬全港最高。其中民建聯顏汶羽有1226票、工聯會鄧家彪獲1203票、有謝偉俊支持的李嘉欣則有165票。至於九東兩名自稱「非建制派」，民主思路陳進雄和胡健華，在此票站分別只有17票和8票，得票率不足1%。
+
+雙順選區過去一直是建制票倉，現任區議員為報稱獨立的建制派符碧珍，她自2007年起在該區連任至今。2019年，她面對警察隊員佐級協會前主席陳祖光及民協梁漢祺挑戰，以51.50%得票率成功連任，梁漢祺在反修例運動有利民主派下，得票率仍有36.86%。   
+   
+ 全港最低投票率的票站，則是位於新界東南，屬白沙灣選區的西貢鄧肇堅運動場票站，此站有3,268名登記選民，只有699人投票，投票率只有21.39%，建制派在此票站的得票率為96.71%，兩名建制派包括：民建聯李世榮獲496票，林素蔚取180票，自稱「基層民主派」的蔡明禧得23票。   
+   
+ 今屆新增的口岸票站，選民須預先登記方可投票。在22,526名登記前往投票的選民當中，最終有17,569人投票，佔登記人數77.99%。三個口岸票站共有17,311張有效選票，推算無效票有258張，佔投票人數1.47%，較全港平均的無效票比率2.04%低。建制派在口岸票站的得票率均超過9成。
+
+註1：今屆選舉設有630個一般投票站，其中10個屬於小投票站，它們的選票會被運往大投票站一併點算投票結果。選舉事務處現時只公布該620個票站所點算的有效票數，眾新聞以有效票數推算投票率。   
+ 註2：由於雙順選區於2011年和2015年區議會選舉的參選人屬自動當選，故不設票站。

@@ -1,0 +1,113 @@
+---
+title: "【721白衣人暴動案】首被告無罪獲釋　其餘全部罪成還柙　7.21兩周年翌日判刑"
+date: "2021-06-18"
+last_updated: "2021-06-18 22:34:00"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "721白衣人暴動案"
+  - "葉佐文"
+url: "https://web.archive.org/web/20210802215505/https://hkcnews.com/article/42518/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42534/%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/42518/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42534/%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【721白衣人暴動案】首被告無罪獲釋　其餘全部罪成還柙　7.21兩周年翌日判刑
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/721白衣人暴動案-20210618170938_7db7_large.png" alt="">
+</figure>
+
+7.21白衣人暴動案今早（18日）在區域法院宣讀判詞，法官葉佐文表示因未能確定片中施襲者為首被告王志榮，裁定他暴動及有意圖而傷人罪名不成立，當庭釋放。其餘5名被告則全部控罪罪名成立，葉官認為被告黃英傑是偏幫施襲白衣人，以鼓勵者角色參與暴動，其餘罪成被告均以主犯身份參與，不接納被告吳偉南「飛天南」以棍自衛的說法，又指他的證供「不盡不實，一派胡言」。
+
+連同早前認罪的兩名被告，黃英傑、林觀良、吳偉南及蔡立基案件押後至7月13日求情，林啟明、鄧懷琛及鄧英斌則在7月14日求情。全部被告案件押後至7月22日判刑。
+
+吳偉南「飛天南」的女兒得悉裁決後在庭上激動落淚，與父親擁抱道別，吳偉南亦輕拍她膊頭安慰。有到庭旁聽的親友不滿裁決，大嘆「無公理呀」、「知唔知點解白衣人出現呀」、「佢路過返屋企㗎咋」；又在記者身邊罵道︰「呢啲記者咁樣寫，寫到累死人，有報應呀」、「害死幾多無辜嘅人」。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/721白衣人暴動案-20210618140336_e6c4_large.jpg" alt="">
+<figcaption>721白衣人暴動案首被告王志榮當庭釋放後，中午步離法院。 郭日朗攝</figcaption>
+</figure>
+
+#### **控罪一、二（第一、二、七、八被告）** ：涉於元朗西鐵站大堂參與暴動及有意圖傷人
+
+### 第一被告王志榮—未能確認身份
+
+第一被告王志榮在本案爭議身份，即否認是控方指稱的施襲男子，包括用反光垃圾桶蓋擊傷證人A。葉官分析影片後，認為片段清晰度足夠，但控方指稱男子與第一被告容貌不完全相像；雖肯定控方指稱男子穿著與在第一被告住所搜獲的波鞋是同一對，被告保存波鞋是自招嫌疑的行為，但法庭不能肯定控方指稱施襲者就是第一被告。
+
+王志榮獲無罪釋放後，未有在庭外回應提問。其代表大律師關唐利就認為裁決是「正常」，可說是預期之內，還第一被告一個清白。被問到代表本案被告會否有壓力，關唐利表示處理案件時並不知悉與7.21相關，「壓力就一定有嘅，始終單案多人關注啲」。關唐利另表示已告知法庭不會申請訟費。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/元朗白衣人-721白衣人暴動案-20210301183434_1d1e_large.png" alt="">
+<figcaption>紅圈為控方指控為第一被告王志榮的男子。《誌》影片截圖</figcaption>
+</figure>
+
+### 第二被告黃英傑—明顯偏幫白衣人
+
+第二被告黃英傑不爭議當日在場，只爭議部分模糊影像之身份。葉官指出，同意當晚10時40至42分曾發生一場暴動，即白衣人衝入元朗閘內，該場暴動結束後，10時49分再有約50名白衣人在閘外聚集，作出破壞社會安寧的行為，而第二被告與控方指稱的第一及八被告已經到場，並曾指罵閘內市民。
+
+辯方早前指稱第二被告是因閘內市民有暴動行為，繼而才指罵他們，顯示他不鼓勵暴力。葉官就指出，他在片段聽到第二被告曾指罵「你哋打人就得呀」，又有要求對罵市民脫下口罩，侮辱對方為「契弟」。對於辯方表示有閘內人士先推跌指示牌，第二被告指罵其行為，葉官反駁指，片段可見是第八被告先搖晃該指示牌作恐嚇，閘內黑衣男子才推跌指示牌，然而第二被告只指罵黑衣人，卻縱容第八被告先前行為。
+
+葉官不同意辯方「每次都是有人搞事在先」的說法，因第二被告只指罵黑衣人，卻從沒反罵其他白衣人。葉官指出，片段中「無聽到林卓廷搞事」，他只是在安慰現場市民，說已經報警，勸喻市民等待警方到場，故有關林卓廷指罵搞事的說法是「毫無道理」；第二被告在林卓廷勸止及拉回閘內人士時「反過嚟鬧佢」。種種證供顯示，第二被告是偏幫和站在白衣人一方，沒罵身邊作出更激烈和暴力行為的白衣人，足以鼓勵白衣人襲擊他人，故第二被告是以鼓勵者身份參與暴動及傷人行為。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/721白衣人暴動案-元朗白衣人-20210325163904_16e7_large.jpg" alt="">
+<figcaption>第二被告黃英傑。資料圖片</figcaption>
+</figure>
+
+### 第七被告鄧英斌—持棍到場是鼓勵施襲
+
+第七被告鄧英斌不爭議當晚在場。辯方早前陳詞指被告為八鄉橫台山河瀝背村村長，不難理解當日會到元朗站了解事況，而他手持木棍是為自衛，未必用來施襲。
+
+葉官反駁指，第七被告若要護村，理應在村口站崗，無需「勞師動眾」前往元朗站；手持木棍的目的明顯是打人，就算最後只持棍在手，也已有明顯鼓勵在場白衣人施襲的效果，故他也是以鼓勵者身份參與白衣人暴動及傷人行為。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/721白衣人暴動案-20210618145502_2c1d_large.jpg" alt="鄧英斌">
+<figcaption>第七被告鄧英斌。 周滿鏗攝</figcaption>
+</figure>
+
+### 第八被告蔡立基—不接納身份爭議
+
+第八被告蔡立基爭議身份，指影片質素差，控方所指的男子並非被告本人。葉官認為，片段可作清晰辨認，第八被告身穿的白色T恤上有深色牛仔褲圖案，設計非常獨特，「本席之前係無見過嘅」，被告的哨牙和笑容亦很獨特，「依起棚牙」時兇神惡煞，肯定控方指稱人物是被告本人，他與白衣人到元朗站的目的是參與暴動及襲擊黑衣人。
+
+#### 控罪三、四（第五、六被告）：涉於元朗西鐵站J出口（英龍圍一帶）參與暴動及串謀有意圖傷人
+
+#### 控罪五、六（第五被告）：涉於元朗形點商場內參與暴動及有意圖傷人
+
+### 第六被告吳偉南「飛天南」—證供不盡不實、一派胡言
+
+第六被告吳偉南「飛天南」涉在英龍圍參與暴動及串謀傷人，辯方早前陳詞指被告只是在晚飯後買燉蛋回家時路過現場，從村民「Kitty姨」得悉有外來人要「拆祠堂」，出於擔心村民便想充當「和事佬」，勸喻雙方和平散去。葉官不同意吳偉南只是「和事佬」，因他一到場便希望協助「Kitty姨」等村民驅趕黑衣人，即參與村民一方；被告亦並非執法人員、當時又趕著回家拿燉蛋給仔女，留下來根本沒有用處，用棍驅趕外來人並不合理，情況與其供詞不吻合。
+
+葉官同意控方對吳偉南施襲的指控，認為被告是從襲擊他人的格仔衫男子接過木棍，而非由「呆站著」的黑衣男子手上搶過；被告因「Kitty姨」一句說話就覺得有人要拆祠堂、與黑衣人推撞，是「不合常理」。
+
+辯方早前陳詞指吳偉南並沒打中橙色安全帽男子，只是出於自衛用棍指嚇。葉官不接納說法，認為被告供詞「不盡不實，一派胡言」，片段可見橙帽男子沒有手持武器，倒地後面部朝下，根本不會看到被告所指的揮棍指嚇；被告也根本沒有收棍意圖，在橙帽男子應聲倒地後，被告再向他多揮一棍，不可能是真的相信要作出自衛。
+
+葉官續指，證供清晰顯示吳偉南是「主動挑釁黑衣人」，與「Kitty姨」、王宛（音）及白衣人聚集在同一地方、手持武器，是有共同目的破壞社會安寧及襲擊黑衣人。葉官同意控方所指，吳偉南與第五被告鄧懷琛曾相認，有眼神交流和身體接觸，與其他白衣人同一陣線對抗黑衣人，一同參與暴動及串謀有意圖而傷人。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/飛天南-20210618145433_1559_large.jpg" alt="">
+<figcaption>第六被告吳偉南「飛天南」。周滿鏗攝</figcaption>
+</figure>
+
+### 第五被告鄧懷琛—不接納身份爭議
+
+第五被告鄧懷琛亦作身份爭議。葉官認為，庭上協助辨認的救護員證人，有充足時間及理想光線觀察第五被告之容貌，影片亦清晰可見該施襲男子就是被告本人。
+
+至於在元朗形點商場內參與暴動及有意圖傷人的控罪，葉官指片段可見，當一名黑衣男子已遭5至6名白衣人追打時，鄧懷琛作出指示手勢，身旁幾名白衣人即加入追打；鄧懷琛多次去有白衣人打黑衣人的位置，不但站在一旁觀察，更用手勢指示行為，是指揮者而非旁觀者。
+
+<figure>
+<img src="https://web.archive.org/web/20210802215505im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/721白衣人暴動案-20210618145514_7faf_large.jpg" alt="鄧懷琛">
+<figcaption>第五被告鄧懷琛。周滿鏗攝</figcaption>
+</figure>
+
+除了早前認罪的林觀良（48歲，商人）及林啟明（43歲，商人），6名受審被告為王志榮（54歲，運輸公司東主）、黃英傑（48歲，工程公司東主）、鄧懷琛（60歲，燒烤場東主）、「飛天南」吳偉南（57歲）、鄧英斌（61歲）及蔡立基（40歲，機械技工）。
+
+【案件編號：DCCC888/2019、DCCC11/2020 、DCCC 734/2020（已合併）】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802215505/https://hkcnews.com/aboutus/#subscribe)

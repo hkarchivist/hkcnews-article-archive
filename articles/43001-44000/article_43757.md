@@ -1,0 +1,51 @@
+---
+title: "「光時」口號構成港獨　言論紅線無限擴闊　收口封筆社會死寂"
+date: "2021-07-27"
+last_updated: "2021-07-28 03:22:32"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "國安法"
+  - "光復香港，時代革命"
+  - "唐英傑"
+url: "https://web.archive.org/web/20210919172644/https://hkcnews.com/article/43757/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43759/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43757/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43759/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「光時」口號構成港獨　言論紅線無限擴闊　收口封筆社會死寂
+
+
+{{< video src="https://web.archive.org/web/20210919172644if_/https://www.youtube.com/embed/rDXrIF0jOfI" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210919172644/https://bit.ly/2Cj8v4t)
+
+去年7月1日，港區國安法生效第1日，銅鑼灣一帶有市民聚集，唐英傑駕駛插有「光時」旗幟電單車撞向3名警員，被控「煽動他人分裂國家罪」及「恐怖活動罪」等3罪，唐還押近1年後，案件上月於高院開審，經歷15日審訊，周二（27日）3名國安法指定法官裁定唐英傑煽動分裂國家罪及恐怖活動罪兩項罪名成立。法官指「光復香港，時代革命」可以構成港獨意味， 而被告當時展示口號方式有分裂國家意圖。法庭周四聽取求情。
+
+法官對「光時」口號裁決，即時的影響是「快必案」，即譚得志被控發表煽動文字等罪，裁決對譚得志極為不利，更重要的是，法官對如何可以構成港獨意味的劃線，極為廣闊，對其他國安法案中所涉及的言論和行為，以至於新聞自由和言論自由，都有深遠及壞影響。
+
+整件案件的關鍵，是如何理解「光復香港，時代革命」的意思，及口號是否構成港獨，危害國家安全。控方律師引用專家證人、嶺大歷史系教授劉智鵬的供詞，指「光時」口號，有香港獨立、將香港特別行政區從中華人民共和國分裂出去，改變特區法律地位以及顛覆政權的意思，而法律上「煽動」( Incitement ) 是指由被告向他人傳達、以文字或行為進行的溝通。不論「溝通」是否成功，只要被告作出具煽動他人分裂國家效果的溝通，就可定罪。
+
+辯方引述分別來自中大和港大學者，指如「光時」口號意思含糊，沒有標準解釋，不足以構成煽動，並認為如法庭接納「光時」 可有多種解讀，即可以令被告面對的煽惑他人分裂國家罪不成立。
+
+雙方專家引經據典，解讀「光時」口號，但一般人從常理出發，明顯有不同理解，甚至會覺得口號只是口號，沒有實際意義，也不一定須要有實際意義，在遊行集會中，作用是集體宣洩。 從常理和現實角度，獨立和將香港「分裂出去」，可能性和可行性都是零。法官以辯方專家亦承認「光時」其中一個解讀是港獨，因此認為唐英傑行為構成港獨，有選擇性理解辯方專家供詞之嫌。
+
+中央高度重視國安法，國安法的實際地位高於基本法，由提出、制訂、通過、實施，都是一項重大政治工程，目的十分清楚，要令香港由亂入治。唐英傑案是首宗案件，法律和常理都要靠邊站，法官裁決罪成，令人不感到意外，但並不代表合理、合乎比例、符合公義。
+
+法官一口咬定唐英傑完全明白「光時」口號帶有「香港獨立」 的意思，但「光時」口號有不同理解，唐英傑當日行為目的是否鼓吹獨立，存在疑問，普通法一項重要原則是疑點歸被告，國安法推出前後，不少人擔心普通法一些重要原則，對國安法案件將不適用，裁決令人憂慮最壞的景象成為現實。「光時」口號的解讀，恐怕會令「上綱上線」式政治演繹言論和行為惡化， 言行容易跌入紅線，惟有「收口」、封筆，不同聲音消失，社會一片死寂。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919172644/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210919172644im_/https://hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

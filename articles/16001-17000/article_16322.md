@@ -1,0 +1,65 @@
+---
+title: "大館難容異見作家馬建　自由從萎縮步向消失"
+date: "2018-11-08"
+last_updated: "2018-11-09 00:38:09"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "馬會"
+  - "hkjc"
+  - "香港賽馬會"
+  - "jockey club"
+  - "賽馬會"
+  - "大館"
+url: "https://web.archive.org/web/20210726233013/https://www.hkcnews.com/article/16322/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/16322/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 大館難容異見作家馬建　自由從萎縮步向消失
+
+> **近期對香港一些人權狀况的關注，是不必要、毫無根據、 不成立的，是出於誤解和對香港真實情况缺乏了解所致。**
+
+
+政務司長張建宗日前以中國代表團副團長身分，出席聯合國人權理事委員會定期審議工作小組會議，發表上述談話，振振有辭反駁外間對香港人權的關注。言猶在耳，流亡海外的中國作家馬建原定本周六出席在大館舉行的香港國際文學節活動被取消。大館總監簡寧天回應傳媒時表示：「 我們不願見到大館成為任何個別人士促進其政治利益的平台。」事件令人擔心自由空間正在不斷萎縮，審查壓力逐步擴散。
+
+
+{{< video src="https://web.archive.org/web/20210726233013if_/https://www.youtube.com/embed/QeUUhdUAtQA" >}}
+
+
+簡寧天強調：「大館的定位是要成為一個全民共享的文化樞紐；管理團隊的責任是要兼顧社會多元的需要。」大館是政府全力支持的活化項目，香港致力推動文化創意，創意需要有無界限空間，真正多元，不避政治敏感，文化創作不應有太多「紅線」和「底線」。大館以「不願見到大館成為任何個別人士促進其政治利益的平台」 ，拒絕安排馬建在場地舉行講座，談論他的新作《中國夢》， 有作政治審查之嫌，將文學創作與所謂「政治利益」扯上關係， 對馬建並不公平，明顯針對他敏感的個人背景，而非他的文學作品。
+
+馬建出生於山東青島，之後移居英國倫敦。根據香港國際文學節的 [網頁](https://web.archive.org/web/20210726233013/https://www.festival.org.hk/writers/ma-jian/) ，馬建曾在港居住10年，他原定於本星期六下午，與香港作家韓麗珠及吳美筠， 一同出席談論香港文學現況和未來的活動；另一場講座主題為《馬建：中國夢》，馬建預計談論他對現今中國諷刺意味極濃的描繪。「香港國際文學節」在網站發表聲明， 指大館要求更改文學節兩場講座的地點，大會不揣測背後的原因， 並會專注令各作者的聲音被外界聽見。馬建在 [網站](https://web.archive.org/web/20210726233013/https://www.facebook.com/MAJIAN1953?fref=search&__tn__=%2Cd%2CP-R&eid=ARDRVzYEUq7pH6bQDP6h6yoF06jB_RZnAZi4aRcUUnTC-ZV0wa08sXesGmo-iCJXUTrQ2aI2ZKIyEW7f) 上說，「 十號下午的時間應該不變的。如果我沒有被失蹤的話。」
+
+民主派會議召集人、議會陣線毛孟靜關注事件， 質疑事件有否來自官方甚至北京壓力，要求大館管理公司解釋， 政府亦要解釋有否施壓。她又說，如果馬建最終無法入境，會是馬凱事件後的另一大醜聞。
+
+<figure>
+<img src="https://web.archive.org/web/20210726233013im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/作家-馬建-20181108213412_27dc_large.png" alt="">
+<figcaption>流亡海外的中國作家馬建。網上圖片</figcaption>
+</figure>
+
+改場地事件令人想到另一樁嚴重性不同，但性質相近的畫展取消事件。上海出生移居澳洲的藝術家巴丟草，原定上周末在港舉行畫展，但因安全理由被取消。畫展以「共歌」為題，主辦單位發表聲明， 指決定是因為「中國當局對藝術家的威脅（threats made by the Chinese authorities relating to the artist）」，基於安全考慮必須取消。
+
+兩樁事件都令人關注本港表達自由及言論自由， 正受到來自四方八面的壓力，令香港本來享有， 港人也引以為傲的自由開放、多元包容的廣闊平台和空間， 逐步萎縮，甚至消失。
+
+兩樁事件都並非個別事件，在言論自由大氣候全面「刮冷風」下， 文化藝術、電影出版、新聞等方面都不能倖免。大館容不下馬建， 只能另覓「小館」，將來可能要轉到地下；他的新作不但找發行商遇到困難，據說印刷公司也不敢沾手；銅鑼灣書店事件後，出版及發行涉及中國政治敏感內容，包括國家主席習近平，都成為禁區，出版人都怕自找麻煩；不少觸及政治敏感話題電影，例如關於1967暴動的《消失的檔案》，沒有商業影院願意放映，只能在大學、社區會堂等場地放映。表達空間逐步被收窄，假如趨勢不變，最後上映的是「消失的自由」。
+
+<figure>
+<img src="https://web.archive.org/web/20210726233013im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/11/大館-20181108213354_e8e2_large.jpg" alt="">
+<figcaption>大館以「不願見到大館成為任何個別人士促進其政治利益的平台」 ，拒絕馬建在內舉行講座。網上圖片</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726233013/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210726233013im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

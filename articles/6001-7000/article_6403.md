@@ -1,0 +1,91 @@
+---
+title: "居港法國人增　Gobee.bike老闆：港人抗拒新技術不喜轉變"
+date: "2017-09-04"
+last_updated: "2017-09-06 13:09:58"
+author: "實習記者丘萃瑩"
+category: "眾聞"
+tags:
+  - "創業"
+  - "法國人"
+  - "外資"
+url: "https://web.archive.org/web/20210921212256/https://hkcnews.com/article/6403/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-6703/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-gobeebike%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/6403/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-6703/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-gobeebike%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 居港法國人增　Gobee.bike老闆：港人抗拒新技術不喜轉變
+
+<figure>
+<img src="https://web.archive.org/web/20210921212256im_/https://hkcnews.com/news_新聞/hk-discuss/2017/08/創業-單車-20170822235140_21d3_large.jpg" alt="">
+<figcaption>法國人Raphael Cohen今年4月創立Gobee.bike，現時在新界、九龍、香港島也有共享單車出租。莊曉彤攝</figcaption>
+</figure>
+
+近年多了法國人來港創業及居住，香港一間由法國人創辦的單車出租公司Gobee.bike，數月前創辦時，其單車遭人丟棄於城門河，創辦人Raphael Cohen為此感到心痛。這位法國人還有信心在香港發展事業嗎？最初他又為何來港創業？他和其他居港法國人，如何適應香港生活？
+
+Raphael認為，香港有完善的商業系統，適合創業，而且科技發展緩慢，有利研發電子商機；但與此同時，他認為在港創業最大困難，是港人不願接受新技術。
+
+法國2009年起受歐債危機拖累經濟低迷，失業率持續高企，令不少法國人決意離鄉發展。法國2013年，青年失業率高達25%，整體失業率9.8%，當年法國國內生產總值（GDP）增長僅0.3%；去年GDP增長好轉，按年升1.2%，但失業率持續高企，今年第二季失業率仍達9.5%。不少法國人來香港發展，認為香港經濟發展好、失業率低、稅率低、機會多並可進入中國大陸市場。
+
+相關新聞： [中資企業5年升三成　每年投資額破3萬億　美商數目資金均下跌](https://web.archive.org/web/20210921212256/https://www.hkcnews.com/article/6576/投資推廣署-中資企業-外資-6576/中資企業5年升三成-每年投資額破3萬億-美商數目資金均下跌)
+
+相關新聞： [港漂開店賣家鄉美食：在港創業有規矩，大陸要靠關係](https://web.archive.org/web/20210921212256/https://www.hkcnews.com/article/6389/內地留學生-創業-中資企業-6389/港漂開店賣家鄉美食：在港創業有規矩，大陸要靠關係)
+
+<figure>
+<img src="https://web.archive.org/web/20210921212256im_/https://hkcnews.com/news_新聞/hk-discuss/2017/08/創業-法國人-20170822233625_f085_large.jpg" alt="">
+<figcaption>Raphael認為香港的單車徑發展得不錯，故來港創立共享單車公司。丘萃瑩攝</figcaption>
+</figure>
+
+Raphael生於法國巴黎，大學時期曾有3個學期到香港當交換生，他形容香港「很有趣」。他大學主修金融，畢業後決定來港創業，因不喜歡打工、不想被人控制。他2012年來港定居，至今居港約5年，曾創辦多個電子商務手機應用程式，包括HotelQuickly、foodpanda Vietnam 等。Raphael有一頭卷曲的短髮，會熱情地跟記者打招呼和握手，問他懂不懂說廣東話，Raphael笑說：「識少少，識講啦！」雖然發音有些不準，但聽得懂他的意思。記者看Raphael樣子尚算年輕，問他年齡時，他卻笑說：「It is my secret!」
+
+Raphael的公司今年4月20日推出本港首個租用單車手機應用程式「Gobee.bike」，用戶下載應用程式後，Gobee.bike先收取每位新用戶399元押金，用戶才可租用Gobee.bike的綠色單車，每半小時收費5元。他們的大本營位於灣仔的共享辦公室WEWORK，落地玻璃旁的左右兩排座位共十多名員工，Raphael坐在最近門口的位置。團隊當中有說英文的外籍人士，亦有說廣東話的香港人，成員來自五湖四海。
+
+Raphael選擇在香港創業，他解釋：「香港有完善的商業系統，政府辦事效率高，有可靠的法律制度，是世界上最安全的城市，在此創業比較容易和放心。我推出Gobee.bike前，跟多個政府部門商討合作，包括：運輸及房屋局、運輸署、康文署等，他們反應迅速，表示支持。」他又表示香港有地理位置優勢，「香港鄰近中國，很多硬件和軟件可從中國製造，減低經營成本。另外，中國是大市場，不少人想先在香港創業，打穩市場基礎，再闖入內地。」
+
+談到香港有何創業困難，Raphael和身旁負責市場推廣的同事相視而笑，Raphael說：「真的有不少困難呢！」Raphael坦言，香港人較難接受新事物，「他們會抗拒新事物和技術，他們批判新科技是否可行，很難游說他人支持我的創新理念。我想這是香港科技發展追不上中國大陸的原因，香港人不喜歡轉變。」Raphael的另一同事Eunice憶述：「在我們公司推出共享單車前，政府部門已經有相關討論，但最初他們的態度是抗拒和投訴共享單車的缺點。」Gobee.bike後來去不同部門逐一傾談細節，並說明共享單車的優點，最終意見才獲接受。
+
+另外，Raphael提到在香港創業的成本很高，「租金、器材也很貴。我花了很多錢，才能創立Gobee.bike。」他不願拒絕投資數目，只說「這是很大的金額」，而這筆錢大多來自他的積蓄。但Raphael續說，Gobee.bike也賺了不少錢，他同樣不願透露，只說開業至今4個月，現有超過6萬用戶，當中5萬人是恒常用戶，增長非常迅速。
+
+為甚麼會選擇香港，而不是在中國大陸創業呢？Raphael認為，香港制度與西方國家相似，而大陸的制度、創業方法也與別不同，「內地較講求關係」。另外，香港是國際城市，但科技發展較緩慢，在此發展電子商業服務的競爭較少。他舉例說：「內地已經有共享單車的理念，但香港則沒有人敢推出相關程式。我留意到香港單車徑網絡發展得不錯，如大埔、沙田等地是踏單車熱點，所以就決心研發租用單車的手機應用程式，想不到市民反應非常熱烈。」
+
+對於很多法國人離鄉別井創業，Raphael稱不清楚原因，但他的個人經驗發現，在法國創業較香港困難得多。「我印象是法國政府支持創業的政策很少，所以很多有能力的商人也離開法國。現時歐盟需要振興經濟，可能政策已經改變了。」
+
+那麼，他又如何看香港的政局？Raphael形容香港屬「政治穩定」，沒有甚麼重大衝突，而中港關係是互相推動經濟。被問及若北京政府干預香港法治，會否影響他在港營商，他搖搖頭沒有回答。
+
+<figure>
+<img src="https://web.archive.org/web/20210921212256im_/https://hkcnews.com/news_新聞/hk-discuss/2017/08/法國人-創業-20170822211119_2652_large.jpg" alt="">
+<figcaption>法國人Julia Besnard認為香港是國際城市，生活上容易適應。丘萃瑩攝</figcaption>
+</figure>
+
+在法國除了做老闆難，做「打工仔」也不容易。另一位來港工作接近2年的法國人Julia Besnard，以工作假期簽證來港，現為法國文化協會圖書館館長。她大學讀文化管理，其後取得圖書館管理碩士學位，畢業後在巴黎從事文化教育相關工作。26歲的Julia想見識世界，本想以工作假期簽證往加拿大，惟競爭太大，只好轉往亞洲。她認為香港很多人識英文，容易溝通，就業機會亦多，所以選擇來港。
+
+Julia說：「法國經濟不好，稅率又高，請人成本高，創業艱難。」、「在法國很難找工作。就算我和我朋友擁有碩士學位，也不代表我們有好工作。很多人求職半年、甚至一年，也沒有進展。相比之下，香港經濟發展迅速，而且僱主較願意給予求職人士機會，讓他們一展所長。法國人風氣則截然不同，他們希望求職者有完美的履歷，面試官會問很多有關大學選科、以前的工作等問題。」Julia續說，香港機會處處，可輕易轉行。她說：「在法國人眼中，你讀護士課程就要做護士，行業流動性不高；香港人卻不會太介意你轉換行業，亦不會因此質疑你。」
+
+她來香港上班又有什麼不同？Julia認為分別不大，「法國人的工作時數較短，多些假期。」記者在採訪期間，接觸了在港的一些法國商會機構，發現他們在7月至8月期間，均有放暑假的習慣。Julia現於法國文化協會的工作，人工與以往在法國的工作相若，但因香港物價較低，所以她的荷包較為鬆動。
+
+巴黎與香港都是國際大城市，但生活習慣總有不同。法國人來港工作，生活上如何習慣？法國人衣著予人感覺很時尚，當地亦出產不少名牌，包括Louis Vuitton、Dior、Hermes等。來到香港，Julia認為香港人不如法國人般著重衣裝，「我在巴黎參加聚會，每個人的衣著都是別出心裁的；而在香港的街道，隨處可見著T恤、牛仔褲的人，大家衣著較簡單。」問起Julia喜歡買什麼衣服，她說：「香港很多Fast Fashion，較少獨立小店，較難買到款式特別的衣服。我個人愛穿二手衣物，既便宜又環保，但香港很少這類型的店。」
+
+地價貴絕全球的香港，安居之所難求。住在佐敦的Julia形容單位租金「Crazy」，但不願透露具體金額，她說：「以我現在住的單位租金，相同價錢在法國可以找到面積大兩倍的單位。我現在和另外4人合租單位，有5間單人房、3間廁所、1個客廳，房間只能容納一張單人床，很少私人空間。」她續說，香港的樓宇很殘舊，設施也欠缺維修，「法國的房子比這裡好多了！」Julia初到港時居於深水埗，「香港是發達城市，但深水埗的人很窮，香港也沒有足夠的社會福利政策幫助他們，香港原來不是想像般繁榮。」
+
+除了居住地方小，Julia在港也不習慣語言，「雖然不少香港人懂得講英文，但也有一部分人只懂廣東話，有時候會變成雞同鴨講。」
+
+有人稱香港為「文化沙漠」，而法國文化氣息濃厚，曾在巴黎生活的Julia也認為香港藝術文化較為遜色。她說：「巴黎的文化氣氛很好，有很多藝術展覽、戲劇表演和演唱會等，每日也有目不暇給的藝術活動。香港明顯較少，可能是因為多數用中文作宣傳，我看不懂所以錯過了。我觀察所見，我難以取得文化活動的消息，而且門票非常昂貴，有些演唱會、藝術展要400元。相反，法國那邊價錢就便宜得多了，很多文化活動也是由政府舉辦。另外，香港很少非主流藝術（underground arts scene），很多都是Classical，很少反傳統的創作，沒有rebellion。」
+
+Julia結識了一位愛藝術的香港朋友，帶她看了不少表演。她認為香港有不少具潛質的藝術工作者，但他們缺少發展機會。她空餘時間會到油麻地電影中心看電影，也會拿着相機拍攝香港舊區面貌，放上網跟人分享。對於香港的政局，Julia則指自己是外國人，不適合評論，但她有留意香港的示威活動。
+
+
+| 入境處提供居港外國人士數字 |  |  |  |  |  |
+| --- | --- | --- | --- | --- | --- |
+|  | 2012 | 2013 | 2014 | 2015 | 2016 |
+| 日本 | 5,514 | 5,187 | 4,259 | 4,276 | 4,269 |
+| 德國 | 1,083 | 1,046 | 1,050 | 1,072 | 1,126 |
+| 法國 | 2,554 | 2,956 | 2,971 | 2,753 | 2,595 |
+
+
+入境處指，2016年有23,324名居港美國人，較2012年的 28,287人減少17.5%；至於居港英國人，2016年有10,967人，較2012年的12,115人，跌9.5%。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921212256/https://hkcnews.com/aboutus/#subscribe)

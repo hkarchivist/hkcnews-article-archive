@@ -1,0 +1,43 @@
+---
+title: "【基因排序研究】10月中起新一波疫情　病毒株疑源自尼泊爾"
+date: "2020-11-12"
+last_updated: "2020-11-12 07:11:10"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "尼泊爾"
+  - "尼泊爾聯邦民主共和國"
+  - "張竹君"
+  - "輸入個案"
+url: "https://web.archive.org/web/20210919142312/https://www.hkcnews.com/article/35532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35538/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35538/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【基因排序研究】10月中起新一波疫情　病毒株疑源自尼泊爾
+
+本港周三（11日）新增18宗武漢肺炎確診個案，其中15宗屬輸入個案或與之相關個案，當中7人均是從尼泊爾來港，全是香港居民。衞生署署長陳漢儀指，由於共有12位從尼泊爾加德滿都搭乘RA409飛抵香港的乘客，抵港後檢測結果呈陽性（部分人為之前確診），遂引用第599H章，禁止尼泊爾航空營運的客機於11月12日至25日期間從尼泊爾加德滿都飛香港。
+
+另外，衞生防護中心傳染病處主任張竹君表示，從香港大學的基因排序研究發現，7月份第三波疫情爆發，多個群組包括彬記茶餐廳、港泰護老中心、慈雲山食肆群組，乃至10月中的國寶之家群組等等，病毒株相當類似。但國寶之家後，例如梅窩Staycation群組、散落於將軍澳、東涌、大埔等各區的個案，則是另一棵病毒株，張竹君根據港大的研究指出：「可能同尼泊爾一啲輸入個案的病毒株有相似」，意味最新一波疫情的病源與7月份爆發的一波，不相同。
+
+<figure>
+<img src="https://web.archive.org/web/20210919142312im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/衛生防護中心-張竹君-武漢肺炎-20201111225428_2bfd_large.png" alt="">
+<figcaption>衞生防護中心傳染病處主任張竹君。港台影片截圖</figcaption>
+</figure>
+
+尼泊爾早前已經被港府列為高風險地區，14天內到訪過尼泊爾然後返港的香港人，必須提供一份由化驗所或醫療機構發出的中文或英文報告，證明該乘客於起飛前72小時內取得病毒檢測結果，並且結果呈陰性，以及香港酒店的預訂確認書，租住期由抵港日起計不少於14日。
+
+過去4星期（10月15日至11月11日），本港共錄得168宗輸入個案，其中21宗由尼泊爾輸入，最多的是印度，有38宗。目前，孟加拉、比利時、埃塞俄比亞、法國、印度、印尼、哈薩克斯坦、尼泊爾、巴基斯坦、菲律賓、俄羅斯、南非、英國及美國均被列為高危地區，需要遵守上述要求。最新加入的是土耳其，11月13日生效。
+
+至於周三（11日）新增的15宗輸入個案，有3人屬非香港居民：53歲男子從美國經杜拜返港，是一名貨機機師；25歲女子由摩洛哥經杜拜、泰國來港；44歲男子，由美國來港的空中工作人士。其餘患者全是香港居民，包括7人由尼泊爾返港、2人由印度返港、厄瓜多爾、英國、印尼各1人。
+
+張竹君在記者會上披露，香港大學進行病毒基因分析，透過基因排序發現7月份爆發的第三波疫情與最近的個案，病毒株不太相似，意味病源好可能不一。猶記得7月尾、8月頭，理工大學與港大研究團隊先後發現，第三波多個群組的基因排序與菲律賓、哈薩克的輸入個案相似，這才逼使食物及衛生局局長陳肇始承認，豁免人士可能是源頭的說法，有證據支持、會嚴肅跟進。今次會否重蹈覆轍？
+
+張竹君引述港大研究指出：「去到10月中前國寶之家仲係跟住之前的（基因）排序，10月中之後開始梅窩staycation、酒店，好似係有個新啲的病毒株。最近的個案，雖然係散的，在不同區，例如將軍澳、東涌、大埔，（港大）做了排序分析，都係差不多。」、「我知道香港大學（研究最近）的病毒株，可能同尼泊爾一啲輸入個案的病毒株有相似。」她解釋，自己不是微生物學專家，基因排序透露的可能是病源，例如通常一家人染病，他們的病毒株會好似，但她無回應現在是否第四波疫情的先兆。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919142312/https://www.hkcnews.com/aboutus/#subscribe)

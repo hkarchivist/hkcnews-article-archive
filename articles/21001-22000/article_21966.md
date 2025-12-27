@@ -1,0 +1,86 @@
+---
+title: "撐寶礦力的策略"
+date: "2019-07-10"
+last_updated: "2019-07-10 20:46:23"
+author: "徐俊文"
+category: "眾說"
+tags:
+  - "無線電視"
+  - "tvb"
+  - "無線"
+  - "無綫電視"
+  - "廣告"
+  - "寶礦力"
+url: "https://web.archive.org/web/20210730010239/https://www.hkcnews.com/article/21966/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21976/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21966/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21976/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 撐寶礦力的策略
+
+[寶礦力抽起 TVB 廣告呢單野](https://web.archive.org/web/20210730010239/https://www.am730.com.hk/news/%E5%A8%9B%E6%A8%82/%E7%B6%B2%E6%B0%91%E5%80%A1%E6%8A%B5%E5%88%B6%E5%BB%A3%E5%91%8A%E5%95%86-%E5%AF%B6%E7%A4%A6%E5%8A%9B%E6%8A%BD%E8%B5%B7tvb%E5%BB%A3%E5%91%8A-179762) ，型，就唔使講。關鍵係，型呢一次，需唔需要付出代價。
+
+公道啲講，TVB 近年唔少製作，有明顯進步，《白色強人》便是一例。最為人痛恨的，其實是 TVB 新聞部。新聞部前線也無辜， [林日曦轉載 TVB 記者心聲](https://web.archive.org/web/20210730010239/https://www.facebook.com/450867315005279/posts/2329255493833109?s=1321968044&v=i&sfns=mo) 那篇文寫得清楚，問題在新聞部高層。我聽過的傳聞是，中聯辦派了一個人作為新聞部的顧問，對編採方針構成有形與無形的壓力。據聞 TVB 總部大樓內，員工都寧願睇有線新聞，因為知道自家新聞未能完全反映社會真象。
+
+我認識好多營銷界嘅中低層，其實都想響應杯葛，除了支持杯葛背後的理念外，專業上也需要避一下風頭，冇理由逆民意而行，致自己品牌於危牆之下。
+
+但我深知好多坐房的決策者，都較為親建制，還包括一些與 TVB 屬利益共同體的媒體策劃公司高層，又會偏向叫個客唔使驚，說影響有限 TVB 其實仲有效，兩批人同聲同氣，自會得出結論：「班𡃁仔網上得把聲啫，係威係勢咪最多買一枝放上網呃 Like，對生意幫助有限，反而抽廣告，分分鐘仲影響生意。」
+
+仲未計有啲客，驚波及大陸生意，不過又唔係鬧你習近平，又唔係叫中共倒台，只係選擇唔落一個收費都幾貴嘅本地媒體，所謂怕得罪中國憤青，都係庸人自擾居多。
+
+所以，今次寶礦力嘅大膽表態，有重要示範作用。
+
+<figure>
+<img src="https://web.archive.org/web/20210730010239im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/廣告-寶礦力-20190710162619_2b1b_large.jpg" alt="">
+<figcaption>寶礦力回覆發起杯葛TVB廣告的網民。網絡照片</figcaption>
+</figure>
+
+我地要做一個 Case，讓中低層大大聲聲証明俾高層睇，同社會同呼同吸，敢於表態，杯葛 TVB，係真正可以升生意！
+
+#### 要聲援寶礦力呢個決定，避免主事人被內部責難，以至造就一個成功的營銷個案，讓其他公司有仿效的基礎，俾膽啲細嘅，用數據去 KO 高層，體現為社會發聲嘅商業價值，大家有幾點要注意：
+
+#### 一、唔好三分鐘熱度，尋日買一枝就算，要持續買一段日子，仲要唔好集埋一段時間谷，要分段爆條數上去。關鍵要令寶礦力做靚兩個 Charts：
+
+一個係廠商自己嘅出貨數據，重點係唔好七月條數上一上，跟住八九月無以為繼。咁會俾高層口實，覺得只係後生仔冇料嘅虛火。所以要分段加力入貨，七月買兩枝嘅，八月買三四枝，九月買夠四五枝之類。亦盡可能喺方便自己嘅唔同地區去買，令賣場整體銷量上升，而唔係令過別分店斷市，因為連鎖店見到整個店舖網絡嘅貨底變薄，才有機會決定整體提升各店最少件數庫存。
+
+另一個係第三方嘅 Nielsen 零售數據，廠商出貨變多，高層都可以質疑 Sales Team 將貨壓咗落零售商，只係增加咗店舖嘅庫存。Nielsen 報告記錄賣出俾消費者嘅 Scan Data，冇花冇假直接反映售出數量，而寫營銷案例報告，這類第三方權威數據也是重要佐證。
+
+要推高 Nielsen 條數，必需識㨂喺邊度買。雖然平時我好撐小店，但呢單嘢要幫襯大連鎖。因為 Nielsen 嘅數據，主要來自 7 仔、OK、百佳、惠康、屈臣氏、萬寧等大集團嘅 Scan Data 收集，士多辦館的數據是抽樣反映，你買唔中 Nielsen 取樣嗰間，數據就反映唔到。另有報導指 HKTV Mall 寶礦力大賣，可惜網購銷情也不會在 Nielsen 報告看到。此外，優品 360、759 阿信屋等的銷量，也與 Nielsen 無關。所以大家要集中購買點，至少要促成一條自杯葛行動起，連續三個月 Retail Sales 穩步上升的曲線。
+
+鍾意飲寶礦力嘅你，可以考慮未來繼續多買，但飲唔到咁多嘅朋友，即使三個月後減買，一整季嘅銷量上升，也較容易扯高整年銷售額，達至對比上年一整年嘅增長。
+
+#### 二、買咗寶礦力支持佢地嘅，不妨多影相拍片畫圖寫字，用你自己嘅方法，在網上留下一個支持過佢地呢次決定嘅紀錄，最好集中幾個 Hashtag，例如 **#寶礦力、#良心寶礦力、#寶礦力好波** 之類，等未來寫營銷案例嘅行家朋友，可以更方便一次過 Search 到大家嘅集體創作，做 Report 時大曬冷，俾人睇到網民自發有幾撐寶礦力嘅勇毅。
+
+<figure>
+<img src="https://web.archive.org/web/20210730010239im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/寶礦力-徐緣-20190710161433_29f2_large.jpg" alt="">
+<figcaption>照片來源：徐緣Facebook</figcaption>
+</figure>
+
+個 Marketing Case 寫得好，可以聯絡各大專工商管理及傳理系教授，將內容轉載至各商業雜誌或學術期刊。更可以挑戰難度，將個 Case 入 HKMA / TVB Award，這個是香港營銷界最高殊榮奬項，TVB 類近於 Co-organizer，但主權在 HKMA，評選準則主要考慮銷售成效，若果 HKMA 嘅評審一齊玩嘢，俾個 Case 贏金奬，TVB 直播頒獎禮，頒個金奬俾一個杯葛自己嘅 Marketing Campaign，會非常咁花生。呢期人人興發夢，我們不妨也發一下夢。
+
+即使香港做佢唔到，我哋也可以試推單嘢上國際入 Effie Award。Effie Award 同側重創意為主嘅 Cannes Lion Award 唔同，又係以 Sales Effectiveness 為主要評選準則，考慮到國際社會就反送中條案對港人嘅同情，分分鐘扑中贏個大奬。一個杯葛 TVB 嘅行動，若果能夠贏得國際營銷奬項，其他營銷界老屎忽都焗住無聲出。
+
+其實咁樣，同梁振英搞杯葛蘋果嘅恥與為伍，係咪一樣？係有啲似，但絕對唔一樣。梁振英係全國政協副主席、前特首，坐擁公權力。以公權力向商界施壓，大有問題。至於一般無力嘅小市民，我們從來都可以用鈔票投向理念相投的品牌，背棄價值不符的商家，明買明賣，大家咁高咁大，冇話邊個壓邊個。TVB 或在情願或不情願下，受中共控制，因此而遭港人唾棄，是天要下雨、娘要嫁人嘅必然結果。小市民嘅零星力量，就只有這麼多，大家都只是想出一點力，來表達自己嘅反抗意志。
+
+寶礦力母公司係大塚製藥。各位大塚製藥嘅同業朋友，三個月後睇睇條數，靚仔嘅，不妨真係認真寫個 Marketing Case。
+
+如有需要，找我，我免費幫你哋寫，幫你哋入埋奬都得。
+
+P.S. 從來都唔接嗰啲影自己一張相，旁邊放枝產品嗰種 PR Shot，今次為寶礦力的勇敢，破例做一次，都係免費。
+
+**#寶礦力、#良心寶礦力、#寶礦力好波**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210730010239/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 徐俊文](https://web.archive.org/web/20210730010239im_/https://www.hkcnews.com/uploads/avatars/b04f456a-a77b-4286-adba-b950af6be2cb.png?1988961627)
+
+**博客 | 徐俊文**
+
+【徐俊文・徐想集】營銷品牌管理專才，亦為著名作家、節目主持及商業演講者。曾任壹傳媒首席營銷長、及跨國企業市場營銷總監，現為品牌顧問公司 Toast Communications Limited 行政總裁，專攻網絡推廣、內容營銷及電子商務支援。公餘於香港中文大學及理工大學教授營銷課程。自 2009 年起寫作，題材涉足營銷廣告、品牌形象、商業管理、社會時事及流行文化。曾出版《型銷》、《購想》、《品》、《甜銷》、《銷災》、《廣告＠日本》及《消費者通識》等暢銷著作，並曾於《蘋果日報》、《主場新聞》、《晴報》、《100毛》撰寫有關營銷創意的專欄。

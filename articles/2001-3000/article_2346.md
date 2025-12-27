@@ -1,0 +1,43 @@
+---
+title: "360全景　九龍魔鬼山下的鯉魚門"
+date: "2017-03-04"
+last_updated: "2017-03-04 13:29:46"
+author: "黃志全"
+category: "眾說"
+tags:
+  - "360"
+  - "360 度"
+url: "https://web.archive.org/web/20210712003802/https://www.hkcnews.com/article/2346/360%E5%85%A8%E6%99%AF-%E4%B9%9D%E9%BE%8D%E9%AD%94%E9%AC%BC%E5%B1%B1%E4%B8%8B%E7%9A%84%E9%AF%89%E9%AD%9A%E9%96%80"
+original_url: "https://www.hkcnews.com/article/2346/360%E5%85%A8%E6%99%AF-%E4%B9%9D%E9%BE%8D%E9%AD%94%E9%AC%BC%E5%B1%B1%E4%B8%8B%E7%9A%84%E9%AF%89%E9%AD%9A%E9%96%80"
+---
+
+# 360全景　九龍魔鬼山下的鯉魚門
+
+
+{{< video src="https://web.archive.org/web/20210712003802if_/https://roundme.com/embed/107228/269539" >}}
+
+
+鯉魚門──這一輯360全景是九龍魔鬼山下的鯉魚門，很多外地遊客慕名前往吃海鮮的地方，外圍是三家村渡輪碼頭及避風塘。兒時往鯉魚門燈塔遊玩，進口有座牌坊，上有嶺南新村四個大字，走上燈塔昂首上望，看著飛機從頭頂劃過，好生羨慕，不知自己此生能否衝出香港看看外邊的世界？
+
+六十年代搭飛機是件不容易的事。燈塔再過一點有座天后宮，廟前廟後都有多塊題上紅色大字的巨石，廟前巨石仍有兩尊古炮，燈塔所在的海灘及天后宮現在已是攝影發燒友拍日落的熱門地。   
+ 避風塘隔著崇信街是油塘工業區，今天工業式微，工廠大廈已找不到幾家還在生產的廠房，岸邊有座混凝土廠，田螺車頻繁出入，路面凹凸不平，長年積水，地面廠房變成收廢品倉或修車廠，污煙瘴氣中，竟然有兩幢高聳的「豪宅」，眼前的是鯉景天下，旁邊的是Ocean One，實用呎價超過11000元，可能再過10年，這裡會變成一個新興海景豪宅區。
+
+拍攝器材及參數：DJI P4 20mm鏡 ISO:400; F:2.8; S:30
+
+[請支持《眾新聞》，立即按此訂閱成為我們的訂戶](https://web.archive.org/web/20210712003802/https://www.hkcnews.com/aboutus/#subscribe)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712003802/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 黃志全](https://web.archive.org/web/20210712003802im_/https://www.hkcnews.com/uploads/avatars/1acd4424-ae6c-4d04-a1ad-eefa7b7fc0d9.png?519785976)
+
+**博客 | 黃志全**
+
+【黃志全・360全景】在紙媒混跡數十年，08年放下筆桿，重拾揸機樂趣，09年一個不小心接觸到360全景攝影，感受到現場一樣的震撼，自始樂此不疲，作品上載於Google Maps、roundme.com、360cities.net及skypixel.com等網站。

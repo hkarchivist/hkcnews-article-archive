@@ -1,0 +1,47 @@
+---
+title: "田北俊：押後選舉利泛民功能組別搶灘　傳林鄭可能連任"
+date: "2020-07-31"
+last_updated: "2020-07-31 13:33:53"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "田北俊"
+  - "押後選舉"
+url: "https://web.archive.org/web/20220121145724/https://www.hkcnews.com/article/32464/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32468/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/32464/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32468/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 田北俊：押後選舉利泛民功能組別搶灘　傳林鄭可能連任
+
+在立法會選舉押後一年陰霾下，至少12名民主派參選人在提名期截止前一日被取消參選資格（DQ），自由黨榮譽主席田北俊向眾新聞分析說，這一方面容許民主派「Plan B」後備人選最後關頭報名，同時將選舉押後一年令民主派可以在各功能組別登記報名，有利搶灘甚至達成35+過半。
+
+田北俊形容對DQ參選人及同時押後選舉情況感到奇怪：「如果DQ咗12個，駛咩押後（選舉）？如果決定咗押後，點解要DQ 12個？」
+
+商界亦有消息說，不能排除目前局勢下，2022年任滿的特首林鄭月娥，可能多做一屆。田北俊說聽到類似消息，形容目前獲商界支持的人，例如唐英年、吳光正等都無意染指特首。但有接近林鄭的消息否認會連任消息。
+
+<figure>
+<img src="https://web.archive.org/web/20220121145724im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/特首選戰-田北俊-自由黨-20170221181114_9895_large.jpg" alt="">
+<figcaption>田北俊認為，政府無需太早決定是否押後選舉，可以留待8月20日左右，即正式選舉前兩個星期決定。資料圖片</figcaption>
+</figure>
+
+田北俊周五接受眾新聞電話訪問時說，在押後立法會選舉一年傳聞下，12名民主派參選人仍然被DQ，可能是政府擔心疫情其後受控，無藉口押後9月6日立法會選舉，「如果去到8月20號無（新增個案），咁咪好面懵？」
+
+他分析，政府是為了視乎疫情走勢，做足兩手準備所以繼續DQ部分參選人，與此同時，在提名期前DQ，也是給公民黨等一個機會，找無去過美國或遊說的人士報名做「Plan B」。
+
+如果立法會選舉的確如報道所說押後一年，屆時將與特首選委會同期舉行。
+
+田北俊提醒，押後立法會選舉對建制派選情未必有利，因為容許民主派以一年時間在各功能組別登記，便可以同時在立法會功能組別及特首選委選舉中同時投票。
+
+「好多功能組別都要做（所屬界別）一年會員，例如張宇人的飲食界、總商會、工業總會等，才可以有立法會同選委會中投票。」田北俊說。
+
+他分析，目前建制派團體及公司，在他們及中聯辦催谷下，基本上已經全部登記，如果多給一年，等同給民主派時間登記。如本身界別在立法會輸掉，部分界別在選委選舉亦極有可能失守。
+
+他說：「押後一年有這個風險，除非一年間風平浪靜，建制派完全控制立法會，否則（民主派）隨時可以35+，都真係有機會存在。」
+
+在超級區議會後，特首選委會中北京能控制議席，已由林鄭2017所得的777席減少102至670席左右。田北俊評估，民主派雖然難以在選委會中過半，但如果民主派搶佔部分界別，而每個界別18票計算，屆時北京僅僅能控制過半、即600多票，「就好忟水」，為了避免選舉委員會危機，反而應該盡快完成立法會選舉。
+
+至於特首人選，田北俊說商界中有傳林鄭可能多做一屆，因為「根本無人想做」。「北京一拍板，就要繼續做落去，可能北京唔準（林鄭）辭職，就跟（立法會主席）梁君彥一樣。」田北俊說。
+
+梁君彥早前接受包括眾新聞在內的多間傳媒訪問說，過去一屆立法會會期如坐過山車，同時說立法會發言時間屬於議會整體，而非議員本身。其後，梁君彥報名參選工業界爭取再度連任。
+
+田北俊舉例說，商界支持的人選如全國政協常委唐英年、會德豐大股東吳光正等，均無意競選特首，例如唐英年，早前重新擔任家族公司董事，「擺明唔會從政」，「做特首，市民又嬲、北京又嬲」。

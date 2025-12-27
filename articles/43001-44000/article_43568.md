@@ -1,0 +1,54 @@
+---
+title: "前《蘋果》４名高層被落案控串謀勾結外國勢力　明早提堂"
+date: "2021-07-21"
+last_updated: "2021-07-21 22:08:39"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "陳沛敏"
+  - "林文宗"
+url: "https://web.archive.org/web/20210921202629/https://hkcnews.com/article/43568/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43584/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43568/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43584/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 前《蘋果》４名高層被落案控串謀勾結外國勢力　明早提堂
+
+三名前《蘋果》高層今日被捕，被指涉嫌串謀勾結外國勢力。警方國安處今早拘捕執行總編輯林文宗，另外早前獲准保釋的副社長陳沛敏及主筆兼英文版主管馮偉光（筆名盧峯），下午亦被警方撤銷保釋，再度被捕。
+
+截至晚上最新消息，前《蘋果》社論主筆楊清奇（筆名為李平）於今晚八時亦被拘捕。他於上月底被捕後獲准保釋，原於七月下旬報到。他與早前被捕的三人將被警方通宵扣查，案件於明早在西九龍裁判法院提堂。
+
+<figure>
+<img src="https://web.archive.org/web/20210921202629im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/蘋果日報-20210721211140_21be_large.jpg" alt="">
+</figure>
+
+今晨被捕的林文宗自上月中5名《蘋果》高層被捕後，便坐鎮編輯部，直至停刊。他今早被警方上門搜屋並拘捕，現身處長沙灣警署。警方表示，以涉嫌串謀勾結外國勢力罪拘捕他，與6月份的同類型案件有關。
+
+**相關報道：** [前《蘋果》執總林文宗涉串謀勾結外國勢力被捕　女友：今日做新聞唔會無心理準備](https://web.archive.org/web/20210921202629/https://www.hkcnews.com/article/43558/%E6%9E%97%E6%96%87%E5%AE%97-%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1-%E5%9C%8B%E5%AE%89%E6%B3%95-43565/%E5%89%8D%E3%80%8A%E8%98%8B%E6%9E%9C%E3%80%8B%E5%9F%B7%E7%B8%BD%E6%9E%97%E6%96%87%E5%AE%97%E6%B6%89%E4%B8%B2%E8%AC%80%E5%8B%BE%E7%B5%90%E5%A4%96%E5%9C%8B%E5%8B%A2%E5%8A%9B%E8%A2%AB%E6%8D%95-%E5%A5%B3%E5%8F%8B%EF%BC%9A%E4%BB%8A%E6%97%A5%E5%81%9A%E6%96%B0%E8%81%9E%E5%94%94%E6%9C%83%E7%84%A1%E5%BF%83%E7%90%86%E6%BA%96%E5%82%99)
+
+今年七一前停刊的《蘋果》上月17日遭警方國安處搜查大樓、凍結三家公司資產，並拘捕5名高層，其中壹傳媒行政總裁張劍虹及《蘋果》總編輯羅偉光被控串謀勾結外國勢力罪，還柙至今。其餘3人獲准保釋，未被檢控，其中陳沛敏今日再度被捕。
+
+《蘋果》上月24日停刊後，主筆馮偉光於27日晚上在香港機場被禁止出境，被警方國安處以涉嫌串謀勾結外國勢力罪拘捕，其後獲保釋外出，原定下周一（26日）再到警署報到，惟今午亦再度被捕。
+
+警方指，國安處今年6月拘捕一名51歲女子及一名57歲男子，涉嫌「串謀勾結外國或者境外勢力危害國家安全」罪，今日撤銷該兩名被捕人士的保釋安排，二人現正被扣查。
+
+翻查資料，自去年8月起，經已累計至少13名壹傳媒或《蘋果日報》相關人士被捕，其中黎智英、張劍虹及羅偉光被檢控違反國安法，需要還柙。
+
+記協發聲明指，對當局一再針對同一機構的新聞工作者表示憤慨，亦對警方拘捕一間已停運的傳媒機構前員工感震驚及不解，要求政府不要屢以「國家安全」之名拘捕新聞從業員，向業界散播白色恐怖，並切實解釋過往一直合法進行、理應受到《基本法》保障的新聞及出版工作到底如何能夠危及國家安全。
+
+記協主席陳朗昇指，暫時接觸到部分被捕人士的律師，據悉三人應該被落案起訴，均已落口供。陳朗昇指，林文宗在《蘋果》最後階段負責編務工作，當以為拘捕已告一段落時，結果林文宗最後亦被捕，而《蘋果》尚有不少管理層人員，擔心會再有人被捕。
+
+今日為7.21兩周年，對於警方選擇在今天再拘捕《蘋果》高層，陳朗昇表示不揣測原因，但認為所有關心香港的市民都會有這個疑問。至於拘捕與近日美國公布與香港有關的制裁措施有否關係，他指只能說由市民去判斷關聯性有多大。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921202629/https://hkcnews.com/aboutus/#subscribe)

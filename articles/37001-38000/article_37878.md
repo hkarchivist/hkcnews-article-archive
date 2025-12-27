@@ -1,0 +1,46 @@
+---
+title: "常備牙刷"
+date: "2021-02-05"
+last_updated: "2021-02-05 12:04:46"
+author: "Pazu薯伯伯"
+category: "眾說"
+tags:
+  - "薯伯伯"
+url: "https://web.archive.org/web/20210728051542/https://www.hkcnews.com/article/37878/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37879/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37878/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37879/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 常備牙刷
+
+<figure>
+<img src="https://web.archive.org/web/20210728051542im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/伊朗-20210205120257_2a86_large.jpg" alt="">
+<figcaption>筆者的伊朗朋友的女兒   (圖片由作者提供)</figcaption>
+</figure>
+
+伊朗人的熱情好客總會令外國賓客印象難忘，坐巴士時鄰座的乘客見我獨自一人，說要邀我到他家作客。如果在其他國度，我會有一點猶豫，但在伊朗我卻是一口答應。去過伊朗的人都知道，這是普遍安全的國家，當地人友善到不可思議。他聽到我要去他家作客，非常開心，立即打電話給妻子準備，又轉頭問我有否特殊飲食要求，例如素食，我說沒有，他跟妻子交代好就掛線。
+
+晚飯過後，他邀我在他家中留宿，我就婉拒了，一來自己已經訂好了旅館，而且是口頭上預訂，還沒有付款，晚上才臨時取消，我擔心會敗壞香港人的名聲。二來我喜歡自己一個人睡，旅行途中，晚上通常會傳送照片及記錄日記，在別人家中始終有點不便。
+
+之後我還到了不同的伊朗城市，經常遇到好心人請我到家中吃飯，每次都邀請留宿，我通常都會婉拒，但間中還是會不小心在別人家中留宿，例如他家距我旅館有一段距離，如果我要回旅館，主人家肯定會堅持開車送我回去，一來一回，也覺麻煩，就乾脆在主人家的家中過夜。
+
+過夜時還是會洗澡，主人家給我準備毛巾甚至睡衣，但有一種日常用品，卻往往缺乏，就是牙刷。他有牙膏，也有毛巾，但就是缺乏一支全新的牙刷。不過我晚上不刷牙，睡覺時不太自在。所以在伊朗旅行一星期後，我摸清了一些習慣，就總是隨身帶備一支牙刷，萬一臨時要在別人家中宿一宵，起碼可以刷牙洗面。
+
+從來沒有想過，現在身處香港，我居然也是隨身帶備一支牙刷。沒錯，這幾天我在背囊裡，帶備一支牙刷及小毛巾。我就是擔心去到朋友家或理髮期間，忽然被禁錮數小時，到時即使被限制自由，起碼也可以刷個牙，洗個面。想一下，在香港這片家園土地上，居然有種陌生感覺的衝擊，有如旅行人生。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210728051542/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Pazu薯伯伯](https://web.archive.org/web/20210728051542im_/https://www.hkcnews.com/uploads/avatars/001d8f85-a098-4d95-b480-83af95b083b9.png?562121451)
+
+**博客 | Pazu薯伯伯**
+
+【Pazu薯伯伯・旅遊寫作人】薯伯伯為最早一批在網上連載遊記的香港人，多年來足迹遍佈歐、亞多國，在喜馬拉雅山麓、東南亞、南亞等地區生活。著有《風轉西藏》、《北韓迷宮》、《西藏西人西事》及《不正常旅行研究所》，分別在香港、北京及首爾出版。
+作者 Facebook：https://www.fb.com/pazukong；
+Patreon 頻道：https://www.patreon.com/pazu

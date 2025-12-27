@@ -1,0 +1,47 @@
+---
+title: "美國總領事：持續聚焦香港防侵蝕自治　指和平集會入罪令人困擾"
+date: "2021-04-01"
+last_updated: "2021-04-02 02:29:01"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "美國駐港領事館"
+  - "us consulate hong kong"
+  - "美國領事館"
+  - "史墨客Hanscom Smith"
+url: "https://web.archive.org/web/20210805034611/https://www.hkcnews.com/article/39904/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDhanscom_smith-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39934/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39904/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDhanscom_smith-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39934/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 美國總領事：持續聚焦香港防侵蝕自治　指和平集會入罪令人困擾
+
+美國國務院在新一份香港政策法報告中表示，北京在國安法及修改選舉制度等違反《中英聯合聲明》及《基本法》，維持取消香港特殊地位。美國駐港總領事史墨客（Hanscom Smith）接受訪問時表示，會與盟友持續聚焦（shine a spotlight on）香港人權被侵犯，並聲言美方會盡所能，阻止香港自治被進一步侵蝕，但無透露華府會否實施新一輪制裁。
+
+對於周四民主黨創黨主席李柱銘等因為2019年8月18日在港島流水式集會罪成候判，史墨客說因為和平示威被定罪令人非常困擾，形容與香港近日事態軌跡不幸相近。他表示，「香港過去一直享有表達政見、和平表達反對意見的渠道，目前這些都被攻擊及受威脅。」
+
+<figure>
+<img src="https://web.archive.org/web/20210805034611im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/史墨客Hanscom%20Smith-20210401185145_1f94_large.jpg" alt="">
+<figcaption>美國駐港總領事史墨客。</figcaption>
+</figure>
+
+美國政府在總統拜登上台後，著重聯合盟友對不同議題採取行動，當中包括香港。在中國議題上，下一個備受關注的，是引起中歐互相制裁的新疆人權問題，會否影響中歐投資協定，以及歐盟預告可能就香港議題作進一步行動。
+
+史墨客在受訪時表示，日前人大常委會通過香港新選舉制度，基本上已被操控（rigged），基本上不可能有北京不同意的聲音發揮有意義的角色。他形容：「這是非常巨大的倒退，及與北京在聯合聲明中的承諾不符。」
+
+他無透露，美國會否進一步對香港採取制裁，或本身制裁港府高官的有效性。「我們會評估任何及所有選項，回應（北京）持續破壞香港自治。」
+
+他又表示，會堅持與盟友表達支持香港自治，要求北京履行北京自己同意的《中英聯合聲明》承諾。他沒有透露華府會否實施新制裁或者類似英國或加拿大等國的救生艇計劃，但說美國希望盡能力範圍之內支持港人，及防止香港自治進一步被侵蝕。
+
+中國外交部駐港特派員公署早前據報限制美國駐港總領事本人與港府或政界人士接觸時，要先通知中方。有記者問及有否影響與各界會面，史墨客回應說部分民主派社運人士或公民社會團體對領事館人員會面有所猶豫，因為擔心被指控勾結外國勢力，而部分反對派也已經被拘押或離開香港，反而與建制派會面沒有太大影響。
+
+他重申，美國並無參與香港示威，而作為外交官要與所有人會面時職責所在。
+
+香港政府隔一日後回應美國國務院《香港政策法》報告，表示強烈反對報告，批評是美方以人權、民主和自治為藉口，直接干涉中國內政。港府發言人稱，強烈反對報告抹黑國安法，並強調沒有人有特權可以犯法而不用面對法律後果。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805034611/https://www.hkcnews.com/aboutus/#subscribe)

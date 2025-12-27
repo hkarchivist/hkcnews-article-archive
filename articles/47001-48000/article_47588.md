@@ -1,0 +1,60 @@
+---
+title: "【國安法第二案】馬俊文撰信自述受梁天琦啟發夢想　宣揚理念喚醒抗爭　不感羞恥後悔"
+date: "2021-11-11"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "馬俊文"
+  - "煽動分裂國家"
+  - "國安法"
+url: "https://web.archive.org/web/20220117153355/https://hkcnews.com/article/47588/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47588/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47588/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47588/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法第二案】馬俊文撰信自述受梁天琦啟發夢想　宣揚理念喚醒抗爭　不感羞恥後悔
+
+「第二代美國隊長」馬俊文因煽動分裂國家罪，被判囚5年9個月。辯方判刑前呈交馬親撰的千字信，信中自述其人生本來漫無目的，直至去年受梁天琦的舊演說觸動，明白自己對腳下土地身負重責，「我首次找到了做人的夢想」，決志身體力行喚醒抗爭。信件早於開審當天寫成，馬預料會繼續在囚一段日子，結語提到「對於我過去的所作所為，我不感羞恥，毫無悔意」，「我會盡我所能，用盡畢生精力，為著自己心中所信之夢想而進發，願榮光歸香港。」
+
+馬俊文在信中稱，前年反修例運動如火如茶時，也未有引起他共鳴，「無法讓我理解他們的恐懼和憤恨」，難以接受襲擊「私了」的行徑。去年中他出於好奇，開始參與「和你Sing」之類抗爭聚會，但發覺所謂抗爭淪為「黃絲派對聚會」，「他們之中，胡混度日的多，清醒的人少之又少」，他遂發起活動和撰寫文章試圖喚醒別人。
+
+近期抗爭或政治運動案件中，被告少有向法庭長篇交代理念。辯方庭上求情指，被告明白信件未必對他有利，仍堅持呈上。辯方指被告一直反對香港人抱有仇恨，從沒作出任何傷害他人的暴動行為，「(被告) 背景睇完都有啲心酸」，強調被告願意參與獄中的心理輔導。
+
+<figure>
+<img src="https://web.archive.org/web/20220117153355im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/煽動分裂國家-馬俊文-美國隊長-20210929174734_63ba_large.jpg" alt="">
+<figcaption>被告馬俊文</figcaption>
+</figure>
+
+### 馬俊文呈堂信函全文
+
+> 陳廣池法官閣下：
+
+> 從小到大，我自問是一位沒出息的人，沒有上進心，沒有做人的夢想，亦無所謂的人生計劃。讀書唔成，吃不了粗重勞苦，亦不喜受氣，曾試過許多工作都並不適合，因而無法做得長久，終在23歲那年，透過朋友介紹下，找得一份純送外賣的工作，從此便靠著那接近最低工資的時薪，過著低慾望而漫無目的的生活。
+
+> 在整個反修例運動期間，即使媒體舖天蓋地宣傳社會之不公義，日復一日地播著那首耳熟能詳的歌曲，叫著同樣的口號，但仍無法讓我理解他們的恐懼和憤恨，亦難以接受他們對著另一人施以襲擊，「私了」他人的行為。當時的我，仍然沉醉在那種平淡和安逸感，更從沒想過要為這個世界付出。
+
+> 直到去年4月，當我從一則「和你唱」集會新聞中萌生起好奇，深入探索他們仍然堅持的理念後，最終拿到了梁天琦在16年民族黨造勢大會中的演說。在演說中，他談到了夢想，談到了革命。從那時起，我能明白到，原來對於自己所身處的地方，對於這片土地，我是身負重責。亦從那時開始，我首次找到了做人的夢想。
+
+> 我開始身體力行，走訪不同地方活動地點，開始參與他們的聚會，與他們一同嗌口號，一同遊行。然而，漸漸地我發現，他們的抗爭，與天琦演說中談到的夢想有很大落差。他們沉醉在19年運動傷痛之中，被憤怒侵佔，被仇恨纏擾；他們的抗爭，淪為了一場黃絲派對聚會，但求心安理得；他們之中，胡混度日的多，清醒的人少之又少。
+
+> 我開始意識到自己必須身體力行，去讓他們清醒。於是我成立了《61萬唔驚拉Channel》，透過頻道發起活動，撰寫文章，宣揚從天琦那裡得來的理念，藉此讓世人認清我們的夢想。
+
+> 全民勇武、武裝起義，不單是流於一句口號，更是我們的願景。然而，香港人一日民智未開，這個願景一日也無法實現。就如民族起義在經歷過14年佔中、16年魚革，以及19年反修例示威浪潮後，革命種子已然散播於每位香港人心中，然而，沒有良好的土壤，合適的氣候環境，種子只能留存於表面，決不會生長發芽。
+
+> 在囚期間，我亦見盡許多香港人灰心喪志，或回歸現實，或移民海外。或許，我們都是太功利之人，以為不用付出高昂代價，就能換來無價的民主公義。還好，我仍看見尚有不少人心懷抱負，願意為這片土地拋頭顱、灑熱血、擁抱時代的呼聲，如像黑夜中點燃了一顆亮光，在這處引領陌路人，讓我感到希望，讓我不再孤單。
+
+> 如今，是我在獄生涯第311天，我否認控罪，內心不但異常平靜，還帶點歡悅。牢獄的苦難確實讓我成長了，讓我變得更成熟、更有上進心，更從獄中結交了很多新朋友。我深信，在未來在獄的一段日子，我將會變得更堅韌、更強大。
+
+> 法官閣下，對於我過去的所作所為，我不感羞恥，毫無悔意。我亦承諾，在追求民主公義的道路上，我唔會有半點懦弱。今後，我會盡我所能，用盡畢生精力，為著自己心中所信之夢想而進發，願榮光歸香港。
+
+> 第二代美國隊長 – 馬俊文敬啟   
+ 2021年9月28日
+
+<figure>
+<img src="https://web.archive.org/web/20220117153355im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/煽動分裂國家-馬俊文-美國隊長-20211111202746_18d8_large.jpg" alt="">
+<figcaption>馬俊文呈堂信函</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220117153355im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/煽動分裂國家-美國隊長-馬俊文-20211111202809_e56a_large.jpg" alt="">
+<figcaption>馬俊文呈堂信函</figcaption>
+</figure>

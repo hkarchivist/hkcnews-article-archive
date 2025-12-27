@@ -1,0 +1,65 @@
+---
+title: "漫長的焦慮"
+date: "2020-11-05"
+last_updated: "2020-11-05 22:04:19"
+author: "一個律師的筆記本"
+category: "眾說"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "台灣關係法"
+  - "美台關係"
+url: "https://web.archive.org/web/20210921222733/https://hkcnews.com/article/35355/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35362/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35355/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35362/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 漫長的焦慮
+
+<figure>
+<img src="https://web.archive.org/web/20210921222733im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/台灣-行天宮-台北-20201105180323_2d15_large.jpg" alt="">
+<figcaption>台北行天宮一隅。美聯社</figcaption>
+</figure>
+
+在我們這片小小的群島上，大家對於自己的家園會不會受到強權國家善待，多少都有點焦慮情緒。像是「XX只是利用我們當棋子，不是真心支持，隨時可能放棄我們」這類質疑（人名可以自行填入，不同的人都適用），深植於許多人的精神深處，至少從1940年代開始就已經存在，漫長綿延，直迄今日。尤其當強權國家的領導階層可能出現更迭時，這種情緒就會被進一步強化。每隔幾年，被懷疑的對象就要換上一輪。
+
+不過，這種懷疑或焦慮，其實大可不必。這並不是說，我們在歷史的激流中一定會安然無恙，蒼天不仁，沒人能給這種保證。毋寧是說：「真心」在國際關係中是個沒有意義的概念。國家並沒有「心」，有的只是錯綜複雜的利害關係，強權國家也不例外。對於沒有「心」的對象追問真心，這就跟想要和虛擬偶像談戀愛一樣沒意義。而且，別人的國家本來就是為其本國國民服務，對你沒有任何義務，無所謂背叛不背叛。
+
+如果強權國家會對火線邊緣的小邦施加援手，那也是因為這對其本國利益有幫助，而不是因為它有「真心」。1950年的那位總統，又何嘗是因為「真心喜愛」這片群島，從而派遣艦隊進入海峽？諷刺的是，以現存資料看來，那位總統顯然對這片群島當時的政權頗有惡感，但還是作了他該作的事。與其為「對方有沒有真心」這種問題而焦慮，還不如努力讓自己成為一個值得幫的人，來得比較實際。
+
+<figure>
+<img src="https://web.archive.org/web/20210921222733im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/美國總統-杜魯門總統-20201105181704_11f8_large.jpg" alt="">
+<figcaption>美國總統杜魯門。美聯社</figcaption>
+</figure>
+
+這並不表示，個人的好感在國際關係中完全沒意義。當然可能有。比如說，俄國沙皇彼得三世基於他對普魯士的喜愛，在1762年登基後突然讓俄國與普魯士化敵為友，從而挽救了原本在七年戰爭中接近潰敗的普魯士，就是一個經典案例。
+
+不過，這仍然只是「個人」的情感，而不是「國家」的真心，即使抱持情感的是國家元首也一樣。尤其是權力集中程度越低的國家，個人情感或好惡所能發揮的影響就越有限。更重要的是：這種事雖然可能發生，但卻無法期待，就好像一個適任的律師在準備訴訟攻防的時候，不會指望有第三方突然善意施惠。如果有，那是天賜；沒有，那是應該。總之，任何對於國際關係的判斷，都不用把希望寄於外國領導階層的善意，也無須為其更迭與否而太過患得患失。
+
+舉例而言，在一次大戰之前，英德兩國皇室相互聯姻，真正是「兩國一家親」，但這同樣未能阻止英國對德宣戰。對於這一點，德皇威廉二世感嘆：「我祖母（指英國維多利亞女王）如果健在是絕不會容許的。」對此，歷史學家Barbara Tuchman的評論是：「在他有關此次戰爭的所有膚淺之見中，可說以此為最。」（ [《八月砲火》](https://web.archive.org/web/20210921222733/https://www.books.com.tw/products/0010269894) ，張岱雲等譯，新星2005，頁108）。
+
+說到底，德國進攻比利時與法國之後，英國就必然參戰，這是戰略形勢使然。否則，難道英國能坐視德國把歐陸資源收入掌中？難道英國要天真到相信，一個稱霸歐陸的德國將與英國共存共榮？至於英王或重臣對於比利時有沒有好感？有沒有真心？基本上無足輕重，該發生的就是會發生。即使事發經過有波動，長期的歷史軌跡也不會有太大差別。
+
+這不是說「真心」不重要。在人生當中，真心當然重要，但只在個人關係中有意義；至於國際關係則是超越個人的領域。在這個領域裡，有意義的從來都不是「真心」，而是穩定而一致的利害關係。而且，這樣的利害關係是存在於國家之間，而非領導階層個人之間。   
+   
+ 就此而言，能夠「被利用」並不一定就是壞事。至少，這說明了你的存在有用。最糟糕的並不是「被利用」，而是沒人想用。至於「被利用」的歷史能夠長達七十年以上，這更說明了彼此的利害關係已經形成了跨世代的穩定結構，不容易因為領導階層的更迭而撼動。
+
+當然，這不是百分之百安全，但世界上本來就沒有百分之百的安全。如果出現了連這種跨世代結構都被動搖的變局，那也不用指望「真心」會派上多大用場。在那種變局中，真正能夠挽救你的，不會是別人的真心，而是你自己的意志與力量。如果你沒有表現出自己是有價值的投資標的，也不會有人想把外援投注在你身上。說來說去，與其為了無法控制的外在因素多加糾結，還是把手邊能作的事情作好吧。
+
+本文原載於 [筆者Facebook](https://web.archive.org/web/20210921222733/https://www.facebook.com/legal.pad.of.an.attorney/posts/374172580668675)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921222733/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 一個律師的筆記本](https://web.archive.org/web/20210921222733im_/https://hkcnews.com/uploads/avatars/1bc882b3-b595-4de8-abfc-7424d48fb556.png?518772054)
+
+**博客 | 一個律師的筆記本**
+
+【一個律師的筆記本專欄】作者本名陳怡凱，為臺灣執業律師。

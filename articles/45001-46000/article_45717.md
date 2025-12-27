@@ -1,0 +1,49 @@
+---
+title: "海事處副處長施金獎出任港台副廣播處長"
+date: "2021-09-23"
+last_updated: "2021-09-23 18:48:30"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港電台"
+  - "RTHK"
+  - "radio hk"
+  - "rthk 香港電台"
+  - "港台"
+  - "香港电台"
+  - "rthk hk"
+  - "施金獎"
+url: "https://web.archive.org/web/20211026233618/https://hkcnews.com/article/45717/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45736/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45717/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45736/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 海事處副處長施金獎出任港台副廣播處長
+
+港台內部向員工發通告，施金獎出任香港電台副廣播處長，即日生效。香港電台前副廣播處長馮建業今個月13日調任政府產業署署長後，副廣播處長一職一直懸空，由署理助理廣播處長陳俊樂、李慶華、以及行政秘書鄭美娟一同兼任副廣播處長10日，直到昨日（22/9）。政府電話簿副廣播處長一職已經換上施金獎。施金獎於去年4月才接任海事處副處長，上任年多，今日出任港台副廣播處長。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233618im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/施金獎-港台-20210923104300_1ec5_large.png" alt="">
+<figcaption>施金獎出任香港電台副廣播處長，即日生效。</figcaption>
+</figure>
+
+據悉，施金獎1997年加入政府，為資深政務官。根據立法會及區議會紀錄，施金獎曾任教育局首席助理秘書長（基礎建設及研究支援）、財經事務及庫務局時任局長陳家強的政務助理、發展局首席助理秘書長 （規劃及地政）。施本月初獲委任為太平紳士。
+
+港台回覆查詢時確認施金獎今日出任副廣播處長，又指一般而言，港台會就副廣播處長任命向員工發內部通告，不會發放新聞稿；公務員事務局一向適時公布各部門首長任命，而副廣播處長一職不屬部門首長。
+
+副廣播處長由首長級第三級（D3）政務官擔任，職位原有兩個，分別負責節目及行政。負責節目管理的副廣播處長，一直由港台內部晉升，2018年廖麗怡離任後，由時任助理廣播處長陳敏娟及張建華署任，其後再由陳敏娟獨自署任，惟兩年仍未能「坐正」。前年上任的馮建業原負責行政範疇，不過負責節目的陳敏娟去年中辭職，而另一助理廣播處長張建華去年9月亦退休，故副廣播處長（節目）一職一直懸空，到去年9月由馮建業兼任兩個副處長職位。政務官李百全今年3月空降廣播處長，現時廣播處長及副處長均由沒有傳媒經驗的政務官出任。
+
+港台今年3月引入新編輯管理機制，由處長及高層組成編輯委員會，在製作或播出前檢視具爭議的節目，操控節目生死，成員包括副廣播處長。機制生效後，多次有節目播出前被抽起，公共事務組成重災區，多個節目被停止製作，包括《頭條新聞》、《視點31》、《左右紅藍綠》、《The Pulse》、《五夜講場》；另外《鏗鏘集》亦改由其他部門或外判製作。
+
+港台近年備受狙擊，陳敏娟去年中辭職，原廣播處長梁家榮亦提早離職；今年3月李百全上任後，多個高層陸續請辭，其中包括電視部公共事務組總監王祿霞在內的3名中高層，於李百全上任同日請辭；助理廣播處長周國豐、區麗雅先後於今年4月及6月辭職。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233618im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/RTHK-20210923153925_2310_large.jpg" alt="">
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026233618/https://hkcnews.com/aboutus/#subscribe)

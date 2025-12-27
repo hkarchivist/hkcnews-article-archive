@@ -1,0 +1,56 @@
+---
+title: "內房股新力控股暴跌八成七　傳集團高層大幅減薪50%至70%"
+date: "2021-09-21"
+last_updated: "2021-09-21 16:50:08"
+author: "中國組記者徐文傑"
+category: "眾聞"
+tags:
+  - "眾新聞中國組"
+  - "新力控股"
+  - "內房股"
+url: "https://web.archive.org/web/20211027134656/https://hkcnews.com/article/45665/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45668/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD50%EF%BF%BD%EF%BF%BD%EF%BF%BD70"
+original_url: "https://hkcnews.com/article/45665/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45668/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD50%EF%BF%BD%EF%BF%BD%EF%BF%BD70"
+---
+
+# 內房股新力控股暴跌八成七　傳集團高層大幅減薪50%至70%
+
+<figure>
+<img src="https://web.archive.org/web/20211027134656im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/20210921162142_1de8_large.jpg" alt="">
+<figcaption>新力控股(2103.HK)傳出高層大幅減薪5成至7成</figcaption>
+</figure>
+
+  
+ 一日暴跌八成七的內房股新力控股(2103.HK)，傳出高層大幅減薪，內地媒體報道，公司人事部口頭通知副總裁、總經理、總監級別分別減薪7成、6成和5成，集團總部員工全部都減薪，集團其他區域公司員工指尚未收到降薪通知。   
+   
+ 江西起家的新力控股集團，在2019年11月在香港上市，位列「2020中國房地產百強企業」第29位，集團稱業務聚焦江西、長三角、大灣區以及中西部核心城市等。股價急挫懷疑與江西省發布為期三年的整頓樓市行動方案有關，該方案針對建屋、賣樓租樓以及物業管理的亂象，大幅加強地產商合法合規經營意識以及業界的服務意，要   
+ 令樓市秩序明顯好轉。   
+   
+ 新力控股昨午1小時內9度觸發「冷靜期」，昨日市值蒸發了超123億港元，剩下不足18億。公司臨收市前不足半小時要求短暫停牌，等待發布有內幕消息的公告，收報0.5港元。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20211027134656im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/20210921162130_2207_large.png" alt="">
+<figcaption>公司臨收市前不足半小時要求短暫停牌，等待發布有內幕消息的公告。</figcaption>
+</figure>
+
+  
+ 市場也關注到新力的財務情況，未來一年內新力控股將共有超過132億元債務到期，標普周一下調新力控股信貸評級降至「CCC+」，也提及新力控股「無法交代清晰還款計劃」；惠譽上周把它的評級下調至「負面」指新力控股的境外債券資本市場融資渠道嚴重受阻。今年的中期業績披露，新力控股流動負債為754.28億人民幣，佔總負債的八成，在房企融資新規「三道紅線」，新力控股踩中有息負債規模年增速不得超過10%這一道紅線。   
+   
+
+
+<figure>
+<img src="https://web.archive.org/web/20211027134656im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/20210921162120_2cb3_large.jpg" alt="">
+<figcaption>董事長張園林(左二)曾表示，新力控股下半年的主要任務是銷售、資金回籠、保住現金流。</figcaption>
+</figure>
+
+  
+ 在中期業績會上董事長張園林曾表示，下半年的主要任務是銷售、資金回籠、保住現金流，買地方面保持積極、謹慎、樂觀的態度。而9月初新力控股旗下的物業公司新力服務來港上市失敗。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027134656/https://hkcnews.com/aboutus/#subscribe)

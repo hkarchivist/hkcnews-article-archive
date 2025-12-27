@@ -1,0 +1,52 @@
+---
+title: "初評港版國安法"
+date: "2020-05-27"
+last_updated: "2020-05-27 15:17:31"
+author: "王永平"
+category: "眾說"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "基本法 23 條"
+  - "23 條"
+  - "港版國安法"
+url: "https://web.archive.org/web/20211202012643/https://hkcnews.com/article/30314/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_23_%EF%BF%BD%EF%BF%BD%EF%BF%BD-30318/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/30314/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_23_%EF%BF%BD%EF%BF%BD%EF%BF%BD-30318/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 初評港版國安法
+
+第十三屆全國人民代表大會第三次會議正在北京舉行，令不少港人震驚和舉世矚目的議程是審議簡稱為《港版國安法》的議案。根據會議日程，該議案會在大會閉幕當日(即本月28日)投票表決，正式授權人大常委會展開具體立法工作。預計人大常委會最快可於8月通過草案，並在公布當天在香港執行有關法例，毋須經香港立法會審議。
+
+這個港版國安法是按《基本法》第18條提出，理由是國家安全屬全國性法律。其實，港版國安法涵蓋的範圍，完全可以透過《基本法》第23條立法。根據人大常委會副委員長王晨的解釋，鑑於23條立法一直未能完成，甚至有被長期擱置的風險，中央才決定制定港版國安法，藉此維護國家安全。雖然王晨和特首林鄭月娥都聲稱，香港仍需為23條立法。但我相信這已經不是當前急務。此例一開，將來有需要時，中央修改港版國安法更方便快捷。
+
+<figure>
+<img src="https://web.archive.org/web/20211202012643im_/https://hkcnews.com/news_新聞/hk-discuss/2020/05/港版國安法-林鄭班子-林鄭月娥-20200525150756_2306_large.jpg" alt="">
+<figcaption>林鄭月娥本月22日晚，率領整個班子和行會成員表態，支持中央制訂港版國安法。美聯社</figcaption>
+</figure>
+
+讓我首先重申立場，我從來不反對為23條立法，甚至屢次指出，立法不成的責任是在歷屆特首身上。事實上，自從2003年董建華的方案被迫撤回後，之後的三任特首根本連提出一份草案，甚至諮詢文件也沒有，是典型的「不做不錯」。自詡迎難而上的今屆特首，不斷講要營造有利立法環境，然而官民衝突和社會撕裂卻在她任內與日俱增。現在中央出手，跨過立法會，肯定會打擊不少港人和外地投資者對一國兩制的信心。
+
+例如，港版國安法議案提到中央在香港設立機構，依法履行維護國家安全相關職責。特首林鄭對此的回應是，「我相信最終主要執法的都是我們香港的機構」。今天有多少港人對「她相信」有信心？何謂「主要執法」？是否有「次要執法」，例如調查、約見疑犯？中央設立的會是甚麼性質和職能的執法機構？在這條全國性法例下，這些機構的執法人員是否必須依從香港而不是內地的法律辦事拉人？又例如，在內地，分裂國家或顛覆國家政權的罪名，可以按涉事者的言文定罪，毋須證明有武力成分。港版國安法是否如此？誰來詮釋法例內的具體條文？
+
+常言魔鬼在細節。林鄭可否向中央爭取，人大常委會在通過港版國安法前，諮詢特區政府的意見，並預留一段時間，讓政府諮詢港人對草擬的條文細節及執法機制表達意見？這個要求不算過分吧？
+
+本文原刊筆者 [在am730專欄](https://web.archive.org/web/20211202012643/https://www.am730.com.hk/column/新聞/初評港版國安法-220395)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202012643/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20211202012643im_/https://hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

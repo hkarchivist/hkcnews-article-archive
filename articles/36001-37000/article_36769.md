@@ -1,0 +1,58 @@
+---
+title: "從特朗普挑戰失敗看美國民主"
+date: "2020-12-28"
+last_updated: "2020-12-28 17:16:50"
+author: "王永平"
+category: "眾說"
+tags:
+  - "donald trump"
+  - "donald trump jr"
+  - "特朗普"
+  - "唐纳德 特 朗 普"
+  - "當勞侵"
+  - "美國憲法"
+  - "美國總統大選"
+  - "美國大選"
+  - "美國總統選舉"
+url: "https://web.archive.org/web/20210725132709/https://www.hkcnews.com/article/36769/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36774/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36769/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36774/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 從特朗普挑戰失敗看美國民主
+
+今次美國總統選舉，特朗普到今天依然不承認落敗，理由是他認為選舉過程出現大規模的舞弊行為，特別是在點算郵寄選票上。他的選舉團隊以至支持者在多個搖擺州提出訴訟，結果都被州法院推翻。最關鍵的司法行動是由德州檢察長提出，獲18個州檢察長和106名共和黨國會議員支持，以4個州份的投票程序違憲為由，要求最高法院推翻拜登獲勝的選舉結果。然而，最高法院拒絕受理，並以德州缺乏司法審判管轄提出他州選舉訴訟為由，駁回申請。這個裁決令特朗普大為失望。他批評最高法院法官缺乏勇氣，不敢面對重大憲法問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210725132709im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/美國總統大選-特朗普-白宮-20201121023250_5f70_large.jpg" alt="">
+<figcaption>還有不到一個月，美國白宮的主人就要換人。</figcaption>
+</figure>
+
+現時美國最高法院的9名法官，6名是由共和黨總統委任，其中3名更是在特朗普任內獲委任，包括1名在總統選舉前幾星期才履新。
+
+#### 今次對選舉訴訟的司法裁決，再一次證明最高法院的法官，無論是由哪個黨的總統委任，都是完全獨立地依照美國憲法審案，不會考慮任何政黨或政治人物的看法。三權分立包含的司法獨立，是美國政制的核心部分，更是美國民主的堅強後盾，確保人民的權利不容政府或國家領導左右。
+
+今次選舉爭拗亦凸顯美國民主的另一個優點，就是人們普遍接受政黨或政治考慮不能凌駕普世價值如公平公正或法治精神。例如，喬治亞州的州長和選舉官員都是特朗普的支持者，但他們認為該州選舉結果公正，便公開反駁特朗普；一向對特朗普言聽計從的司法部長巴爾，公開宣稱他看不到有足以影響選舉結果的大規模舞弊，繼而辭去職位。當選舉人團正式以大多數票選出拜登為下屆總統後，共和黨參議院領袖麥康奈爾隨即祝賀拜登。
+
+值得一提的是，美國官員、軍人、法官、議員等宣誓效忠的對象不是政府，而是美國憲法。在美國憲法下，人民的意願和權利是至高無上的。
+
+美國總統選舉不是一人一票直接選出來，而是選民透過選出選舉人，由他們再投票選出總統。這個獨一無二的制度是要確保不同州份的選民都能發揮左右選情的作用。其實美國民主的精粹不僅是在制度設計，更是在面對內部矛盾和衝突時，一般民眾對強權的警惕和民主的堅持。
+
+美國國會將於明年一月六日確認選舉人團的投票選擇。我不相信特朗普屆時可以取得大多數共和黨議員的支持去推翻拜登勝出的結果。
+
+本文原載於筆者在 [am730專欄](https://web.archive.org/web/20210725132709/https://www.am730.com.hk/column/%E6%96%B0%E8%81%9E/%e5%be%9e%e7%89%b9%e6%9c%97%e6%99%ae%e6%8c%91%e6%88%b0%e5%a4%b1%e6%95%97%e7%9c%8b%e7%be%8e%e5%9c%8b%e6%b0%91%e4%b8%bb-249198)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725132709/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20210725132709im_/https://www.hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

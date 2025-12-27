@@ -1,0 +1,58 @@
+---
+title: "受虐少年望遠離舊家　公開信致社署：救救我"
+date: "2017-07-05"
+last_updated: "2017-07-05 23:08:32"
+author: "翁維愷"
+category: "眾聞"
+tags:
+  - "鄺俊宇"
+  - "KWONG Chun-yu"
+  - "社會福利署"
+  - "社署"
+  - "社會福利處"
+  - "福利署"
+  - "家暴"
+url: "https://web.archive.org/web/20220807172005/https://www.hkcnews.com/article/5126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5135/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/5126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5135/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 受虐少年望遠離舊家　公開信致社署：救救我
+
+<figure>
+<img src="https://web.archive.org/web/20220807172005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/家暴-鄺俊宇-20170705202553_1c52_large.jpg" alt="">
+<figcaption>受虐少年強仔 (化名，左)，在立法會議員鄺俊宇 (右) 陪同下舉行記者會，戴口罩者是他的補習老師羅先生。何君健攝</figcaption>
+</figure>
+
+強仔（化名）今年12歲，他短短的人生中，有近一半日子都在父母虐待中渡過。強仔的姐姐比他年長5歲，今年4月因父親性侵而自殺，被送往醫院搶救；父親被控告性侵犯，法庭正在審理；母親經營非法賭檔，患有情緒病，多次持刀指嚇強仔。
+
+強仔獲分配到臨時宿舍，但8周期限屆滿，社工卻安排他入住離家不遠的長期宿舍。強仔擔心受到滋擾，拒絕入住後卻收到社工警告信，要他離開短期宿舍，他發公開信給社署，希望獲安排合適社工協助。強仔戴著口罩和鴨舌帽，低著頭，整個記者會只說出一句：「阿媽話打完我會開心點。」
+
+**母親持刀指嚇**   
+ **父親性侵胞姊**
+
+強仔出席記者會時低著頭，帶著藍色鴨舌帽，整場記者會一言不發，要由為他求助的補習老師羅先生和民主黨立法會議員鄺俊宇代為發言。羅先生指，強仔一家來自基層，父親做木工，母親來自內地，在港經營非法麻雀賭檔。強仔一直遭到父母虐待，除了平常被父母以藤條打外，飯也經常吃不飽。他憶述，自己在強仔讀小五時第一次見到他，當時覺得他瘦得很厲害，細問之下，才知道強仔媽媽只會給他幾粒魚蛋就當作一頓飯。
+
+羅先生曾目睹，強仔媽媽拿著刀指罵兒子，形容強仔當時「驚到貓仔咁不停震」，當時羅先生立即上前用手擋著強仔媽媽。他說，那天還是強仔生日的翌日，他媽媽就是為了一個生日蛋糕而大發脾氣。他又從強仔口中得知，媽媽會逼他們一起說謊，欺騙賭檔一些老顧客，說自己已離婚，多年來獨自養大一對兒女，騙他們給錢自己買電話等。強仔媽媽又會在一對兒女面前，叫這些老男人為「老公」和「契爺」等親暱稱呼。
+
+羅先生指，強仔患有過度活躍症（ADHD），但其母一直不讓丈夫帶兒子看醫生。羅說，在補習期間發現，強仔一邊補習會一邊轉凳，轉足整整一小時，又會在沙發跳來跳去。他引述強仔對他說過，讀書難以集中，又會頭痛，導致現在快升中二，但學習程度連小四都不及。羅先生遂向其父母查問，由於他們本來是朋友，所以強仔爸爸告知他，原來強仔媽媽一直反對帶兒子看醫生。
+
+直至今年4月，強仔姐姐自殺，揭發她小時曾被父親性侵犯，法庭正審理其父親的控罪。姐姐出事後，強仔和家人分開。羅先生指，強仔姐姐自殺後入院搶救（沒離世），媽媽曾到醫院探望，但翌日羅先生和社工再找她時，卻沒有任何音訊。他們中午上門尋找時，打開門發現桌面放滿精神病藥物，兩人都睡眼惺忪，社工才將強仔帶走，安排他入住臨時宿舍，並將他媽媽送到醫院。
+
+**獲派長期宿舍離家不遠**   
+ **強仔憂被滋擾**
+
+不過，臨時宿舍只有8周期限，上月18號就已經到期，強仔只有兩條路：回家或到長期宿舍。問題在於，社工為他安排的長期宿舍，正正就在他原本居住的屋邨附近。羅先生引述強仔說，他非常擔心會被滋擾，所以曾向社工要求調宿舍，但社工沒有協助，反而發警告信要他離開短期宿舍。
+
+羅先生說，社工曾經表示若不接受長期宿舍安排，就要重新輪侯，但再輪候期間不能留在臨時宿舍。他質疑，為何社工明知強仔家庭複雜，都仍然安排他到母親住所附近的宿舍入住。所以強仔在上月22日向社署助理署長（家庭及兒童福利）寫親筆信求助，他在信上說：「我媽一直虐待我，經常拿刀砍我。我雖然知道社工已經報警，但我媽依然可以找到我，令我十分驚恐，很不開心。」
+
+強仔在信上表示，希望署長可以為他安排一個合適的社工跟進事件：「我現在十分害怕，希望署長可以救救我。」不過至今仍然未收到回覆。社署回覆記者查詢表示，今年4月下旬接獲學校轉介一宗懷疑虐兒個案，並曾召開多專業個案會議，為個案涉及的兩名兒童（兩姊弟）制訂合適的福利計劃，包括為男童安排緊急照顧及兒童住宿照顧服務。男童近日獲派的兒童院舍是按其當初的意願而安排的，但近期得悉男童對有關安排的憂慮，故負責個案社工已立刻和男童及相關人士會面及商討，並已為男   
+ 童輪候其他符合其要求的兒童院舍。與此同時，負責個案社工已和提供臨時住宿服務的機構商討延長男童的住宿期。
+
+社署重申並沒有強迫男童入住其不願意入住的宿舍，更沒有向他發出警告信。社署會繼續跟進有關個案及兩名兒童的福利需要，提供包括情緒支援及心理輔導等。此外，就男童撰寫的信件，社署已兩度與男童會面並於本星期一作出回覆，就男童的憂慮表示關心及理解，並會按他現時的意願為他申請另一間兒童院舍。
+
+負責跟進個案的立法會議員鄺俊宇批評，社署處理方法不合理，沒顧及強仔的感受。他認為，這是嚴重個案應緊急處理，應即時安排強仔搬到遠離父母的長期宿舍，不能只當作普通家庭糾紛。他又批評，政府對於家庭暴力分類，有一種叫「家庭事件」，2016年有近85%家暴案件被分類成家庭事件，令他們成為隱藏家暴。他希望政府重新定義家庭暴力，正視這類問題，並提升社工、警方及學校對有家庭暴力傾向人士的警覺性，以確保可以適時介入，阻止暴力發生。
+
+<figure>
+<img src="https://web.archive.org/web/20220807172005im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/虐兒-家暴-20170705202614_2031_large.jpg" alt="">
+<figcaption>強仔(化名) 撰寫給社署的信件提到：「我現在十分害怕，希望署長可以救救我。」但他至今未收到社署回覆。何君健攝</figcaption>
+</figure>

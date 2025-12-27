@@ -1,0 +1,61 @@
+---
+title: "悟空傳 WuKong 講幾句"
+date: "2017-08-05"
+last_updated: "2017-08-05 22:03:02"
+author: "游大東"
+category: "眾說"
+tags:
+  - "movie"
+  - "movies"
+  - "電影"
+  - "电影"
+  - "孫悟空"
+url: "https://web.archive.org/web/20220125221642/https://www.hkcnews.com/article/5925/movie-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5926/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-wukong-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/5925/movie-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5926/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-wukong-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 悟空傳 WuKong 講幾句
+
+
+{{< video src="https://web.archive.org/web/20220125221642if_/https://www.youtube.com/embed/nB17QpVk9K4" >}}
+
+
+不擅分析電影，向來少寫筆記甚至評論，但看罷郭子健新作《悟空傳》（廣東話配音版），非常醒神，甚至有點激動，覺得有需要寫點甚麼，決定以點列方式表達，不會劇透，請大家放心閱讀。
+
+（1）《悟空傳》改篇自今何在的同名小說，時間綫推前至吳承恩撰寫的《西遊記》之前，電影甫開始，畫面令人眼花繚亂，但別因此而錯過了那段講古佬的旁述，因為這一段旁述，是直接影響觀眾對於往後故事情節的理解，我就是一開始錯過了，沒有留心細聽，結果看到中段，都是明啲唔明啲，但又不敢問身邊的朋友。
+
+（2）翻查資料，這部電影的製片商多達八家，但沒有一家是香港的，英皇電影也只是負責《悟空傳》的香港地區發行。雖然擺明車馬用大陸資金，但放心，郭子健的心沒有離開過香港，這部電影徹頭徹尾，都是拍給香港觀眾看的，看到一半，你就會明白。
+
+（3）除了兩位演員 ─ 余文樂和彭于晏之外，清一色都是內地演員，就連余文樂本身都要用國語來說對白，而且我深信，他與彭于晏的出現，既因角色是否適合（彭于晏扮馬騮精雖遠遠未及張衛健，但也演得鬼馬、深情），亦因為要顧及香港和台灣觀眾的感受，如果不是這種卡士，港台兩地的觀眾都不會有意慾花錢買票進場。
+
+（4）身邊的朋友說：「其實余文樂（演二郎神楊戩）根本都唔需要演戲，而且中間有好多段戲，都係得個嗌字！」但我又覺得，這套戲最吃重的角色，其實落在阿紫（倪妮）身上，有三場戲，都充分展現到她對孫悟空的愛，很動人，配合蔡健雅 Tanya Chua演唱的插曲《紫》（波多野裕介作曲），一播出來，差啲想喊。郭子健說：「 呢首歌做咗好長時間，就係想要一出會起雞皮嗰種感覺。」
+
+
+{{< video src="https://web.archive.org/web/20220125221642if_/https://www.youtube.com/embed/Ine0ufoFnSY" >}}
+
+
+又，飾演天蓬的，乍看以為是在韓國出道的中國藝人，因為他有點似BIGBANG的太陽，原來他叫歐豪，1992年出世，又名「小甜品」，近來「愛國電影」《建軍大業》都有他的演出，飾演葉挺。
+
+（5）在首映場上，郭子健與視覺導演黃智亨一同來到觀眾席前，他們兩個人的對話，大致想說：其實《悟空傳》不是用了很多錢／不是有很多錢去做CG。但我覺得，這套戲的CG實在很多，尤其是後半部，不過，CG只是花紙，減低故事訊息的威力，即掩眼法是也。
+
+（6）所有廣東話配音，除了余文樂之外，都不是原聲。郭子健說，他專誠邀請了一班舞台劇演員負責配音，在我的理解，舞台劇演員看重感情拿捏，所以看了兩小時的電影，這班配音配得頗傳神，阿紫已經是阿紫了，而據了解，郭導選擇配音員時，刻意選擇一些「生聲綫」（「生面口」啲Friend）。
+
+
+{{< video src="https://web.archive.org/web/20220125221642if_/https://www.youtube.com/embed/GBhVnCmKoGo" >}}
+
+
+（7）題外話，這部戲的繁體版海報中文字體、片尾的中文字體，靚到癲咗，我問郭導：邊位仁兄那麼強，求介紹，他說：「毛筆字，好多都是我寫的，繁體是我寫的、片尾『我要這天……』也是我寫的、齊天MV的字全是我寫，倒是（海報上／片頭上）人名太多，搵人跟我風格寫。」古語「有云」，寫到一手靚字的男人好有魅力，郭導這樣回覆我，真係好強嘅氣呀！
+
+（8）看完《悟空傳》，雖然有很強烈的向星爺致敬的味道，但依然會想起2010年郭導的舊作《打擂台》，兩者都是那種「就算輸都唔緊要，至少我有博盡」的故事套路，所以如果你喜歡《打》，大概也會喜歡《悟》。香港觀眾，記得入場，尤其是看廣東話配音版。我要真心的說一句，＃多謝郭子健。
+
+《悟空傳》8月10日香港上映。
+
+原文載於筆者Facebook： [游大東【鴻鵠志－影視筆記】](https://web.archive.org/web/20220125221642/https://www.facebook.com/yautaitung/?hc_ref=ARR68PDxvAamtIA1qksb5i2MF17_JUJjlPckYEH2z-FFMAg7BvZZH7_U_rxAKYEkc-k)
+
+---
+
+![博客 | 游大東](https://web.archive.org/web/20220125221642im_/https://www.hkcnews.com/uploads/avatars/141dd4d3-295a-4a8b-9931-5ff4a5607a73.png?2034962320)
+
+**博客 | 游大東**
+
+【游大東・影視筆記】，土生土長八十後，在傳媒打滾十年，從電台到電視，由雜誌到網媒，曾任記者和編輯；偽文青與偽老人精合體，熱愛電視文化，最愛看經典節目；閒時執筆，自己觀點自己寫，深信只要做足功課，大把有趣內容可以講。

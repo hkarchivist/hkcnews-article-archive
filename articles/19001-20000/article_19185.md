@@ -1,0 +1,58 @@
+---
+title: "明日大嶼粗估工程造價6240億　黃偉綸指賣地收入遠超　「掏空庫房說不成立」"
+date: "2019-03-19"
+last_updated: "2019-03-21 23:52:46"
+author: "實習記者徐雪瑩"
+category: "眾聞"
+tags:
+  - "發展局"
+  - "黃偉綸"
+  - "明日大嶼"
+url: "https://web.archive.org/web/20210729163240/https://www.hkcnews.com/article/19185/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19242/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6240%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19185/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19242/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6240%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 明日大嶼粗估工程造價6240億　黃偉綸指賣地收入遠超　「掏空庫房說不成立」
+
+發展局局長黃偉綸周二（19日）公佈「明日大嶼願景」工程造價估算，其中交椅洲填海興建1000公頃人工島，連同相關的交通運輸網絡，以及欣澳、龍鼓灘和屯門沿海發展區的填海和基建項目，按2018年9月價格計算，總工程造價約6,240億元。黃偉綸強調，這只是「非常初步的粗略估算」，待相關研究完成後才會有較準確的工程費用。不過，他引用早前香港測量師協會的推估，指單計算私人房屋和商業用地的賣地收入，最少也達7,070億元，因此明日大嶼「掏空庫房這個說法不能成立」。
+
+<figure>
+<img src="https://web.archive.org/web/20210729163240im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/工程造價-填海-明日大嶼-20190321234808_269f_large.jpg" alt="">
+<figcaption>發展局公佈的「明日大嶼」工程造價估算。眾新聞製圖</figcaption>
+</figure>
+
+6,240億的總工程造價主要分三個部分，當中交椅洲人工島的填海和相關基建佔2,560億；欣澳填海、龍鼓灘填海和屯門沿海地帶發展及基建佔950億；六個優先推展的主要幹道和鐵路交通運輸項目佔2,730億。黃偉綸表示，因暫時未有發展喜靈洲700公頃用地的時間表、未作公眾諮詢，若現時公佈喜靈洲的工程預算，是不切實際且帶有誤導性。
+
+黃偉綸在記者會上又引用香港測量師協會的估算，指私人房地和商業用地的賣地收入，足以收回填海和基建的工程成本。就交椅洲人工島來說，政府初步規劃可興建45,000至78,000個私人房屋單位，根據香港測量師協會估算，這方面的賣地收入，可達上限（即78 000個房屋單位）的9,740億至11,430億元；若取下限數字（即45,000個房屋單位），賣地收入也有7,070億至8,230億元。黃偉綸稱，上述數字還未計算人工島上10.5萬至18.2萬伙公營房屋落成後帶來的收入，以及西部海洋鐵路提高屯門高密度發展潛力所帶來的收益，料賣地收入將比估算高。此外，交椅洲人工島作為第三個核心商業區，可提供約400萬平方米的商業樓面面積、20萬個就業機會，預計全面發展時，能為香港每年貢獻1,410億元，相當於現時本地生產總值約5%。
+
+<figure>
+<img src="https://web.archive.org/web/20210729163240im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/明日大嶼-發展局-黃偉綸-20190319192849_1c37_large.jpg" alt="">
+<figcaption>發展局局長黃偉綸指，相關開支透過賣地會回到政府的庫房，掏空庫房的說法不能成立。何君健攝</figcaption>
+</figure>
+
+黃偉綸續說，決定是否興建一條道路或鐵路，從來不會視乎賣地收入的多少，而是視乎社區對道路基建的需要，今日破例提及賣地收入的數字，是希望告訴公眾：「其實相關的付出，對整個社會來說，透過賣地是會回到政府的庫房，換句話說，掏空庫房這個說法不能成立。」
+
+對於「明日大嶼」工程會否超支，黃偉綸避開大型工程項目屢屢超支的實況，引用總體數據指，過去10年的工程項目只有一成超支，九成均在預算內完工；而工程實際開支佔整體預算的87%，即整體工程支出並無超出預算。黃偉綸直言對控制成本有信心，因為政府開設 [「主要項目精英學院」和升格「項目成本管理辦事處」](https://web.archive.org/web/20210729163240/https://www.info.gov.hk/gia/general/201811/28/P2018112800631.htm) ，分別提升管理項目官員的控制成本能力和嚴格控制成本。
+
+光是興建鐵路，發展局便預算要動用1,720億，佔整體工程開支逾兩成半，土木工程拓展署署長劉俊傑指，有關預算參考過往鐵路工程項目，總長28公里的鐵路中，好幾段需要穿過海峽，興建隧道、車站和修車廠的成本會較高。
+
+坊間提出發展棕地的成本遠低於發展人工島，黃偉綸指「未必可以這樣商業比較」，若真的要比較，收回棕地的成本約1,400元一呎，而填海成本是14,000元一平方米（約10.76呎），兩者成本相近。黃稱，無論收回棕地還是填海都需要興建基建設施，「如果在新界進一步發展的時候，要考慮就是，在新界駁更多的主要交通基建回市區，我們現在沒這個估算，但會不會便宜過我們在交椅洲駁回市區？」黃又指，從交椅洲駁去西環約距4公里，而從新界大型公路駁往市區，須經過已發展地區，成本「未必平啲」。
+
+<figure>
+<img src="https://web.archive.org/web/20210729163240im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/東大嶼都會-明日大嶼-填海-20181010234744_1aa7_large.jpg" alt="">
+<figcaption>明日大嶼發展圖。圖片來源：土木工程署可持續大嶼辦事處網站</figcaption>
+</figure>
+
+被問及融資安排，黃偉綸指特首已指派財經事務及庫務局考慮不同方案，不排除採用「鐵路加發展」方法或以債券方式融資，但強調就算採用發行債券，並非因為金錢上不夠，稱根據19/20年度的財政預算，政府總支出逾6,000億元，其中工務工程佔超過800億元，明日大嶼的6,240億將分10至15年撥款，平均每年為400至500億元，「你睇唔到點解做唔得到」。黃又指，鐵路不一定由港鐵負責，會交由運輸及房屋局考慮。
+
+黃偉綸亦回應填海需大量海砂，或提高工程成本的公眾疑惑，他指一年大約有1,500噸的免費惰性建築廢料，政府只需繳付運費，便可解決填海工程中超過一半的填料，現時東涌填海和三跑工程中均有使用；而剩下的填料可考慮內地製造的機砂，即磨碎石頭製成的填料，約120元一噸，較180元一噸的海砂便宜，相信隨著機砂的需求上升，內地的機砂生產線將增加，供應穩定。
+
+發展局在下星期二（26日），將在立法會的工務事務委員會申請逾5億元的「明日大嶼」研究經費，以及約10億元的大嶼山保育基金。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729163240/https://www.hkcnews.com/aboutus/#subscribe)

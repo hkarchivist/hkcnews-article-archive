@@ -1,0 +1,63 @@
+---
+title: "挪威疫情（2）－香港十八區的居民，請為抗疫措施評分！"
+date: "2021-02-07"
+last_updated: "2021-02-15 17:29:16"
+author: "骷髏小姐在挪威"
+category: "眾說"
+tags:
+  - "挪威"
+  - "挪威王國"
+  - "第四波疫情"
+  - "封區強制檢測"
+url: "https://web.archive.org/web/20210727064943/https://www.hkcnews.com/article/37962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38215/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37962/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38215/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 挪威疫情（2）－香港十八區的居民，請為抗疫措施評分！
+
+近日香港正受超級世紀颱風「全面管治」突襲——瘋狂突襲封區、全面洗腦教育突襲、非香港培訓醫生將突襲等等，看來這世紀颱風「全面管治」勢要將香港行之有效的制度連根拔起方休。「全面管治」吹襲的同時，香港官方論述和主旋律亦開始改寫香港歷史——通識科課程內容被改得面目全非、國民教育滲透入各科，另董建華的「團結香港基金」出版的《香港志》首冊，當中傘運被定性「違法佔中」，僅稱「六四事件」未提血腥屠城等等，陸續有來；事實真相和民意，唯有靠我們自己書寫，香港的歷史才不致煙沒於另類歷史。
+
+<figure>
+<img src="https://web.archive.org/web/20210727064943im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/封區強制檢測-第四波疫情-北角東發大廈-20210131224241_2304_large.jpg" alt="">
+<figcaption>每次封區強檢，特區政府都要動用大量人力物力，但成效存疑。EYEPRESS圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210727064943im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/第四波疫情-封區強制檢測-20210207152559_2525_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+對香港政府很多抗疫措施，如封關豁免、限聚令、晚市禁堂食、突襲封區等等，社會怨聲四起，先不論措施的邏輯（如封區標準不清）和背後的政治動機，措施的成效，如近日13次封區僅1宗確診，公眾一直存疑（編按：最新數字是16次封區僅1宗確診）。不幸地，當疫情大致受控，官方論述和主旋律會怎樣書寫抗疫措施的成效，相信大家心中有數，所以，大量紀錄民間的意見評分，急不容緩。為方便統籌，不知道十八區的區議員是否可以有系統地搜集居民的意見和評價，為政府抗疫措施評分？   
+   
+ 拋磚引玉，是源於挪威FHI（Norwegian Public Health Institute）25.01.2021的報告。FHI 是有1,400僱員的國家公共衛生研究機構，隸屬衛生局。報告中FHI用 **以下5個項目為挪威政府各項抗疫措施評分（見附表1）：**
+
+**(1)成效**   
+ **(2)社會經濟成本和對職場生活的干擾**   
+ **(3)對個人福祉的干擾和加重公共衛生的負擔**   
+ **(4)對兒童的情緒困擾**   
+ **(5)對其他弱勢群體的干擾和情緒困擾**
+
+<figure>
+<img src="https://web.archive.org/web/20210727064943im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/抗疫-武漢肺炎-挪威-20210207141815_2203_large.png" alt="">
+<figcaption>資料來源 ：挪威FHI（Norwegian Public Health Institute）報告，25.01.2021</figcaption>
+</figure>
+
+介紹這報導，用意只供参考，絕非要挪用外國的模式框架，更不是要比較各地措施的成效，因各地有國情文化差異，情景脈絡亦大不同，例如和香港相比，挪威地大人稀，保持1-2米的社交距離，較易執行所以成效會很大，而戴口罩，只在不能保持社交距離下才有幫助，所以FHI評戴口罩的成效為小－中等。   
+   
+ 本來十八區居民為抗疫措施評分，可供香港政府參考以改善政策，但今時今日，對不斷害慘香港人的這個政府，大家已不存任何期望，然而，如果有這些評分的話，可以為民意留個紀錄，以民意民情抗衡官方論述，是否也有歷史價值呢？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727064943/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 骷髏小姐在挪威](https://web.archive.org/web/20210727064943im_/https://www.hkcnews.com/uploads/avatars/62c82bf5-71b6-4951-bba8-032b2a012e95.png?410975182)
+
+**博客 | 骷髏小姐在挪威**
+
+【骷髏小姐・骷髏小姐在挪威】當年的背包客，第一次去挪威，便呆了一段歲月，因為驚艷。之後再踏足挪威，一晃多年，有欣慰有嘆息，也有憂愁。愛東逛西逛，愛望天望地望人，用近鏡也用廣角鏡，以香港的風景為底色，說些挪威人挪威事。

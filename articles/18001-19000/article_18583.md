@@ -1,0 +1,52 @@
+---
+title: "交流社工經驗，歡迎　互認社工資歷，免問！"
+date: "2019-02-20"
+last_updated: "2019-02-20 21:06:27"
+author: "社工總工會"
+category: "眾說"
+tags:
+  - "粵港澳大灣區"
+  - "社工總工會"
+  - "社工"
+url: "https://web.archive.org/web/20220125235648/https://hkcnews.com/article/18583/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18586/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/18583/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18586/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 交流社工經驗，歡迎　互認社工資歷，免問！
+
+《 [粵港澳大灣區發展規劃綱要](https://web.archive.org/web/20220125235648/http://www.xinhuanet.com/politics/2019-02/18/c_1124131474.htm) 》（下稱《規劃綱要》）寫道：「......鼓勵港澳與內地社會福利界加強合作，推進社會工作領域職業資格互認，加強粵港澳社工的專業培訓交流......」對「互認論」，社總有以下回應：
+
+<figure>
+<img src="https://web.archive.org/web/20220125235648im_/https://hkcnews.com/news_新聞/hk-discuss/2019/02/社工總工會-粵港澳大灣區-社工-20190220191542_1c2e_large.png" alt="">
+</figure>
+
+**1）互認一向不存在！**   
+ 本地社會工作者註冊局一直也沒有與內地院校或機構建立資歷互認制度。昨天沒有，今天也不應因為一份《規劃綱要》而忽然彈出一個互認制度。社總會長正是上屆社會工作者註冊局主席，去年澳門社工局來訪時，亦斬釘截鐵地否定可見的將來兩地社工資歷互認的可能！
+
+**2）不要政治正確，業界要專業正確**   
+ 內地社工課程內容與本地有相當大的差距：是學術上的差距，是課程設計上的差距，也是社工價值的差距。兩地獲取社工資格完全不同，包括有豐富社工資歷的老師為社工學生作培訓和實習督導，本港社福機構亦有較完善的人手編制以監察社工提供的服務質素，令社工年資的認受性提高。這種差距，是專業上的不足，故資歷互認是毫無基礎的。
+
+**3）社會公義是核心價值**   
+ 近年澳門計劃建立社工註冊制度，但就工作守則是否會加上「社會公義」四字，也極富爭議。此事反映，個別地區對守護公義有不同的堅持，那不堅持「社會公義」為核心價值的社工，如何不畏強權站在服務使用者的一方呢？當中香港社工與內地社工對「社會公義」的理解，相距十萬公里。究竟政府是否部署加強控制社工在提供服務時不要「僭越」政府的主控權，不要再為服務使用者發聲而純粹做維穩工作呢？
+
+**4）內地社工會影響香港社工的供求**   
+ 本地社工課程，包括學位和非學位課程，相當足夠，甚至有供過於求的情況。所以，輸入內地社工，絕無需要。除非求大於供情況嚴重，否則香港社福界又怎會優先聘用分不清楚「公屋」和「居屋」、「東方」與「蘋果」分別的內地社工呢？
+
+**5）香港要社福規劃，而不是要被規劃**   
+ 本地社福界缺乏長遠規劃多年，羅局長叫我們不要懷緬和陶醉過去有社福規劃的年代。言猶在耳之際，忽然《規劃綱要》就要我們社福界被規劃？我們不要大灣區，我們只想攪好本地的社福規劃，攪好本地民生。
+
+**總結**   
+ 社工資格「互認」，「香港人」考取大陸社工試便可以在香港註冊做社工，社福界即時急速被染紅。先不說國內社工會否令社工薪酬下跌和服務質素受影響，國內社工不會協助基層市民或新來港人士明白守護公義和追求民主的重要，那更多選民會走向建制，令立法會喪失不少席位，特別是社福界那一票，這可能是中共過往努力統戰社福界無效後開展的新對策。
+
+<figure>
+<img src="https://web.archive.org/web/20220125235648im_/https://hkcnews.com/news_新聞/hk-discuss/2019/02/社工總工會-粵港澳大灣區-社工-20190220191602_2a59_large.jpg" alt="">
+<figcaption>社總一直關注香港社福議題，拒絕淪陷。社總Facebook圖片</figcaption>
+</figure>
+
+---
+
+![博客 | 社工總工會](https://web.archive.org/web/20220125235648im_/https://hkcnews.com/uploads/avatars/fde165c1-49b3-4de2-97c0-2fdb6748621f.jpg?1010513770)
+
+**博客 | 社工總工會**
+
+【社總觀點】香港社會工作者總工會的目標，總的來說可概括為「團結同工、爭取權益、改善服務、支持正義」四句說話。在過去、現在及未來，都指導著「總工會」的工作

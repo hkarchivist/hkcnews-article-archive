@@ -1,0 +1,57 @@
+---
+title: "戀愛婚姻首要條件是甚麼？"
+date: "2019-02-07"
+last_updated: "2019-02-08 15:56:30"
+author: "關祥文"
+category: "眾說"
+tags:
+  - "結婚"
+  - "兩性關係"
+  - "婚姻"
+url: "https://web.archive.org/web/20211202162951/https://hkcnews.com/article/18221/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/18221/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18377/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 戀愛婚姻首要條件是甚麼？
+
+戀愛以至婚姻首要條件是甚麽？是靚仔靚女嗎？有錢嗎？高學歷嗎？風趣嗎？你話呢。
+
+**戀愛首要條件（係雙方都要具備）：**
+
+<figure>
+<img src="https://web.archive.org/web/20211202162951im_/https://hkcnews.com/news_新聞/hk-discuss/2019/02/婚姻-兩性關係-結婚-20190207172706_dabe_large.jpg" alt="">
+<figcaption>網絡插圖</figcaption>
+</figure>
+
+1.成熟~身體與心靈、精神都成熟、健康。因為戀愛的刺激、衝擊可以好大，兩人關係密切，互相影響很大，雙方要成熟，能處理、控制。一成熟，怎麼也易過，不論貧富、性格等。成熟是key。不成熟，靚仔靚女有用嗎？有錢會開心嗎？中意？越中意越死，你半生不死。
+
+2. 品格高尚，起碼同你水平。不然誤會、衝突起來，乜都做得出，不愛你時，也不會害你。
+
+3. 第三個重要條件，是個人經驗和觀察，不是導師教的，就是要具備堅强的意志力。人生準會遇逆境或不感興趣的事要做，要堅持去做。人間太多吸引自己的人和事，誘惑處處，要能堅持拒絕，婚姻才持久。成熟、人品好，加上堅强的意志力，墊定婚姻的鞏固基礎，偏偏受忽略，慘劇頻仍。其實婚姻生活不如你腦海中的兩人依偎纏綿在床上，好hi，要落地的，例如許多家務不想做，要用意志，現實中，愛情並非萬能。例如沉迷打機，迷於嫩口鮮肉，欠缺意志力的話，愛情不管用。無意志就easy come, easy go。
+
+<figure>
+<img src="https://web.archive.org/web/20211202162951im_/https://hkcnews.com/news_新聞/hk-discuss/2019/02/結婚-婚姻-兩性關係-20190207172643_2951_large.jpg" alt="">
+<figcaption>網絡插圖</figcaption>
+</figure>
+
+正面看，人品好，講道德，對人人都好，係喜歡你才一起，就更會對你好，因成熟識想，規行矩止，行在智慧中，相處順暢，關係穩定，不易反臉不認人，不會狠心對你。否則，嫁入豪門都危危乎。有意志就會做好及持守。
+
+一提性格。要性格一致或好相近才一起嗎？實情大多是性格不同才互相吸引走在一起，弔詭是之後不期然要求對方像自己，改造對方，處處不滿……不意識問題，過不到樽頸，就離異。感情事，是世上最複雜的；婚姻是學堂，無基礎的要惡補，合格的升級，不合格的留級，成績太差的無得留低。😅
+
+以上面3個首要條件選對象，大概就沒有了八成問題。明乎感情、婚姻有其規律，軟著陸，就易處理問題，沒有了大半離異個案。😊
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202162951/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 關祥文](https://web.archive.org/web/20211202162951im_/https://hkcnews.com/uploads/avatars/d0d93de4-0cae-4566-8f1e-693071346dc8.jpg?600543823)
+
+**博客 | 關祥文**
+
+【關祥文・八千里路雲和月】音樂老師，保安員。筆者學的是雜家；秉持忠，義，愛，恕，行義，盡性，助人；理性與感性並重 ; 敢愛敢恨，敢想敢做，從來是革新者、思想者。Passion Music關祥文音樂天地https://www.facebook.com/passionmusic82/

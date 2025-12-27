@@ -1,0 +1,64 @@
+---
+title: "告與不告一個越來越混亂的問題"
+date: "2020-09-04"
+last_updated: "2020-09-05 00:17:44"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "黎智英"
+  - "鄭若驊"
+  - "檢控"
+url: "https://web.archive.org/web/20210726163727/https://www.hkcnews.com/article/33603/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33605/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33603/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33605/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 告與不告一個越來越混亂的問題
+
+
+{{< video src="https://web.archive.org/web/20210726163727if_/https://www.youtube.com/embed/M0mj-4YtbnE" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210726163727/https://bit.ly/2Cj8v4t)
+
+今年二月，深井青山公路一屋苑發生駭人動物死亡案件，有30隻動物從高處墜下，其中18隻動物死亡，引起社會哄動。警方當時拘捕兩名涉案男子，事隔近7個月，律政司日前決定不就案件提出起訴，愛護動物權者嘩然，公眾大惑不解，大量動物不尋常地死亡，一句考慮證據後不告便不了了之，公義何在？律政部門操檢控大權，甚至私人檢控也可被律政司KO，告與不告都不用公開詳細交代。今時今日，現代政府講開放、透明、問責，檢控部門「是時候緊急改革了」。
+
+<figure>
+<img src="https://web.archive.org/web/20210726163727im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/深井-動物屍體-20200904234946_45c3_large.png" alt="">
+<figcaption>深井一屋苑今年二月發生駭人的動物死亡案。網絡照片</figcaption>
+</figure>
+
+動物死亡個案特殊，舉證有相當難度，但5月一單販毒案，律政司申請撤控，至今亦不斷受到質疑。案件涉及一名22歲居於已婚警員宿舍女子，於去年底到郵政局領取郵件時，收受一個近3公斤「K仔」市值200萬元的毒品包裹，其後被控一項販毒罪。控方以證據不足為由申請撤控，但署理主任裁判官鄧少雄質疑本案為高等法院案件，不適合現階段處理，要求律政司派人到庭解釋，案件在沙田法院再訊，律政司一方表示因證據薄弱，難以定罪故申請撤控，但鄧官認為，如陪審團得到正確引導，仍很大機會可將被告定罪，坦言不同意律政司決定，但考慮此為律政司的獨立決定，批准撤控申請。案件不了了之。
+
+昨日（3日），壹傳媒創辦人黎智英涉嫌3年前恐嚇《東方日報》一名記者被控刑事恐嚇案宣判，被裁定罪名不成立。裁判官認為，案中事主記者X並非可靠誠實證人，兩點定罪元素都並不能成立，因此判被告無罪。裁判官在判辭中有交代判決，是否合理，公眾可自行判斷，但事件在2017年6月4日發生，記者有提供當時片段，過程並不複雜，或有重要情節空白，律政司一直不作檢控至今年才作出起訴，令公眾猜疑，告與不告最終是甚麼標準。
+
+<figure>
+<img src="https://web.archive.org/web/20210726163727im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/法庭-黎智英-20200903162437_11f8_large.jpg" alt="">
+<figcaption>黎智英獲無罪釋放。美聯社</figcaption>
+</figure>
+
+7月，在律政司刑事檢控科工作25年的刑事檢控專員梁卓然，突然辭職。他在內部電郵向律政司同事表示，與司長鄭若驊對刑事檢控科的運作有不一致的看法。另外，梁卓然在內部電郵透露，對於國安法的案件，他沒有被要求提供協助及參與。再早前，律政司刑事檢控科「一群檢控人員」撰寫匿名公開信，批評鄭若驊其身不正，處理牽涉大型公眾活動的案件時，主要考慮政治因素，在沒有充分證據及合理機會定罪，以及不合乎公眾利益下，堅持檢控，視檢控守則如糞土。
+
+梁卓然的離任並不尋常，政府部門內對上司不滿公開化亦極為罕見，特別是律政屬敏感部門。律政司近年對幾宗具爭議性案件，最終決定告與不告，都引起爭議，令公眾質疑是否有其他因素左右決定，特別是政治考慮。
+
+<figure>
+<img src="https://web.archive.org/web/20210726163727im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/鄭若驊-梁卓然-DOJ-20190129155622_2c16_large.jpg" alt="">
+<figcaption>刑事檢控專員梁卓然（右）突然辭職，並公開他與鄭若驊的不和。資料照片</figcaption>
+</figure>
+
+基本法第六十三條列明律政司主管刑事檢察工作，不受任何干涉，政府亦強調律政司作出獨立檢控，但律政司司長是政治委任官員，問責制之下須作政治決定、向特首負責，無論如何解畫、聲稱檢控工作不偏不倚，都難以取信公眾。法律界一直有意見主張將整個刑事檢控權力， 授予一個獨立於政府的法定機構，律政司只保留形式上的權力，作為改革的終極一步，短期可以先下放檢控工作給刑事檢控專員，提高獨立性。告與不告，當然並非科學，但至少要合乎常理、相對公平，獨立專業作出，而非按政治需要。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726163727/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210726163727im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

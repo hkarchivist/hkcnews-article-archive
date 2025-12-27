@@ -1,0 +1,72 @@
+---
+title: "【專訪任全牛】釘牌在即回想當日接12港人案　任：跟港人一樣，即使無力改變也應該去做"
+date: "2021-01-19"
+last_updated: "2021-01-19 00:04:24"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "維權律師"
+  - "12港人"
+  - "任全牛"
+url: "https://web.archive.org/web/20210804190820/https://www.hkcnews.com/article/37344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37346/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37346/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【專訪任全牛】釘牌在即回想當日接12港人案　任：跟港人一樣，即使無力改變也應該去做
+
+受家屬所託協助12港人的中國維權律師盧思位，上周五遭「釘牌」，另一名律師任全牛亦將面臨同樣命運，但當局臨時延後原定於今日召開的聽證會。任全牛上星期由河南到了四川成都聲援盧思位，一度被警員帶到派出所，以阻止他參與盧思位的聽證會，事後又再坐了十幾個鐘車回河南老家。
+
+任全牛做律師10年，接過多宗人權案件，包括聲援香港傘運、反送中的維權人士謝文飛、到武漢報導疫情的公民記者張展。他又於2016年捲入「709大抓捕」事件，遭當局刑事拘留約一個月。以至最近的12港人案，任全牛解釋一再犯險的原因說：「感覺是責任，就責無旁貸。我認為就跟港人一些行為一樣，可能大家也知道，面對這麼強大的一個權力，你的聲音可能根本就被無視，但是呢，這是應該做的，即使你無力改變也應該去做。」
+
+未來，任全牛料生計不成問題，只是頗感遺憾，無法再以律師身份參與這個時代的事情。
+
+<figure>
+<img src="https://web.archive.org/web/20210804190820im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/任全牛-聽證會-20210113230109_ae93_large.jpg" alt="">
+<figcaption>任全牛（右一）與其他人權律師上周三到四川成都聲援盧思位，結果都被帶到派出所，圖為眾人獲釋後所拍。</figcaption>
+</figure>
+
+任全牛受黃偉然家屬所託代理案件，但直到案件審結，他都未能見上黃偉然一面。黃偉然最終於12月30日被裁定偷越邊境罪成，判監七個月。就在判刑翌日，河南省司法廳向任全牛發通知書，稱當局擬吊銷其律師執業證書。
+
+「釘牌」在即，任全牛回想當初接下案件的心情，不旦沒有半點猶豫，更直言很高興，「因為這幾年網上也看了很多，一些港人很悲壯、轟轟烈烈的事情。聽到這樣一個案子，又是參與過反送中的這些人，當時就覺得，責無旁貸。」而且案件本身不是危害國家安全那類敏感個案，「所以說，作為一個普通的案子就接了嘛，當然背後也是，心理上也有一種對他們的崇敬，對這幾年港人的付出（崇敬），有這個成份，就想能夠幫助他們也挺好。」
+
+答應之後，任全牛試過兩次去鹽田看守所要求見當事人不果，到過鹽田檢察院投訴，亦都有接受採訪。當地「維穩部門」於是恐嚇、警告、要求他盡快無條件退出，但任全牛沒有理會，因為以往代理維權案都有類似情況，只是今次較嚴厲。不過他坦言，後期已經跟維穩部說了，暫時不會去要求見面，亦不會受訪，只是堅持不退出。
+
+有國保警告過他：「可能對你的執證產生影響」，但任全牛其時不以為意，「我當時覺得他只是說一說吧，因為加上後期我等於說對他們是有所退讓的，我覺得應該沒問題，但是沒想到就突然出那麼個東西（釘牌）。」
+
+<figure>
+<img src="https://web.archive.org/web/20210804190820im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/維權律師-任全牛-20210118210149_2e6b_large.jpg" alt="">
+<figcaption>任全牛兩度要求見當事人不果，到鹽田檢察院控告公安局涉嫌違法剝奪當事人辯護權。12港人關注組照片</figcaption>
+</figure>
+
+黃偉然在港的家人不諳內地法律，任全牛是他們在內地唯一信賴的對象。任全牛說，就是基於這種被信任、感受到家屬的無助，所以無辦法答應退出代理。平日跟國家機器打交道的律師，說起這些也是五味雜陳：「黃偉然的年齡也很小，比我小10來歲。他妻子，有時候聊天的時候他們落淚，或者說自己家裡那些，我心裡也是、也是感覺，這個，就是，是有一種情感在裡面，聯繫長了，自己就沒有辦法，就是不管這個事情。雖然我做不了太多，但是我也不能說不管了這個事情。」
+
+河南省發出的擬釘牌通知書，指控任全牛於2018年11月代理的一宗法輪功案件時，在庭審期間的行為違反了《律師法》。據任全牛的了解，事源他在庭審結束後，庭長蒲升元「給大家講政治」時，任全牛見時間不早，已經晚上9、10點，他就舉手說時間很晚了，料因而令蒲官不悅，投訴指任全牛否定國家認定的邪教定性。
+
+「那個法官這幾年也有參與很多起這樣的案，他也給北京好些律師去了（投訴）類似內容，沒有聽說一個律師是因為這個事吊證。（自己被吊證）背後原因是不知道，我認為肯定是跟港人案有很大關係。」任全牛說。
+
+黃偉然家人得悉任全牛將被釘牌後，感到非常震撼和惋惜，形容任全牛「這四個月來他不畏強權，堅持陪我們度過了人生最灰暗的四個月」，又指任不停被當局「請喝茶」仍堅持不退出，還安慰、鼓勵他們，「聰明不能代替道德，智商不能代替良知；他被吊銷律師執照不是他的過錯，而是國人的損失。」
+
+任全牛回應說：「實際上更多是我們應該做。我們現在也沒有幫到太多，是想做一些事情，但是，各種原因吧，沒法做。但我覺得更應該感謝（他們的信賴）。」
+
+<figure>
+<img src="https://web.archive.org/web/20210804190820im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/任全牛-12港人-20210104153932_2657_large.jpg" alt="">
+<figcaption>12月31日，河南省司法廳向任全牛發通知書，擬吊銷其律師執業證書。資料圖片</figcaption>
+</figure>
+
+任全牛現在40歲，律師生涯將告終。他說，自己應該是被吊證的人權律師當中最年輕的一個。他覺得沒有後悔，但有遺憾，「遺憾自己如果不能做（律師），這個時代一些更有意義的事情，可能就不能以律師的身份參與，很遺憾。」
+
+問起當年成為律師的初衷，任全牛說得坦白：「我當時也是一個很無知的，通俗點的話：有點腦殘吧，對很多事情不了解，從小受那種教育，甚麼都不知道。」任全牛本來是打算做民商案件，當個普通律師，賺些錢，過好一點的生活。
+
+2010年取得律師執業證書，兩年左右，任全牛接觸到一些因維權被捕的愛滋病人，漸漸進入維權律師的圈子，代理了一些信仰、維權、拆遷的案件，「就是這樣一步一步走過來的，好像是天意一樣，不是我非要做這樣的事情，不是這樣。」這些年，任全牛代理得較多的是法輪功案，「很多都是老人、挺好的人，就是因為自己的信仰而被很嚴重的迫害、判刑。」
+
+這一路走來，太太總是擔心他，「她也明白，社會上很多事情、很多不公，擔心是擔心但並沒有阻止我，或者是反對，只是擔心說不定某一天怎麼樣了怎麼辦。」事實上，任全牛有想過接少一些維權案，但從沒想過退出，「自己雖然不能改變結果，但是這個過程，只看重過程去參與就行，所以有時候也很難拒絕，就一直在做。」
+
+「做的時間長了以後，就感覺是自己的責任。感覺是責任，就責無旁貸，我認為就跟港人一些行為一樣，可能大家也知道，面對這麼強大的一個權力，你的聲音可能根本就被無視，但是呢，這是應該做的。即使你無力改變也應該去做，就是出於這樣一個心態，就做吧，能做到甚麼時候就甚麼時候，盡量的去注意，但是有時候，他（政權）找藉口那是太容易找了。」任全牛說。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210804190820/https://www.hkcnews.com/aboutus/#subscribe)

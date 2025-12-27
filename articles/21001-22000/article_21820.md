@@ -1,0 +1,63 @@
+---
+title: "建制派倡書面表決財委會撥款　民主派多於一人反對不能成事"
+date: "2019-07-04"
+last_updated: "2019-07-04 22:39:36"
+author: "實習記者黃思銘"
+category: "眾聞"
+tags:
+  - "立法 會"
+  - "Legco"
+  - "立法 會 議員"
+  - "立法 会"
+  - "legislative council"
+  - "立法"
+  - "hong kong legislative council"
+  - "legco hk"
+  - "梁君彥"
+  - "Andrew Leung"
+  - "Andrew LEUNG Kwan-yuen"
+  - "立法會主席"
+  - "陳健波"
+  - "財委會"
+url: "https://web.archive.org/web/20211127115548/https://www.hkcnews.com/article/21820/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/21820/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 建制派倡書面表決財委會撥款　民主派多於一人反對不能成事
+
+立法會行政管理委員會 [成員](https://web.archive.org/web/20211127115548/https://www.legco.gov.hk/general/chinese/lcc/lcc_1819.htm) ，今早視察立法會大樓損毀情況，之後到金鐘道政府合署召開特別開會，商討跟進工作。身兼行管會主席的立法會主席梁君彥在會後見記者，冀盡快修復立法會大樓，期望10月能重開會議。目前因保安問題，難以另覓地方開會。
+
+包括民建聯在內的建制派建議，沒爭議的財委會撥款項目可考慮以書面方式表決。財委會主席陳健波一度表示，下周初會去信議員，詢問是否同意做法，但指現時建制派及民主派都有人反對，根據《議事規則》，如有一位或以上議員不同意，就要以開會方式處理撥款。民主派會議召集人毛孟靜指，書面表決做法非常危險、不能接受，會立下壞先例。
+
+陳健波晚上指，明白到民主派已有多於一人反對，決定不出信。
+
+<figure>
+<img src="https://web.archive.org/web/20211127115548im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/七一衝擊立法會-陳健波-20190702225314_92ee_large.jpg" alt="">
+<figcaption>陳健波下周詢問議員，是否同意以書面方式表決撥款。區倩怡攝</figcaption>
+</figure>
+
+梁君彥表示，立法會大樓的消防、保安系統、通訊系統都受到嚴重破壞。開會的其他設施，例如投票、召喚鐘及影音設備等都無法運作。
+
+他說，大樓的保安控制室受到嚴重破壞。除電腦伺服器外，有些硬碟被人撬走，當中載有申請立法會大樓通行證的個人資料，包括議員、議員職員、官員、記者和秘書處職員的資料，但當中並沒有身份證號碼，亦有個別的個人資料遺失。秘書處已經向私隱專員通報。梁君彥未有提供受影響數字，指由於保安系統經多重保密，相信不容易獲取當中資料。
+
+梁君彥表示，另覓其他地方作為會議場地有困難，因涉及保安問題，同意秘書處專注修復大樓的設施，務求於10月復會。秘書處現在努力作出一些臨時措施，例如加封圍板，盡快修理升降機等，希望下周盡早解除紅色警示，但由於有大量設施受到破壞，有些公眾服務會暫停一段長時間。
+
+被問到立法會是否有足夠儲備金額作修復工程，他指：「損失有幾多未點算到，但點樣都要去修復，立法會都有少少儲備嘅。」   
+   
+ 有記者問及他身為立法會主席，有何寄語政府，他說：「停一停，諗一諗，政府都講啦，大家溝通多啲，就會比較現實啲。」梁君彥見記者期間，有市民批評：「大口狗，同班後生對話呀！講嚟講去三篤屁。」
+
+  
+   
+ 行管會成員、公民黨法律界議員郭榮鏗表示，民主派同意盡快修復立法會大樓，期望10月能在立法會內復會。民主派不同意另尋地方開會，因為難以尋找一個可容許1000人在內，同時不受阻撓的地方，他們亦尊重立法會本身意義。郭榮鏗指，民主派上周起已要求與政務司司長張建宗會面，討論立法會財委會撥款議程，以及政府管治問題，但張建宗拒絕會面，指沒有逼切性。
+
+
+{{< video src="https://web.archive.org/web/20211127115548if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F2368757656715621%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127115548/https://www.hkcnews.com/aboutus/#subscribe)

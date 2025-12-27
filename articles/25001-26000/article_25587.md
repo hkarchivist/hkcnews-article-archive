@@ -1,0 +1,57 @@
+---
+title: "堅持反共抗暴捍衛文明香港"
+date: "2019-12-23"
+last_updated: "2019-12-23 05:49:39"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "逃犯條例"
+  - "止暴制亂"
+  - "香港人報仇"
+url: "https://web.archive.org/web/20220127021231/https://www.hkcnews.com/article/25587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25592/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/25587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25592/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 堅持反共抗暴捍衛文明香港
+
+【撰文：無言】   
+   
+ 隨著聖誕到來，2019 年亦快將終結。持續大半年的抗爭，未有消散跡象。   
+   
+ 近日多個工會次第成立，以「大人肯罷工，後生唔使衝」為口號，蘊釀罷工。中共及其傀儡則一仍舊貫。習近平到澳門，誇獎其貫徹「一國兩制」方針，取得的成就和進步令人自豪，又指港澳事務不容外國勢力指手劃腳，指桑罵槐，教訓香港。魔警在當權者支持下，肆無忌憚，有疑似便衣警在商場持手槍，也有防暴警持可發射真槍實彈的步槍。
+
+
+{{< video src="https://web.archive.org/web/20220127021231if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F2399630716953760%2F&show_text=0&width=560" >}}
+
+
+克勞塞維茲《戰爭論》：「戰爭是政治的延續」，當中共及其傀儡無意用政治手段平息民憤，連豬、連狗自然繼續成為下一年香港的印記，抗爭活動將無日無之。   
+   
+ 觀乎理工事件、區選之後中共及其傀儡的反應，其實頗令人失望，甚至有變本加厲，加緊肅清的意味。   
+   
+ 港澳辦主任 [張曉明12 月11 日在《人民日報》撰文](https://web.archive.org/web/20220127021231/http://theory.people.com.cn/BIG5/n1/2019/1211/c40531-31500075.html) ，指「基本法解釋權的行使不應取決於某些人的主觀好惡，而應根據實際需要決定，該解釋就解釋」、「(香港尚未完成《基本法》第23 條立法，也未設立相應執行機構) 這也是近幾年來『港獨』等本土激進分離勢力的活動不斷加劇的主要原因之一。建立健全維護國家安全的法律制度和執行機制，強化執法力量，已成為擺在香港特別行政區政府和社會各界人士面前的突出問題和緊迫任務。」
+
+
+{{< video src="https://web.archive.org/web/20220127021231if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F2225432434224287%2F&show_text=0&width=560" >}}
+
+
+教育局局長楊潤雄12 月20 日召開記者會，稱至今有約八十名教師及教學助理被捕。他已向全港學校發信，要求將其中「涉及嚴重違法事件而被捕」的教師立即停職，批評「一小部分害群之馬」令教師受社會懷疑、令專業的教育工作者蒙羞，教育局必須採取更嚴厲行動「糾正錯誤，保護學生」。   
+   
+ 與此同時，星火同盟被指洗黑錢，七千萬元被凍結。如「書生百用」專頁指出，此舉旨在截斷被捕者的經濟支援，並借星火和被捕者的對話紀錄，實現大圍捕，殺絕和理非。筆者友人說：「結果在獨裁政權的眼中，你同情抗爭者也是錯。你不上街，不衝擊，奉公守法，只希望透過捐款，讓抗爭者不論上庭或是流亡，也可以稍為好過點（要記得就算一百幾十萬請大狀，也未必能脫罪），在政府眼中也已經是罪。」
+
+#### 當良知的吶喊被根絕，邪惡被滋長，香港基本上回天乏術。再繁榮昌盛又如何？香港已淪為一野蠻、不文明的大陸城市！
+
+<figure>
+<img src="https://web.archive.org/web/20220127021231im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/逃犯條例-香港人-香港人報仇-20191115041759_225e_large.jpg" alt="">
+</figure>
+
+#### 香港人講究實效、政治冷感，何解會出現「撕一貼百」、「和你......」的百折不撓？出現從「香港人加油」到「香港人反抗」再到「香港人報仇」的進化？背後決非純粹的政見之爭，而是捍衛屢被當權者踐踏的道德底線。有老人家被踢在地上、有抗爭者被槍擊拗斷手迫得跳樓身亡、有救護員被射盲右眼、有警謊犯罪反獲加薪......還可以如何容忍？善良、堅毅、團結等美德，今年最能夠在香港人身上體現，果真是「時窮節乃現」。
+
+新儒學大師徐復觀說：「人格尊嚴是解決政治問題的起點」、「人格的尊嚴，係來自人性的自覺」，除非中共及其傀儡大徹大悟，否則只會越來越多人同情「時代革命」，「止暴制亂」注定徒勞！
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220127021231im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

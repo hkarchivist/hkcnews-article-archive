@@ -1,0 +1,51 @@
+---
+title: "監控之都？大埔墟站密集式閉路電視直駁警總"
+date: "2019-08-26"
+last_updated: "2019-08-26 13:14:06"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "大埔墟站"
+  - "閉路電視"
+  - "警總"
+url: "https://web.archive.org/web/20210729094636/https://www.hkcnews.com/article/23109/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23117/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23109/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23117/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 監控之都？大埔墟站密集式閉路電視直駁警總
+
+【撰文：胡耀昌】   
+ ***新民主同盟新富區社區主任、大埔區議會交通及運輸委員會增選委員***   
+   
+ 描述極權主義的小說《1984》中的情節，原來已悄悄在香港發生。警方終於承認，鐵路警區控制中心可實時觀看不同港鐵站內的閉路電視，乘客在港鐵範圍內的一舉一動，原來一直在警署現場直播。究竟香港的警權是否真的無限大？
+
+<figure>
+<img src="https://web.archive.org/web/20210729094636im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/08/警總-大埔墟站-閉路電視-20190826124736_1843_large.jpg" alt="">
+<figcaption>圖片由筆者提供</figcaption>
+</figure>
+
+筆者早於8月初大埔區遊行前，發現港鐵大埔墟站密集式裝設閉路電視，單計售票大堂一個約一分鐘步程的範圍，居然設有19個鏡頭，監控程度仿如監獄！部分鏡頭更懷疑拍攝到新達廣場私人範圍，以及連儂隧道的範圍，令大埔一時間成為監控之都。   
+   
+ 同樣情況亦發生於沙田站，但港鐵至今並未回應多項質詢，包括閉路電視有否拍攝到火車站以外範圍、為何車站告示未有標明警方可監控實時影像、是否所有閉路電視均可清晰拍攝人臉等。根據個人資料私隱專員公署公布的 [《閉路電視監察措施指引》](bit.ly/2HipPYr) ，指明閉路電視的告示應載有操作系統的機構資料、及監察的特定目的；而除非用作刑事審訊等需要，否則不應清晰拍攝人臉；若本意只用作監測人流但攝錄容貌，便應該拆除。   
+   
+ 早於2018年1月，便曾有大陸民企踢爆港鐵曾測試4K超高清閉路電視保安系統，港鐵至今未有否認，亦未回應測試是否包括「人臉辨識」技術。東鐵綫連接羅湖口岸，適逢近日發生大陸公安懷疑得到香港閉路電視片段，從而對特定目標搜身的個案，令人質疑警方監控大埔墟站及沙田站的密集式閉路電視，是否與配合大陸公安追蹤出入羅湖邊境的香港人有關。   
+   
+ 而根據私隱專員2013年發表的 [《香港鐵路有限公司閉路電視系統視察報告》]( bit.ly/2ZcStVZ) （見4.16段)，若港鐵職員調整過鏡頭角度以監察鄰近地方，之後都應調較回預設位置，使鏡頭指向車站範圍，以免侵犯個人私隱，但港鐵現時的做法令公眾根本無法監察。   
+   
+ 筆者已向私隱專員公署正式投訴，要求調查港鐵的閉路電視有否違反指引，筆者亦促請政府研究將警方監控港鐵閉路電視的行為，列入《截取通訊及監察條例》的管轄範圍，循制度上約束警權的無限擴張。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729094636/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20210729094636im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

@@ -1,0 +1,88 @@
+---
+title: "違國安法李宇軒、陳梓華認罪　涉交144人制裁名單予美參議員　案情指黎智英是主腦"
+date: "2021-08-19"
+last_updated: "2021-08-20 00:12:29"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "勾結外國勢力"
+  - "李宇軒"
+  - "陳梓華"
+url: "https://web.archive.org/web/20220813025846/https://hkcnews.com/article/44584/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD144%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44584/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44587/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD144%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 違國安法李宇軒、陳梓華認罪　涉交144人制裁名單予美參議員　案情指黎智英是主腦
+
+29歲律師助理陳梓華、12港人之一「香港故事」成員李宇軒被控「串謀勾結外國或者境外勢力危害國家安全」，兩名被告今（19日）在高等法院承認控罪，為國安法第二宗定罪案件，案件押後至明年1月3日再訊。
+
+控方案情提到，「重光團隊」（Stand with Hong Kong，SWHK）為被告勾結外國勢力的平台，壹傳媒創辦人黎智英和其助理Mark Simon是背後主腦，陳梓華是中間人，「攬炒巴」劉祖廸、李宇軒則在前線執行指示。控方指，黎智英在2020年1月提出「支爆」計劃，透過國際游說促使外國制裁中港，其中李宇軒曾將144人建議制裁名單透過朱牧民轉交美國參議員，黎透過《蘋果日報》協助宣傳「重光團隊」，計劃至今年2月仍在進行。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/國安法-李宇軒-20210819222631_2c1f_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 兩被告今認罪　李宇軒：I would like to say sorry
+
+控方今日由署理副刑事檢控專員（特別職務）周天行代表。李宇軒和陳梓華分別由前律政司副刑事檢控專員、大律師沈仲平和大律師蕭國辰代表。陳梓華和李宇軒承認一項「串謀勾結外國或者境外勢力危害國家安全」罪。李宇軒在庭上同意承認事實後，鞠躬表示「I would like to say sorry（我想說對不起）」。至於兩人同被控一項「串謀協助罪犯」罪，以及李宇軒另被控一項「無牌管有彈藥」罪，據悉已存檔法庭。
+
+法庭保安今日明顯加強，其中犯人欄內有6名身穿戰術背心的懲教人員包圍二人。陳梓華戴上粗黑框眼鏡、身穿白色恤衫上庭，頭髮有點凌亂。李宇軒則穿著深灰色西裝出庭。二人開庭前不時望向旁聽席，全程表現冷靜。天主教香港教區榮休主教陳日君樞機到庭旁聽，多名外國領事館職員亦有到庭，當中包括瑞典駐港領事館副總領事雷博恩。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/周天行-721白衣人暴動案-20210223213910_19f8_large.jpg" alt="">
+<figcaption>署理副刑事檢控專員（特別職務）周天行。資料圖片</figcaption>
+</figure>
+
+### 「重光團隊」為平台　進行「支爆」四步曲
+
+根據案情，控方指「重光團隊」（Stand with Hong Kong，SWHK）於2019年8月成立，為被告勾結外國勢力的平台。壹傳媒創辦人黎智英與其助理Mark Simon是平台背後的主腦（masterminds）和財政支持，其中黎智英會親自審批以百萬元計的大額開支，Mark Simon則負責執行黎的指示，以及審批金額較少的開支。
+
+陳梓華的角色則是中間人，負責接收黎智英和Mark Simon的指示，轉達予李宇軒和劉祖廸。李宇軒和「攬炒巴」劉祖廸為「重光團隊」已公開的核心成員，負責在前線執行黎智英和Mark Simon的指示，指揮其他成員。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/黎智英-Mark%20Simon-20210819210606_296e_large.png" alt="">
+<figcaption>案情指壹傳媒創辦人黎智英與其助理Mark Simon是背後主腦。資料圖片</figcaption>
+</figure>
+
+### 計劃中各人有角色　劉祖廸為「精神領袖」
+
+案情透露，2020年1月黎智英在台灣與陳梓華、劉祖廸和另一女子開會，會上他提出「支爆」計劃的四步策略：第一步令外國得知香港發生何事；第二步爭取外國譴責港府；第三步將外國政要意見帶回香港；第四步透過與外國政要的顧問會面，影響外國對中國和香港的政策，從而令港府同意他們的訴求，甚至推翻中國政府。
+
+在此計劃中，陳梓華負責聯絡相關人士預備示威活動，李宇軒則繼續進行國際游說工作，建立國際網絡；劉祖廸的角色為「精神領袖」，推動「攬炒」理念。團隊利用一間在英屬維京群島註冊的公司和其在香港的銀行戶口，以及李宇軒的個人銀行戶口，處理計劃的資金。控方指出，由國安法實施直至2021年2月15日，他們仍在進行上述計劃。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/劉祖廸-倫敦-20210819211811_2acd_large.jpg" alt="">
+<figcaption>「攬炒巴」劉祖廸（右）被指是計劃的精神領袖。劉祖廸Facebook圖片</figcaption>
+</figure>
+
+### 《蘋果》助宣傳　鞏固國際線
+
+控方案情詳述「重光團隊」的策略，分為四大部分。第一部分指國際政治宣傳及眾籌，包括2019年6月、2019年7月、2019年8月的3次全球多國登報，共涉4次眾籌。案情摘要指，第一次登報後，黎智英經Mark Simon向陳梓華表示很滿意，會支持任何這些國際政治宣傳活動，包括資金、網絡及媒體的支持。黎智英亦讓「重光團隊」在《蘋果日報》頭版免費刊登、容許劉祖廸免費使用《蘋果日報》的圖片。
+
+第二部分指建立國際網絡，串通外國或外部分子（external elements）危害國家安全。案情摘要形容，在黎智英、Mark Simon的指示下，陳梓華、李宇軒、劉祖廸及其他人，與美國、英國、日本政客接洽及維持一個鞏固的網絡。案情摘要續描述每個國家線（line）的情況，例如美國線有Mark Simon安排李宇軒與參議員見面、日本線則李宇軒曾向眾議院議員提供IPAC去年7月3日的會議紀錄，建議日本取消與香港的司法互助協議。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/美國國會-20200305121631_2621_large.png" alt="">
+<figcaption>Mark Simon在美國安排李宇軒與國會議員會面。資料圖片</figcaption>
+</figure>
+
+第三部分關於管理「重光團隊」方面，案情摘要指2019年8月建立的「重光團隊」，目的在於游說外國制裁中國及香港特區。李宇軒根據黎智英、Mark Simon經陳梓華傳達的訊息，指示其他「重光團隊」成員。李宇軒並負責「重光團隊」的國際游說工作，控方續舉例說，他作為「重光團隊」的成員與外國政客建立網絡，針對中國及香港特區，游說外國實施制裁、投入敵對活動。
+
+從李宇軒與其他「重光團隊」成員的Telegram對話紀錄、電子用品的電腦紀錄，李宇軒是「重光團隊」已公開的核心成員，建立「重光團隊」的架構、批出報銷款項；負責保管詳細的財政紀錄；可以編輯「重光團隊」的網頁；為「重光團隊」在英國及美國註冊商標。
+
+第四部分則是刊登文章、新聞稿和制裁報告。案情提到，警方在李宇軒家中搜出一份列有144名中港官員的建議制裁名單，指他們侵害人權和民主。李宇軒將最終版本上載至「重光團隊」網頁，又將名單交給佔中發起人朱耀明牧師的兒子朱牧民，並請他轉交美國參議員，促請他們制裁名單上的中港官員。控方又指，李宇軒上載多篇呼籲外國制裁中港的文章至「重光團隊」網頁。
+
+<figure>
+<img src="https://web.archive.org/web/20220813025846im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/重光團隊-20210819211828_1608_large.png" alt="">
+<figcaption>「重光團隊」網頁</figcaption>
+</figure>
+
+### 導致美國制裁中港　9國終止逃犯引渡
+
+控方在案情指出，「重光團隊」的計劃導致美國通過《香港自治法案》（Hong Kong Autonomy Act）和《香港人民自由和選擇法案》（Hong Kong People's Freedom and Choice Act），令美國先後在2020年8月至2021年1月期間制裁35名中港官員，又終止與本港多項經貿和引渡協定。控方又指，計劃令英國、澳洲等9個國家終止與香港引渡逃犯的協議。
+
+陳梓華、李宇軒被控一項「串謀勾結外國或者境外勢力危害國家安全」罪，指兩人於去年7月至今年2月，與壹傳媒創辦人黎智英、黎助理Mark Simon、劉祖廸及其他人一同串謀尋求外國或境外機構、組織、人員，向特區及中國政府實施制裁、封鎖或採其他敵對行動等。
+
+【案件編號：HCCC 147/2021】

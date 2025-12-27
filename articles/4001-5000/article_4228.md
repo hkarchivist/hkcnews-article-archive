@@ -1,0 +1,51 @@
+---
+title: "香港警隊變「真理部」 粗暴干預學校教育"
+date: "2017-05-28"
+last_updated: "2017-05-28 19:58:00"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "七警案"
+  - "七警"
+  - "7警"
+  - "警察集會"
+url: "https://web.archive.org/web/20220120192915/https://www.hkcnews.com/article/4228/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4231/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/4228/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4231/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港警隊變「真理部」 粗暴干預學校教育
+
+【撰文：劉貳龍】   
+ ***作者為前學民思潮發言人***
+
+[聖芳濟書院一份中四通識科試卷](https://web.archive.org/web/20220120192915/https://news.mingpao.com/pns/dailynews/web_tc/article/20170527/s00002/1495821268579) ，內容涉及今年初「撐七警」的警察集會，包括「警察的集會如何違反香港法治精神？」「法官的判決如何維護香港的法治精神？」等題目，以及有「3.3萬名警員出席未有申請《不反對通知書》的『會員特別大會』聲援七警翻案。」等資料字眼，惹來警察員佐級協會主席陳祖光，威嚇要去信教育局追究後，迫使學校隨即道歉。
+
+<figure>
+<img src="https://web.archive.org/web/20220120192915im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/警察集會-七警案-香港警务处-20170222212938_15f3_large.jpg" alt="">
+<figcaption>不滿七警被定罪，休班警察今年2月22日大集會聲援，據報有3.3萬人出席。何君健攝</figcaption>
+</figure>
+
+陳祖光指通識科要無取向或開放性討論。不過其實很多社會議題，譬如操縱賣淫、販賣兒童、奴隸制度、納粹屠殺等議題，只要有點兒常識和良知，事情的是非黑白分明。再者，七警濫用私刑，人證物證俱在，傳媒全程影像記錄，法官審視證據後，裁定被告罪成。若然強迫學生美其名多角度思考、開放式討論，壞事當好事地論述，獎門人式各打五十大板，只會令他們沾染語言偽術、文過飾非、顛倒邏輯的惡習，成為「六八九」的繼承者。況且涉及大事大非而又真相確鑿的情況下，我們亦不應盲目追求「開放性討論」。舉例說，難道你會對猶太人討論納粹毒氣屠殺的好處嗎？恐怕那時不單以色列領事館發聲明關注，指其「言論不恰當及令人遺撼」，而是會觸發一場國際外交風波。
+
+況且試卷問法官於七警案判決，如何維護香港法治精神？執法者知法犯法，濫用私刑遭法律制裁，常說嚴厲執法和依法辦事的警隊，為何反對試卷讓學生理解法官依法判案的價值？還聲稱3.3萬警察沒申請不反對通知書，於「私人地方」是不違法呢？一個多家傳媒採訪直播，翌日登上各大報章頭條，人潮逼爆附近馬路，令三條界限街和彌敦道堵塞的公職人員集會，究竟有多「私人」？何況《公安條列》規定舉辦超過五百人的私人活動，須事前申請不反對通知書，明顯該活動超越人數規定，屬試題所言的違反法治精神。
+
+還有陳祖光堅稱撐七警集會是「會員特別大會」，只是討論業務性質的內容。但試問哪一間機構討論業務的會員大會，會容許員工扶老攜幼出席，萬人示範「問候」他人娘親的壯觀場面出現呢？而且根據《警察通例》第六章「行為及紀律」指出，除須喬裝打扮以執行職務外，警務人員須時刻注意行為舉止和衣著儀表，以維護警隊的聲譽。試問萬名休班警集體爆粗，會否破壞其「正大光明」的形象，令警隊聲譽受損？
+
+此外《警察通例》第六章明言，任何「可能」使市民誤會會影響其公正執行職務的活動，例如非為執行職務而公開發表政治言論（包括向傳播媒介發言），警員也不應參與。故此撐七警集會當晚傳媒鏡頭之前，警員模仿示威者「問候」娘親的仇恨言論，自認是被迫害的猶太人之悲情論調，足以「可能」令市民誤會他們的激動情緒，會影響其公正執行關於公眾示威之職務。當日撐七警集會如何附合試題所言的違反法治精神，大家有目共賭。即使現在警隊向學校施壓，但事實也不會因此改變。
+
+<figure>
+<img src="https://web.archive.org/web/20220120192915im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/陳祖光-七警案-警察集會-20170222212816_1f4d_large.jpg" alt="">
+<figcaption>警察員佐級協會主席陳祖光在警察集會上發言。何君健攝</figcaption>
+</figure>
+
+再者退一步按陳祖光的邏輯推論，警隊甚至應支持律政司撤銷佔中三子控罪，以及青政梁遊復職議員。若然佔中三子辯稱，只是在「私人」馬路上，進行「人數無法預測」的公民抗命社會實驗，附合戴耀廷測試公民抗命能否應用於香港，陳健民研究社會運動對香港影響，朱耀明嘗試能否效法馬丁路德金，三者分別身為法律學者、社會學者、教會牧師的「業務性質」。青政梁遊於議員就職宣誓「辱華」，也只是爭取其港獨派選民選票的「業務性質」，試問何罪之有？陳祖光又會否接受其解釋，替他們討回公道呢？
+
+從傘運後警權膨脹迅速，毫不受監督和制約。監警會沒有執法權力淪為無牙老虎，換屆後更成為了「梁粉俱樂部」。警隊亦提出增購水炮車、胡椒球槍等武器、不停擴大編制方便打壓示威，在建制派把持議會下其要求暢通無阻，毫無權力互相制衡的機制，市民示威安全不受保障。即使七警被法庭定罪，濫用私刑卻受英雄式待遇，獲警務處長盧偉聰批準警隊眾籌千萬「安家費」，變相鼓勵警察往後處理示威時，無顧慮地變本加厲地違法。現在香港警隊還要兼任 [「真理部」](https://web.archive.org/web/20220120192915/https://zh.wikipedia.org/wiki/真理部) ，政治審查通識試卷，其實《一九八四》的極權世界早已降臨香港，「Big Brother is Watching You」！
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220120192915im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

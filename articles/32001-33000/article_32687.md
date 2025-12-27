@@ -1,0 +1,55 @@
+---
+title: "【真空期立23條？】謝偉俊：無時間精力立法 葉劉：梗係應該推，23條唔係洪水猛獸"
+date: "2020-08-10"
+last_updated: "2020-08-10 06:44:09"
+author: "實習記者鄭啟智"
+category: "眾聞"
+tags:
+  - "葉劉淑儀"
+  - "葉劉"
+  - "Regina IP"
+  - "葉太"
+  - "謝偉俊"
+  - "Paul TSE"
+  - "港版國安法"
+url: "https://web.archive.org/web/20210916190941/https://www.hkcnews.com/article/32687/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32764/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32687/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32764/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【真空期立23條？】謝偉俊：無時間精力立法 葉劉：梗係應該推，23條唔係洪水猛獸
+
+立法會選舉押後一年舉行，未來一年立法會應否推動基本法第23條立法，建制派內並未有共識。立法會議員謝偉俊認為國安法實施後，23條的急切性稍稍放緩，未來一年立法會應該優先處理抗疫與民生問題，根本沒有時間和精力為23條立法。他又指，現時政府民望低，不應再推動具爭議性的方案。立法會議員葉劉淑儀則表示，未來一年立法會應該推動23條立法，直言這是香港的憲制責任，23條也不是「洪水猛獸」，呼籲市民不要懼怕。
+
+<figure>
+<img src="https://web.archive.org/web/20210916190941im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/押後選舉-葉劉-謝偉俊-20200807123122_639d_large.png" alt="">
+</figure>
+
+立法會議員謝偉俊認為，未來一年立法會的主要目的是抗疫，根本沒有足夠時間處理23條立法。他稱一年的時間其實十分短暫，香港的立法周期較長，不能像人大常委般快速通過港區國安法，處理23條立法至少要花半年。謝偉俊預計，會期一開始需要先處理DQ問題，然後一眾議員到5至6月已經要專注選舉，實際能審議法案的時間有限。因此他認為應該先優先處理抗疫、經濟和民生的議案，不可能再花時間和精神處理23條或者其他有重大爭議的法案，例如修改議事規則。
+
+謝偉俊指出，現時政府的支持度較低，不應該再推動具爭議性的法案，反而應該專注抗疫與民生問題，挽回民望。他又認為，由於未來一年的立法會任期是額外增加的，為了顧及市民的觀感，應盡量避免處理有爭議的政治問題，加上現時國安法已經實施，23條立法的急切性稍稍放緩，未來一年應專注抗疫。他又指，建制派內部暫時未有討論未來一年應否推動23條立法。
+
+<figure>
+<img src="https://web.archive.org/web/20210916190941im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/謝偉俊-20190110230646_4c06_large.jpg" alt="">
+<figcaption>立法會議員謝偉俊認為，未來一年沒有足夠的時間處理23條立法。資料圖片</figcaption>
+</figure>
+
+2003年負責推動23條立法的新民黨立法會議員葉劉淑儀則認為，未來一年應該推動23條立法。「梗係應該推（23條）啦！國安條例都唔係洪水猛獸，香港人唔需要咁驚。」她指出，23條立法是香港的憲制責任，國安法第7條中亦清楚列明，香港需要盡快為23條立法，所以不論立法會的任期是一年還是四年，都有責任處理。
+
+葉劉淑儀相信，只有政府解說足夠，說服市民支持，就不會引起社會動盪。她強調政府不應因為害怕引起爭議，而放棄憲制責任，又反問不少民生議題如土地問題和退休保障都有爭議，「係咪有爭議就唔做？」至於未來一年會否因為處理23條立法，而影響其他抗疫和民生議案，她則表示留待屆時才處理。她亦表示，暫時未見建制派有討論應否處理23條立法。
+
+<figure>
+<img src="https://web.archive.org/web/20210916190941im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/緊急法-葉劉淑儀-口罩短缺-20200212140352_1a24_large.jpg" alt="">
+<figcaption>2003年負責推動23條立法的立法會議員葉劉淑儀認為，23條不是「洪水猛獸」，市民不需懼怕。資料圖片</figcaption>
+</figure>
+
+立法會議員何君堯日前在記者會上亦表示，未來一年立法會應該把握時間，通過23條立法。他指出過渡時期的立法會，等同正常的立法會，其功能與職能無異，有權處理23條立法。對於民主派可能會參與未來一年的立法會反對23條，他直言國安法已列明香港需盡快處理23條立法，而國安法具有凌駕性，任何反對23條的行為，都會違反國安法，因此民主派的存在不會阻撓立法。他續說，23條立法只需全體議員以簡單多數通過，現時建制派佔立法會過半數議席，所以民主派不可能阻撓他們通過23條立法的決心。
+
+全國人大代表葉國謙日前接受一個電台節目訪問時表示，23條立法和修改議事規則等具爭議性的議題，在未來一年「絕對唔應該做」。他指出未來一年的立法會只是一個「看守議會」，屬過渡性質，其權力來自人大常委會，並沒有選民授權。他強調這個「看守議會」只有一年時間，僅為了維持在立法會在真空期期間的正常運作，讓政府能夠如常工作，而非趁機處理23條立法。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210916190941/https://www.hkcnews.com/aboutus/#subscribe)

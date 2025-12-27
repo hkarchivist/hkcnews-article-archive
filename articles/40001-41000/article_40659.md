@@ -1,0 +1,52 @@
+---
+title: "公交篇（三）：公交盈利的輝煌日子已是明日黃花？"
+date: "2021-04-26"
+last_updated: "2021-04-26 14:44:45"
+author: "熊永達"
+category: "眾說"
+tags:
+  - "公共交通"
+  - "公共交通費用補貼計劃"
+url: "https://web.archive.org/web/20210925003206/https://www.hkcnews.com/article/40659/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40659/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 公交篇（三）：公交盈利的輝煌日子已是明日黃花？
+
+香港的公交服務一直在全球散發輝煌：營辦商賺錢，政府不但沒有補貼分毫，還可收股息，盈利稅，票價在全球主要城市中，相對低；乘客普遍滿意，有投訴，由營運商處理。政府只做監管角色，簡直活在天堂一樣，對全球政府都有無比吸引力。無論國內國外，香港公交服務是典範，經常有人來取經。香港進入了特區年代，這種天堂一樣的狀態漸漸發生變化，沒有了全港策略發展規劃及沒有了總體運輪規劃，運輸需求沒有了方向，更沒有了前景，除了鐵路客量有增無減外，巴士客量維持平穏、小巴、電車、的士和渡輪客量拾級而下 [（運輸署- 交通運輸資料月報）](https://web.archive.org/web/20210925003206/https://www.td.gov.hk/tc/transport_in_hong_kong/transport_figures/monthly_traffic_and_transport_digest/index.html) ，鐵路以外的營運商年年賺錢的情景不再，有些年更蝕大錢，於是不停申請加價，畀唔起錢的乘客越來越多，怨聲越來越大。能否重回往日輝煌？你眼望我眼，今時今日，營辦商只求政府打救！民眾只求政府加高交通津貼，減輕負擔。香港公交是否正在走下坡？當政府聲稱建設更宜居城市，公交理應更受歡迎，更符合民眾的期望，現在似乎背道而馳，有計扭轉乾坤嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20210925003206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/交通-巴士-20180209213931_1359_large.jpg" alt="">
+<figcaption>資料照片</figcaption>
+</figure>
+
+公交盈利的確是世上少有，有盈利才可撥出資源，購買更舒適，更環保運輸工具，安裝更安全設備，不斷提升服務。開埠初期，無論火車、巴士、小巴、的士、以及渡輪在大熱天時，加上潮濕，大汗淋漓，都要擠在一起，搭車船都好像經歷桑拿浴，遑論坐得舒舒服服。二戰後，尤其是內戰結束，大批人從大陸湧入香港，港府開展建屋計劃，新市鎮陸續從觀塘、荃灣、一直擴展至沙田、大埔、粉嶺、天水圍、東涌等等。高密度的發展是公共發展的溫床。港府冇錢都不打緊，錢在民間，民營企業睇準發展的勢頭，應運而生。加上港府推動「大市場、小政府」的總體發展策略，讓民營企業有利可圖（即保證利潤達到可觀水平，達不到水平就可加價），港府不用一分一毫，吸引了民間資本，大舉投資，提供高質素、有效率、而平價的公交服務。簡言之，公交盈利最重要的因素是客量不斷增加，營運商可以加票價，保證利潤水平。有可觀的盈利，港府要求營辦裝冷氣、安全帶、防撞設備、監督司機「恰眼瞓、突然休克」、以致更換更環保的運輸工具等，以提升服務，都冇拗撬，十分爽快，話做就做。
+
+公交盈利的元素在特區年代就慢慢發生根本的變化，人口雖然有增長，但都居住在原有的地方，什麼東九龍、西九龍、洪水橋、古洞、新界北、新界西北等等新發展區，遙遙無期，正是雷聲大、雨點小、議而不決、決而不行、行而不果。公交營辦商申請加價，要等特首找到合適的政治時機，才可發辦。而申請加價的幅度，再難隨心所欲，必會削減。政府要求公交營辦商提升服務，進一步加裝智能系統，自動駕駛配件防止碰撞，站頭碼頭安裝實時到站或泊岸訊息，以至更換電動車和電船，每有拗撬，再不能爽快，只會拖拖拉拉，港府力推的智慧出行和宜居城巿可能是海巿蜃樓。
+
+公交盈利不再，營辦商加價不隨心所欲，而提出加價則越是頻密，民眾叫苦連天，每提加價，無論政府、營辦商、議員、民眾都經歷一次又一次折騰，社會進入了螺旋式的死胡同。為緩減這痛苦，政府近年為營辦商和民眾提供各式各樣的補貼。2013年政府為 [離島渡輪提供史上最複雜和鎖碎的補貼](https://web.archive.org/web/20210925003206/https://www.legco.gov.hk/yr16-17/chinese/panels/tp/papers/tp20161118cb4-108-5-c.pdf) ，包括免驗船費、船隻牌照費、保養費、保險費、燃油稅、碼頭電費、水費、清潔費等。更為碼頭建樓層，讓營運商可租出店舖，增加收入，補貼營運，而天星小輪的租務收益最為同行艷羨。為補貼專營巴士，2019年政府修例， [豁免政府隧道及道路收費](https://web.archive.org/web/20210925003206/https://www.legco.gov.hk/yr18-19/chinese/subleg/brief/2018ln237-239_brf.pdf) 。2017年 [推出公交補貼](https://web.archive.org/web/20210925003206/https://www.legco.gov.hk/yr19-20/chinese/panels/tp/papers/tp20200117cb4-245-5-c.pdf) ，讓民眾每月公交費超出400元的，超額之數由政府補貼25%，上限是300元，涉及每年23億元。推出幾年間，隨著公交加價，補貼幅度和上限不斷調升。補貼受惠的是經常出行的民眾，讓民眾乘搭公交需求不減，營運商包括鐵路、巴士、小巴、電車、小輪因而受惠，首期只包括專營公交，再而擴展至非專營巴士和紅色小巴。
+
+<figure>
+<img src="https://web.archive.org/web/20210925003206im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/10/交通-20171011162513_1f21_large.jpg" alt="">
+<figcaption>資料照片</figcaption>
+</figure>
+
+公交盈利不再，為維持服務，政府補貼沒完沒了，如同吸毒，只會越踩越深，營辦商和民眾都會要求加碼又加碼。政府雖則有錢，但每年港鐵、九巴、新巴城巴、小巴、電車、渡輪、的士輪流提加價，各方用盡腦力甚至暴力，逼迫政府加補貼，那種折騰，社會是否可以承擔？民眾期望政府急巿民所急，思考改變公交的發展策略，走出這周期性的折騰，讓公交可持續發展及提升服務。事實上，公交盈利最關鍵是掌握政府的規劃，了解客源，決定可盈利的投資。如今，沒有人比政府更了解規劃及落實時序，營運商無能力承擔因資訊不足的投資風險，只能是政府自行承擔。明乎此，為維持及提升公交服務的資本投資，最有效和合理的做法是政府出錢，營運商出力。換句話說，無論車船的購置，今後由政府負責，要電動環保的，要安全的、舒適的、美觀的、…，必然得心應手，營運商不用拖拖拉拉，民眾可適時享用一流的服務，皆大歡喜！
+
+公交盈利會再現，以營運商的智慧，公交可再現輝煌。沒有了固定資產的負擔，只會賺得盆滿缽滿，只有減價壓力。政府可收回全部補貼，不用與營運商糾纏盤點數據，計算史上最複雜的補貼，省回許多人虛耗的精力和時間，省回行政費，往後只需補貼貧窮一族，利落很多。這近乎幻想的美境，能否出現？視乎政府一念之間，政府只要改變思維，不在公交盈利，把從港鐵和九鐵（九鐵擁有東鐵和西鐵的資產，每年向港鐵收租）的收益投資其他公交，政府還是可以不出一毫而利天下！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925003206/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 熊永達](https://web.archive.org/web/20210925003206im_/https://www.hkcnews.com/uploads/avatars/d3b83384-18fb-415f-8b84-cccde20ff8a1.png?1561066029)
+
+**博客 | 熊永達**
+
+【熊永達・發展為民】「民為重、君為輕」，乃施政之本，以確保長治久安。近代的詞語有「為人民服務」、「持續社會發展」，都是強調聽納民意，施政為民。民是全民，是現在和未來在這地球生活的人民，絕不是部份有特權的人。本欄討論發展能否以民為本。欄主熊永達在大學任教三十多年，又是資深交通運輸和環保政策評論員，積極參與官方及非官方組織，為香港的發展出謀獻策。

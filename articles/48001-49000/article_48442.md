@@ -1,0 +1,46 @@
+---
+title: "表明拒感化及社服令　Lunch哥認違限聚令還柙候判　官批身為學生不讀書去搞政治"
+date: "2021-12-02"
+last_updated: "2021-12-02 12:44:28"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "限聚令"
+  - "Lunch哥"
+  - "599G"
+url: "https://web.archive.org/web/20220117153437/https://hkcnews.com/article/48442/lunch%EF%BF%BD%EF%BF%BD%EF%BF%BD-599g-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48447/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-lunch%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48442/lunch%EF%BF%BD%EF%BF%BD%EF%BF%BD-599g-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48447/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-lunch%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 表明拒感化及社服令　Lunch哥認違限聚令還柙候判　官批身為學生不讀書去搞政治
+
+人稱「Lunch哥」的19歲學生李國永，涉多次在中環國際金融中心（IFC）參與「和你lunch」示威，屢遭票控違反限聚令。他早前承認去年4月觸犯法例，惟他向感化官表明不願意履行感化令及社會服務令。裁判官莫子聰今(2日)表示，罰款並非本案惟一適合的刑罰，即然被告不願履行感化令及社服令，法庭唯有積極考慮其他判刑，指本案嚴重之處是李身為學生，但沒有好好讀書，反而去搞政治，並置防疫於不顧，無視禁令。案件押後至本月16日再判，等候索取懲教院所等報告，期間莫官下令將李還柙。
+
+李國永被帶離法庭前，在庭上舉起「五一手勢」，並高呼「政治檢控可恥」、「五大訴求 缺一不可」、「一息尚存　抗爭到底」。
+
+<figure>
+<img src="https://web.archive.org/web/20220117153437im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/Lunch哥-20200830203850_952d_large.jpg" alt="">
+<figcaption>「Lunch哥」李國永</figcaption>
+</figure>
+
+法庭早前為李索取感化令及社會服務令報告，惟李向感化官表明不願意履行兩種命令。辯方冀法庭考慮罰款，李的家人承諾會確保李出席所有輔導，包括見社工及精神科輔導。
+
+### 官：身為學生不好好讀書　反而去搞政治
+
+莫官表明，罰款並非限聚令傳票的唯一刑罰，根據法例最高可判處監禁半年。
+
+莫官認為，本案的嚴重之處是李身為學生，但沒有好好讀書，反而去搞政治，並置防疫於不顧，無視禁令，參與聚集。根據李同意的案情，事發時十多人在商場聚集，大大增加了疫情傳播的風險。既然李不願意接受感化令及社會服務令，法庭唯有積極考慮其他刑罰。
+
+### 考慮勞教、教導所等刑罰
+
+案件再押後至本月16日在東區法判刑，期間索取進一步的感化令及社會服務令報告，另索勞教中心、更生中心及教導所報告。
+
+本案案情指，2020年4月28日有人在中環IFC L1層發起「和你sing」活動，引來超過20人聚集，有人呼叫口號及展示政治標語。其中6人在警員到場後未有離去，因而遭票控。
+
+### 曾有罰款1.5萬元或緩刑
+
+翻查資料，前區議員許智峯、梁晃維等4人，去年8月到中山紀念公園了解體育館改裝為「火眼實驗室」的情況時遭票控，認罪後判罰7千元。前荃灣區議員林錫添則因去年 10 月，在泰國駐港總領事館聲援泰國示威時遭票控，認罪判罰款1.5萬元，為同類案金額最高。
+
+非罰款刑罰方面，前屯門區議員甄霈霖去年7月，到兆麟苑監察管理公司處理屋苑首宗新型肺炎確診個案，被指違限聚令。他經審訊後罪成，被判80小時社會服務令。另外，梁國雄、李卓人等工黨及社民連成員，則因去年勞動節示威而遭票控，受審後罪成，被判囚 14 天，緩刑年半。
+
+案件編號：ESFS 27/2020

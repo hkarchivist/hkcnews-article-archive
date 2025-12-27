@@ -1,0 +1,60 @@
+---
+title: "全民檢測再延三日　至今127萬樣本找到19宗個案　三成人檢測前已發病"
+date: "2020-09-09"
+last_updated: "2020-09-09 23:03:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "確診者"
+  - "第三波疫情爆發"
+  - "全民檢測"
+url: "https://web.archive.org/web/20210726235430/https://www.hkcnews.com/article/33739/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33740/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD127%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD19%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33739/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33740/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD127%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD19%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 全民檢測再延三日　至今127萬樣本找到19宗個案　三成人檢測前已發病
+
+普及社區檢測計劃（全民檢測）已進行9日，截至今晚（9日），約126.8萬個已檢測樣本當中，累計找到19宗新確診個案，確診比率雖低（0.0015%），但政府今日宣布延長計劃3天至9月14日。官員一再催促市民參與全民檢測，形容是為了切斷隱形傳播鏈或找出無徵狀個案，但眾新聞整理了這19個經全民檢測找到的確診個案，發現當中超過一半都有病徵，至少6人在檢測前已發病，甚至求醫。衛生防護中心多番呼籲有病徵者不要參與全民檢測、有其他渠道免費化驗樣本，似乎不太湊效，而私家醫生為何未有向求診患者派發深喉唾液樣本瓶，讓患者接受免費病毒檢測，值得深究。
+
+不過，全民檢測耗數千本港醫護之力、幾百個內地檢測支援人員來港、以及未清楚的開支，的確找到了8宗無病徵個案，患者幾乎全部是家庭主婦或非在職人士，只有1位是菲傭。而且，19宗個案裡面，有13宗被界定為源頭不明的本地個案。
+
+另外，全民檢測開展至今，衛生署公開了一宗疑似「假陽性」個案。一名44歲男子在全民檢測結果呈陽性，但採集到的樣本量不足以讓衛生署覆檢。直到患者送院後，醫院為他驗鼻咽拭子、深喉唾液以及血清抗體測試，結果均為陰性，隨即出院。在全民檢測開始前，政府官員包括林鄭都積極推廣計劃，被問及「假陽性」問題時，均強調若市民檢測結果呈陽性，須經由衞生署公共衞生化驗服務處進行覆檢，若結果仍為陽性，才會列作確診個案。
+
+<figure>
+<img src="https://web.archive.org/web/20210726235430im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/第三波疫情爆發-確診者-全民檢測-20200909195409_1028_large.png" alt="">
+<figcaption>19個經全民檢測找到的確診個案。眾新聞製圖</figcaption>
+</figure>
+
+全民檢測進行了九天，根據政府最新公布數字，今日有11.3萬人到檢測中心採樣，累計共142.3萬人已採樣。但截至昨日，重複採樣的人數有2353人，政府沒有公布今日重複採樣的人數。
+
+截至今晚8時，有126.8萬個樣本已經完成病毒檢測，成為新確診個案的累計有19宗。
+
+政府今日並宣布，全民檢測延期3天，將於9月14日（下周一）結束。目前運作中的檢測中心有122間，本周六（12日）起大減至57個，負責統籌全民檢測的公務員事務局局長聶德權今午解釋，是檢視了現時122個社區檢測中心的使用數據，以及地區需要，決定只留下57間中心。聶德權並催促市民參與全民檢測，「從公共衞生和防控疫情角度，市民絕對有責任去參與檢測。」
+
+根據政府發布的57間檢測中心列表，全港18區都仍會有檢測中心繼續運作，主要是體育館、官立中小學和社區會堂。被繼續用作檢測中心的學校包括皇仁書院、龍翔官立中學、北角官立小學（英皇道）、軒尼詩道官立小學等11間學校。而教育局日前宣布，學校最快可於9月16日讓學生回校進行公開試前補課、迎新輔導等活動，但人數上限是全校學生的六分之一。
+
+<figure>
+<img src="https://web.archive.org/web/20210726235430im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/全民檢測-武漢肺炎-20200909223208_e9ae_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+19宗經全民檢測找到的確診個案，患者年齡介乎22至92歲，多數是60歲或以上，男女比例大約是四六比。根據報導，患者職業包括冷氣水電工、家傭、配藥員等，但更多是非在職人士（4人）或家庭主婦（4人）。
+
+19人當中，至少6名患者在參與全民檢測前出現病徵，例如住尖沙咀的一對年長夫婦以及其同住的外傭，三人於8月22至29日期間出現喉嚨痛、咳嗽病徵，夫婦更4度求醫同一個私家醫生，但當時被判斷為非武漢肺炎病徵，沒有獲發深喉唾液樣本瓶。三人於9月2日前往官涌體育館檢測中心採樣，其後均確診。
+
+事實上，政府早於6月推出私家醫生檢測計劃，食物及衛生局長陳肇始6月6日的網誌寫道：「衞生署已為全港私家醫生提供免費的病毒檢測服務，市民如出現病徵，可與私家醫生商討是否有需要提交深喉唾液樣本作化驗。需要接受檢測的市民可以把深喉唾液樣本交回衞生署診所、醫管局診所或透過上門收取樣本速遞服務交回樣本。由6月4日起，可交回樣本的醫管局診所已由18間增加至22間，詳情可瀏覽衞生署衞生防護中心網頁。」
+
+根據衛生防護中心的統計，截至昨日（8日）累計有654宗個案經由「在私家醫院診斷 / 私家醫院及診所加強監測計劃」發現，成效不俗，佔整體4800多個案的13%。
+
+<figure>
+<img src="https://web.archive.org/web/20210726235430im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/09/武漢肺炎-全民檢測-20200909223240_861a_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726235430/https://www.hkcnews.com/aboutus/#subscribe)

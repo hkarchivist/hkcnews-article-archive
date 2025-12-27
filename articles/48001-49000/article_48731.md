@@ -1,0 +1,46 @@
+---
+title: "西九龍法院大樓下周六實施全面安檢　進入要經金屬探測及X光機檢查"
+date: "2021-12-08"
+last_updated: "2021-12-08 16:58:27"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "司法機構"
+  - "恐嚇信"
+  - "西九龍裁判法院"
+url: "https://web.archive.org/web/20220518033454/https://hkcnews.com/article/48731/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDx%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48731/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48755/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDx%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 西九龍法院大樓下周六實施全面安檢　進入要經金屬探測及X光機檢查
+
+司法機構公布由下周六（18日）開始，經常審理社運案件的西九龍裁判法院大樓會全面實施保安檢查。所有法庭使用者進入大樓前須通過安檢，包括接受金屬探測器檢查及X光掃瞄機檢查。司法機構指新措施旨在確保法官、司法機構人員及法庭使用者的安全，防止有人攜帶武器、刀、剪刀、水、飲品等違禁物進入法院。
+
+<figure>
+<img src="https://web.archive.org/web/20220518033454im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/司法機構-西九龍裁判法院-20210819195950_1ab1_large.jpg" alt="">
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220518033454im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/西九龍裁判法院-20211208151042_ddf5_large.jpg" alt="">
+</figure>
+
+### 受管制區內提供飲用水　鼓勵自備水杯
+
+司法機構表示，安檢區設於大樓一樓中庭，法庭使用者進入大樓一至十一樓的法庭、登記處、會計部、資訊中心、辦公室範圍等受管制區域前，均須先接受保安檢查。司法機構會設置專用通道，讓經常進出法院大樓的使用者使用，主要包括律師代表和傳媒。
+
+基於保安考慮，法庭使用者不得攜帶水或飲品進入西九龍法院大樓的受管制區域。司法機構將在受管制區域內提供飲用水，並鼓勵法庭使用者自備水杯。
+
+<figure>
+<img src="https://web.archive.org/web/20220518033454im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/西九龍裁判法院-張潔宜-20211116144035_2f59_large.jpg" alt="">
+<figcaption>西九龍法院上月收到附有白色粉末的可疑信件，警方爆炸品處理課人員接報到場檢查。</figcaption>
+</figure>
+
+### 西九法院上月收可疑粉末信件　11人須疏散
+
+現時國安法案件通常在西九龍法院處理，而區域法院暴動案件亦不時借用西九龍法院審理。早前有部份國安法案件如47人初選案提堂，亦設有保安檢查，但只檢查進入聆訊主法庭的人士，而非覆蓋整座大樓。
+
+近月屢次傳出有法官及裁判官收到恐嚇訊息。上月11日，西九龍法院收到附有白色粉末的可疑信件，警方檢查後相信粉末沒危險成份，據了解信件是寄予區域法院暫委法官張潔宜。事件中有12人需要疏散，沒人受傷。
+
+同月24日，長沙灣郵局職員報案指收到一封由台灣寄本港的可疑信件，警方檢查後發現信內藏有懷疑肉碎，據知信件亦是寄往西九龍法院大樓。
+
+本港各法院大樓中，現時僅高等法院和終審法院實施全面保安檢查，而位於灣仔區域法院的家事法庭樓層，及西九龍法院的小額錢債審裁處樓層，亦設有安檢。

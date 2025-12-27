@@ -1,0 +1,68 @@
+---
+title: "是精神分裂？還是邪靈作怪？由實習同學的個案說起"
+date: "2021-02-10"
+last_updated: "2021-02-10 17:35:20"
+author: "壹元坊"
+category: "眾說"
+tags:
+  - "精神病患"
+  - "精神分裂症"
+url: "https://web.archive.org/web/20210727224047/https://www.hkcnews.com/article/38067/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38068/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38067/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38068/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 是精神分裂？還是邪靈作怪？由實習同學的個案說起
+
+一位實習學生遇上了被診斷患上思覺失調的案主，對方不認為自己有精神病，認為之前遇到的不適感覺（按：肚部被劇烈撞擊並感到痛楚）並不是幻覺，而是被仇家落降頭。
+
+可以想像得到，案主並不是太相信藥物，雖然她有接受針藥注射，但只是難以抗拒醫生的指示；在其內心深處，並不相信是針藥令她情況改善。反之，她曾多次請師傅做法事，平日又會聽佛歌，所做的一切只求心安理得，但求有平靜的心情。
+
+在追求科學實證及醫療主導的今天，不少精神科社工遇上上述情況，都會認定案主迷信，擔心他們愈踩愈深，期望他們盡快重回醫學正軌，不再訴諸牛鬼蛇神解決問題。
+
+<figure>
+<img src="https://web.archive.org/web/20210727224047im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/精神病患-精神分裂症-20210210172301_2761_large.jpg" alt="">
+<figcaption>網絡插圖</figcaption>
+</figure>
+
+難得的是，這位學生嘗試走進案主的內心世界，並作出以下的反思：
+
+> **隨著經驗的增長，人很容易和很快地下定論，於是思考更具盲點。學歷越高的人，越傾向相信科學而不會信非科學的事，社會建構主義提醒我們，要多思考看似正常不過的常識和知識系統。**
+
+
+> **當迷信的事無法被證明是錯的，我們可否嘗試包容主流外更多的聲音呢？背後或許隱藏著更深的意義。醫生未必一定是完全正確，病人亦不無道理。如果我們帶著有色眼鏡來看待案主，認為她只是「不聽話」，更多背後的需要和聲音也就無法被聽見了。**
+
+
+> **如果社工都不願意去了解案主「不聽話」行為背後的想法而作定論，只是成為了間接的壓迫者，壓迫案主服從，漠視了案主的需要和犧牲了案主的權益。**
+
+
+> **社工要做到與案主平起平坐，道理很容易明白，但實行時卻不是人人做到。因為真正的平起平坐是要放低自己的身份地位，做到謙遜地向每一個人學習。**
+
+
+> **這不是一個技巧，而是一個態度，而背後是擁抱了很多價值和信念，包括：每一個人都是有獨有價值、發展的潛質和權利；社會是充滿權力關係，有很多人被壓迫、非主流的聲音都值得被尊重等。**
+
+
+對於實習學生能作出如此具深度的反思、我是既欣慰又觸動。的而且確，案主的作為不過是想求心安，讓自己舒服一點。作為旁觀者，我們不可能完全體會到案主所承受的痛苦，也缺乏足夠的知識，證實他們所信的是真或假。若果妄下判斷，不過是將自己及主流社會的觀點強加於案主身上。
+
+工作多年，自然也遇到不少類似的個案：案主或其家人相信「撞鬼」或有邪靈作怪，訴諸宗教手段或民間法術解決問題。坦白說，自己未見證過成功的「驅鬼」個案，不過也聽過包括基督教在內的一些宗教人士，分享成功的驅魔經驗，自問也沒有資格質疑他們。
+
+說到底，精神錯亂，又或者備受邪靈滋擾，兩者所呈現的徵狀非常相似，一時間並不易分得清。於我而言，只要案主一方所採取方法並不是具傷害性，又或者引起嚴重後果：例如透過性交驅鬼、或不斷被苛索金錢等，我還是會尊重他們的選擇。
+
+當然，親人之間有共識是非常重要的。我曾遇到個案，夫婦之間對兒子的治療方案持不同意見：前者相信醫療科學，後者堅持要找師傳作法，最終二人反目成仇。其後，案主思覺失調的病情雖然好轉，卻因自咎令父母婚姻破裂出現抑鬱狀況，相關的心結一直未得到紓解。
+
+本專欄逢星期三更新。如想了解更多有關精神健康的故事或資訊，歡迎到 [壹元坊面書專頁](https://web.archive.org/web/20210727224047/https://www.facebook.com/lifecompanionship925) 瀏覽。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727224047/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 壹元坊](https://web.archive.org/web/20210727224047im_/https://www.hkcnews.com/uploads/avatars/0f9d6859-978a-451b-aa81-70e8e4bc63b8.png?273647995)
+
+**博客 | 壹元坊**
+
+【壹元坊・復元路上】筆者創辦壹元坊。從新聞工作走進社會服務最前線，半途出家，很想為處於社會邊緣的群體做點事。作為精神復康社工，每天接觸備受精神障礙困擾的朋友，見證他們被社會、以至身邊的人排斥、誤解，在重重艱困中奮力爭扎，期望從半個「局中人」的角度，與讀者享他們的復元故事，讓社會重新檢視他們的韌力與生命力。

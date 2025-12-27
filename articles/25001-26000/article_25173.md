@@ -1,0 +1,58 @@
+---
+title: "【理大重開】OL泣不成聲：無法想像學生有多害怕"
+date: "2019-11-29"
+last_updated: "2019-11-29 23:10:02"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "理工大學"
+  - "勇武抗爭"
+  - "圍困理工"
+url: "https://web.archive.org/web/20210725154835/https://www.hkcnews.com/article/25173/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDol%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/25173/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-25178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDol%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【理大重開】OL泣不成聲：無法想像學生有多害怕
+
+理工大學被警方重重包圍13日後，中午終於解封，市民一度可以進出校園範圍。在尖沙咀工作的吳小姐目睹理大滿目瘡痍的畫面泣不成聲，坦言整個星期看著很多新聞畫面，如今親眼目睹很震驚，「你無法想像入面的學生有多害怕和他們的決心。」
+
+她憶述，目睹天橋傘陣、燒過的痕跡，整個人已經不斷抖震，因為「畫面出晒嚟」，如正面近距離目睹開戰狀況，「隔咗咁耐都咁震撼，更開況當日開戰，很心痛！」
+
+吳小姐強調：「我不是心痛啲建築物，啲櫈有幾爛，而是抗爭的決心有幾堅定。」她今日特意前來，是因為要有人記著在理大有過的戰爭。
+
+
+{{< video src="https://web.archive.org/web/20210725154835if_/https://www.youtube.com/embed/hILyQy_a6yc" >}}
+
+
+理工校園內外遺下重重「傷痕」。其中李兆基樓的樓梯間，至少兩塊玻璃外牆破裂，留下多個彈痕，10樓外牆最嚴重，玻璃破碎更出現一個大孔。記者用手觸摸碎裂的玻璃塊，發覺裂紋是在室內的一面，顯示玻璃是由室外遭撞擊破裂，相信警方曾向大樓方向、甚至明知室內位置，開過多次防暴槍。
+
+警方曾於11月17日，亦是重重包圍理大的第一晚，聲稱給予校內人士循李兆基樓（Y座）出口離開，但當晚卻在大樓出口發射閃光彈，記者在大樓地下也中彈。多輛警車和大批警員連日在李兆基樓一帶駐守，與出現彈痕的玻璃外牆位置吻合。
+
+<figure>
+<img src="https://web.archive.org/web/20210725154835im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/彈孔-理工大學-20191129191626_1beb_large.jpg" alt="">
+<figcaption>李兆基樓10樓的樓梯間，玻璃破碎出現一個大孔。張凱傑攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210725154835im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/理工大學-彈孔-20191129191643_2b60_large.jpg" alt="">
+<figcaption>李兆基樓的樓梯間，留下彈痕。張凱傑攝</figcaption>
+</figure>
+
+多批探員今早近8時，再次進入理大校園，檢走玻璃樽、電油罐、天拿水罐及食用油等物品。警務處助理副處長（行動）周一鳴表示，今早行動檢獲280枚汽油彈，318個卡式石油氣罐（常見打邊爐使用），以及28桶化學品。他指，警方運送和移走危險品後，中午前將校園移交予校方，亦會解封理大附近一帶，隨後警方不會再進入校園內。消防處副消防總長 （牌照及審批) 黃鎮業表示，由危險品爆破組、行動組等組成的19人小組，已在校園內完成風險評估，地下停車場的通風情況亦已經完成。
+
+警方下午在例行記者會上表示，在理大校園共檢獲3989枚汽油彈、1339支壓縮氣體（其中100支綁上汽油彈）、601支化學品、573件攻擊性武器，包括弓箭、錘子、大型投擲器及氣槍。理大事件中共有1377人被捕，被登記的18歲以下人士有318人。反送中運動至今，警方拘捕5890人，包括4368男1522女，年齡介乎11至83歲。483名警員受傷送院，仍有一名早前被潑中腐蝕性液體的警員留醫。
+
+警方中午撤離理工大學後，校方接管校園，傍晚6時正式清場進行善後工作，各出入口都有保安駐守，記者、教職員、學生等都不予進入。
+
+<figure>
+<img src="https://web.archive.org/web/20210725154835im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/圍困理工-理工大學-20191129191609_19d1_large.jpg" alt="">
+<figcaption>理大校方接管校園，傍晚6時清場進行善後工作。張凱傑攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725154835/https://www.hkcnews.com/aboutus/#subscribe)

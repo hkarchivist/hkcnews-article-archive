@@ -1,0 +1,39 @@
+---
+title: "【7.1衝擊立會】劉頴匡擬認暴動罪　同案13被告包括王宗堯2023年5月底受審"
+date: "2021-09-16"
+last_updated: "2021-09-16 17:52:34"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "劉頴匡"
+url: "https://web.archive.org/web/20211027001241/https://hkcnews.com/article/45506/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45513/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2023%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45506/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45513/%EF%BF%BD%EF%BF%BD%EF%BF%BD71%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2023%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【7.1衝擊立會】劉頴匡擬認暴動罪　同案13被告包括王宗堯2023年5月底受審
+
+正因立法會47人初選案還押的劉頴匡，另牽涉前年7.1衝突立法會事件，與鄒家成、孫曉嵐、王宗堯等共14人同被控暴動罪。其中，劉頴匡、鄒家成及另外兩名被告，今在區域法院提訊。辯方表明，劉頴匡會承認暴動罪，將在2023年5月29日案件開審當日正式答辯，其餘三人則擬不認罪。
+
+<figure>
+<img src="https://web.archive.org/web/20211027001241im_/https://hkcnews.com/news_新聞/hk-discuss/2019/08/劉頴匡-20190815165054_1bb7_large.jpg" alt="">
+<figcaption>劉頴匡因初選案正還柙（資料圖片）</figcaption>
+</figure>
+
+今日應訊的被告為劉頴匡（26歲）、鄒家成（24歲）、范俊文（28歲）及林錦均（25歲）。四人同被控在2019年7月1日，在立法會綜合大樓參與暴動；劉及范另被控在進入立法會會議廳範圍內，未有遵守立法會人員為維持秩序而發出的指示，違反《立法會（權力及特權）條例》。林則另被控一項刑事損壞罪。
+
+辯方今日透露，跟控方進行答辯磋商後，劉頴匡會承認暴動罪，進入立法會未有遵守指示罪則獲不予起訴，留在法庭存檔。他將在案件開審當天正式答辯，其間繼續還押。
+
+鄒、范及林則打算不認罪，他們將連同另外10名被告，包括黃家豪（20歲）、羅樂生（19歲）、何俊諺（21歲）、畢慧芬（24歲）、孫曉嵐（23歲）、潘浩超（31歲）、沈鏡樂（23歲）、王宗堯（41歲）、馬啟聰（30歲）及文家健（21歲），在2023年5月29日接受審訊，預計審期44天。另外，鄒及范今向法庭申請將宵禁令開始時間，延遲至午夜12時，獲法官批准。
+
+劉頴匡及鄒家成另因參與立法會初選，被控串謀顛覆國家政權罪。鄒家成還押3個多月後，獲高等法院批出擔保，劉則一直還押至今，已逾半年。劉亦另涉去年1月19日的遮打花園集會，煽惑他人參與非法集結及拒絕服從警務人員命令。
+
+案件編號：DCCC606-610、1069/2020、259/2021（已合併）
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027001241/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,69 @@
+---
+title: "記協前主席岑倚蘭：她不會賣帳，只言真相"
+date: "2021-04-22"
+last_updated: "2021-04-22 21:56:21"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "記協"
+  - "香港記者協會"
+  - "蔡玉玲"
+url: "https://web.archive.org/web/20210726231942/https://www.hkcnews.com/article/40558/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40582/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40558/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40582/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 記協前主席岑倚蘭：她不會賣帳，只言真相
+
+**編按：港台《鏗鏘集》編導蔡玉玲因製作7.21專題報道而進行車牌查冊，被控兩項作出虛假陳述罪，違反《道路交通條例》。案件今於西九龍裁判法院裁決，蔡玉玲被判兩罪罪成，辯方呈上兩封求情信，分別來自中文大學新聞與傳播學院院長李立峯、記協前主席岑倚蘭。眾新聞獲授權，全文轉載岑倚蘭求情信。**
+
+<figure>
+<img src="https://web.archive.org/web/20210726231942im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/記者-蔡玉玲-車牌查冊-20210422185041_1b2c_large.jpg" alt="">
+<figcaption>岑倚蘭：蔡玉玲多年來的成就，正好印證她是一位「仰不愧於天，俯不怍於人」的良心記者。（黎家威攝）</figcaption>
+</figure>
+
+致 : 徐綺薇主任裁判官   
+ 由 : 香港記者協會前主席岑倚蘭
+
+尊敬的法官閣下：
+
+  
+ 您好！
+
+去年十一月三日，電視新聞出現蔡玉玲被警方重案組從寓所被押走的一幕，令我目定口呆，心緒不寧。直至知悉她被拘押在大埔警署，晚上趕至，等到她獲保釋，踏出警署一刻，眼前的她，疲乏愁容，頓令我眼泛淚光，相對無言給她一個擁抱，表達支持。當時我心想為何眼前這位新聞界的精英、傑出的名記者，竟因查冊這項新聞界普遍使用的調查工具而遭逮捕起訴，實感痛心。
+
+與蔡玉玲相識，始於二零一三年七月我出任香港記者協會主席之際，當時她是香港電台節目製作人員工會主席，往後的數年，不時與她在推動香港新聞自由事宜上共事，發現她不但在新聞專業上表現出色，甚至在爭取業界權益也傾心盡力，一絲不苟，每事必躬，並在領導港台工會上，在在顯出其領袖之才。
+
+在我出任記協主席期間的二零一四年二月中，商台突然解僱主持李慧玲，嚴重威脅新聞自由，記協當時聯合一群新聞界組識及朋友組成「反滅聲行動」，當時蔡玉玲出謀獻策，並參與「企硬反滅聲 撐言論自由」遊行的具體策劃。在其後的不足兩個星期，又發生《明報》前總編輯劉進圖遇襲命危，「香港新聞界反暴力聯席」舉行黑衣遊行，與一萬三千多名市民上街，向暴力說「不」。在蔡玉玲的領導下，港台工會積極參與，並出席遊行前業界的默站行動。另外，約見警察公共關係科，就設立採訪區及封鎖區等問題反映意見；並就「雨傘運動」期間多名記者採訪遇襲、為網媒爭取採訪權等等，與記協有多方的合作，雖然有時意見不同，但她總能顧全大局。
+
+縱使蔡玉玲的採訪工作極繁忙，但在香港新聞自由風雨飄搖下，她仍堅持出任工會主席，這份吃力不討好的義務工作，多次無畏無懼，挺身而出，參與及組織捍衛新聞自由，以及爭取業界權益的活動，充分顯示她的無私精神。
+
+蔡玉玲是業界公認的傑出調查報道記者，多次獲海內外的新聞報道獎。她總令我想起根據真人真事改編的電影《焦點追擊》，講述四名調查記者不畏強權、鍥而不捨追求真相，用一支筆撼動高牆。當中一名女記者說：「我在這裏，因為我在乎。」今日新聞在那裏，蔡玉玲也在，因為她也在乎。
+
+在當下荒謬日日新、歪理處處有、黑白兩顛倒的世代，我們需要的是有風骨的記者，蔡玉玲一定是其中一位，她堅強不屈，率直有骨氣的品格，無論任職香港電台、傳真社，甚或當自由的新聞工作者，報道往往擲地有聲，是其是，非其非；不會賣帳，只言真相。
+
+> 她的志向是「希望好好說出香港人的故事」，為香港歷史記下重要的篇章。正如馬克吐溫的名言:「我成了新聞記者……我找不到比這更誠實的職業。」，蔡玉玲也找到了，多年來的成就，正好印證她是一位「仰不愧於天，俯不怍於人」的良心記者。
+
+法官閣下，眼前這位追求卓越新聞、用心和專業紀錄時代，揭發真相，見證歷史的記者，是香港之寶，我城需要她。當我要為她寫求情信時，百感交集，「何罪之有？」四字不時湧上心頭，為了公眾利益而身陷官非，誠如蔡玉玲所說，這已不是她個人的事了。
+
+既然在法律上，如今蔡玉玲被判罪成，在此懇請法官閣下，請對她予以最寬容的量刑。謝謝！
+
+香港記者協會主席 (2013.7-2017.6)   
+ 岑倚蘭
+
+2021.4.22
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726231942/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20210726231942im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

@@ -1,0 +1,57 @@
+---
+title: "警隊不斷抹黑警隊　清算抄家散播恐懼"
+date: "2020-12-08"
+last_updated: "2020-12-08 05:47:47"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "黎智英"
+  - "香港警隊"
+  - "鄧炳強"
+url: "https://web.archive.org/web/20210729033340/https://www.hkcnews.com/article/36259/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36260/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36259/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36260/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警隊不斷抹黑警隊　清算抄家散播恐懼
+
+
+{{< video src="https://web.archive.org/web/20210729033340if_/https://www.youtube.com/embed/xyEiyjgncvw" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210729033340/https://bit.ly/2Cj8v4t)
+
+警務處處長鄧炳強周日（6日）出席無綫電視節目時不點名批評黎智英及旗下的《蘋果日報》，指有傳媒以不實的報道抹黑警隊，因此警方曾向該傳媒發出近100封投訴信，指其以虛假、煽動性的報道對警隊作出不實指控。他說，「有人」又以自身作為傳媒行業老闆的身份，不停向外國散播不實言論，抹黑港府以及警方。
+
+警方及國安處正控告或調查黎智英多項嚴重罪名，包括港區國安法、欺詐罪，鄧炳強近乎開名批評黎智英及《蘋果日報》抹黑，而所謂證據是100封投訴信（投訴便是事實？），極度可笑。警方在有直接利益衝突下，仍毫不掩飾對被告及調查對象作缺乏實據指控，毫無法治概念，抹黑警隊的正是警隊，正是「一哥」等管理層、中層及違法違規的前線警員。
+
+
+{{< video src="https://web.archive.org/web/20210729033340if_/https://www.youtube.com/embed/NWGMdyncjEI" >}}
+
+
+警方將警隊自反修例風暴後，公眾形象和市民信任度插水歸咎傳媒「抹黑」。鄧炳強將矛頭指向黎智英及《蘋果日報》，無線電視在新聞時段只一句帶過，沒有解釋，其他傳媒亦甚少報道，原因很簡單，警方一直「傳媒抹黑」的說法並無根據，相反地， 警方的執法違法違規嚴重，利用港區國安法和警權作政治打壓清算越來越明目張膽，失去制衡，每天都在自我抹黑。
+
+最新的例子是流亡海外前立法會議會許智峯及其家人多個銀行戶口被凍結事件；另外，警方國安處人員周一早上拘捕8人，他們涉嫌與上月19日在中大畢業禮的遊行有關，當中有3人當日揮動港獨旗幟及叫港獨口號，因此同時涉嫌觸犯煽動分裂國家罪。
+
+許智峯及其家人銀行戶口周末被凍結，說法出現混亂，銀行周一早上再按警方要求凍結各人賬戶，警務處國家安全處高級警司李桂華下午表示，凍結許智峯及家人的銀行戶口，是因為懷疑有關人士挪用85萬元眾籌款項，但李沒有進一步解釋； 李桂華又指，許智峯離開香港後的言論，包括擴展「國際線」， 相信是代表爭取制裁，認為警方有表面證據，懷疑對方干犯《 香港國安法》29條「勾結外國或境外勢力危害國家安全罪」。
+
+許智峯日前曾提及擴展「國際線」，但「相信是代表爭取制裁」 的一句話是李桂華的猜測，以言入罪，無遮無掩。國安處以日前中大校園內，有人揮動港獨旗幟及叫港獨口號，涉嫌觸犯煽動分裂國家罪，亦有以言入罪之嫌。警隊成為政治打壓工具，危害市民安全、自由，警民關係不可能得到改善，歸咎傳媒「抹黑」是自欺欺人的低級政治技倆。
+
+警隊在反修例衝突過程中執法出現廣泛違法違規情況，監察警員的投訴機制先天缺憾，亦暴露無遺。較早前，高等法院法官已就一項司法覆核作出裁定，指出現行投訴機制的問題。鄧炳強在訪問中反駁，質疑被委任調查人士是否公平，說法強詞奪理。他認為現有投訴機制是「咁好機制」，警方與監警會合作無間， 是一派胡言、謊言。
+
+他說反修例示威投訴收到針對警員有600多宗「須匯報投訴」， 當中六成警方已完成調查，四成經監警會完成審核，有24名警員已被訓斥，其中5人要紀律覆檢，4人有即時紀律後 果，包括訓斥等。600多個個案，只反映警暴的一少部份， 至今只有24名警員被訓斥，更是笑話。警隊「自己人查自己」，數字說明一切；一句老話，公道自在人心，不少市民對警隊只有恨，「一哥」心知肚明。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729033340/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210729033340im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

@@ -1,0 +1,75 @@
+---
+title: "【強測準則何在？】徐德義稱難有指標　張竹君指4人不相識確診　麗晶6座上周已現4確診"
+date: "2020-12-10"
+last_updated: "2020-12-10 23:40:36"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "強制檢測"
+  - "第四波疫情"
+  - "麗晶花園"
+url: "https://web.archive.org/web/20210924070702/https://www.hkcnews.com/article/36346/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36346/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【強測準則何在？】徐德義稱難有指標　張竹君指4人不相識確診　麗晶6座上周已現4確診
+
+政府昨日無預告下突然將九龍灣麗晶花園6座列入強制檢測之列，約900居民須接受強制檢測。食物及衞生局副局長徐德義今日在記者會解釋，政府有時做強制檢測的決定好快，當被追問決定強制檢測的準則是甚麼？徐德義則說無一個「特定、好僵化的方程式」。同場的衞生防護中心傳染病處主任張竹君補充，如果同一幢大廈有4個單位出現患者而且彼此不相識，就有可能發強制檢測公告，但這也不是「硬標準」。
+
+按照張竹君的說法，眾新聞整理了由11月15日至昨天的確診者住所資料，11月15日是強制檢測法律框架生效日。整理後發現，這期間共有26幢住宅大廈錄得4宗或以上個案，只有3幢須強制檢測，其餘多達9宗的旺角利民大廈、7宗的海怡怡雅閣、6宗的半山區花園台2座等均毋須強測，但由於只有衞生署知道該幢患者之間是否相識，社會大眾亦無從得知政府針對一幢樓發出強制檢測時理據是否充份、又有否「放生」了某些大廈。
+
+值得留意是，麗晶花園6座的確診者，最早於11月25日確診，到12月1日，已經錄得4宗確診個案，全部是D座向住戶，但一直至昨日累計確診個案增至6宗，才宣佈要強測。
+
+<figure>
+<img src="https://web.archive.org/web/20210924070702im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/葵盛西邨-強制檢測-麗晶花園-20201210220720_c4d4_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+昨日430記者會上，張竹君公布被列入強制檢測之列的處所原本只有4個：葵涌葵盛西邨8座、馬鞍山錦豐苑錦蕙閣、一田百貨（沙田）、將軍澳—藍田隧道地盤。至政府晚上發稿稱就強制檢測公告刊憲，卻突然增加麗晶花園6座。麗晶花園6座D現累計7確診、1初步確診。
+
+關於強制檢測的準則何在，徐德義於今日記者會上遭連番追問時解釋：「好難話有單一指標幾時會發檢疫令，當然，個案宗數、產生速度、帶來的潛在影響，都係可能會影響呢啲決定。」兩度追問下始終未有答案，張竹君則補答：「雖然徐醫生頭先無特登講個標準，我們暫時就睇，如果4個不相識的單位，在同一棟大廈（確診），我們就有可能會俾強制檢測令，當然都要睇情況。」她續形容，這亦不是硬標準。
+
+張竹君另外表示，麗晶花園第4座E室、18座D室，今晚亦會被列入強制檢測之列。她形容這兩處屬「特別情況」，因為暫時兩座分別各有一宗確診個案，但今日視察6座D的喉管後，認為有可能同一屋邨發生類似情況，為避免隱性傳播於是一併強制檢測。
+
+<figure>
+<img src="https://web.archive.org/web/20210924070702im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/第四波疫情-麗晶花園-20201210221039_1afa_large.jpg" alt="">
+<figcaption>麗晶花園6座D的居民今日撤離，被送往隔離營。EYEPRESS圖片</figcaption>
+</figure>
+
+根據衞生署公開的資料，大眾可查閱確診者住哪一幢大廈。眾新聞整理11月15日至12月9日期間確診患者的資料，亦即強制檢測法律框架生效起計，發現有26幢住宅大廈錄得至少4宗確診個案，最多的是葵盛西邨8座，有22宗；其次是旺角利民大廈，有9宗；海怡半島怡雅閣7宗。
+
+而截至昨日，麗晶花園6座錄得6宗確診個案，昨日開始要求強制檢測；同樣有6宗的，包括半山區花園台2座、東頭(二)邨貴東樓，則未有強制檢測。
+
+今日記者會上亦有問及貴東樓為何不用強制檢測，張竹君回應指︰「譬如6個（個案），（患者是）屋企人或者兩家人，每個單位有幾個，那些就不屬於不相連的單位。」而衞生署著眼不相連的單位，以阻截環境、公共設施或喉管等的病毒傳播途徑。不過，個案之間有否關連，絕大部分資料都只掌握在衞生署手中。
+
+<figure>
+<img src="https://web.archive.org/web/20210924070702im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/武漢肺炎-徐德義-20201210221140_1238_large.png" alt="">
+<figcaption>雖然食物及衞生局副局長徐德義今日出席記者會，但未能解答有關強制檢測準則的問題。港台影片截圖</figcaption>
+</figure>
+
+今日疫情方面，本港新增112宗確診個案，包括34宗無源頭本地個案、10宗輸入個案，以及68宗與早前確診相關個案。
+
+**現正爆發群組：**
+
+．歌舞群組新增6宗，累計702宗   
+ ．日出康城地盤群組新增5宗，累計55宗   
+ ．一田百貨群組新增5名工作人員確診，累計12宗   
+ ．亞博新增3名患者家人確診，累計16宗
+
+**本地受感染患者焦點：**
+
+．竹篙灣檢疫中心一名清潔工人確診   
+ ．慈雲山德愛中學一名學生確診，12月5日病發、7日曾回校考試   
+ ．青衣樂善堂梁植偉紀念中學一名老師確診，12月8日病發、同日最後一日返工   
+ ．張敬軒演唱會再多一名觀眾確診，11月29日的場次、坐黃閘72段   
+ ．上水古洞坑頭扶康護理舍一名院友確診，此前曾住秦石中途宿舍   
+ ．仁濟醫院一名護士初步確診，其家人昨日已確診，最後一日上班是12月7日凌晨，3護士須隔離檢疫   
+ ．屯門醫院病人支援中心一名文職員工初步確診，8名有密切接觸的同事須隔離檢疫，病毒檢測結果均呈陰性
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924070702/https://www.hkcnews.com/aboutus/#subscribe)

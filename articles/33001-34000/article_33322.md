@@ -1,0 +1,50 @@
+---
+title: "我的真相，你的「真相」"
+date: "2020-08-27"
+last_updated: "2020-08-28 01:24:57"
+author: "必有我思焉"
+category: "眾說"
+tags:
+  - "元朗白衣人"
+  - "721元朗恐襲"
+  - "原告變被告"
+url: "https://web.archive.org/web/20221007122712/https://hkcnews.com/article/33322/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33337/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33322/721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33337/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 我的真相，你的「真相」
+
+【撰文：余見】
+
+[「Gaslighting」](https://web.archive.org/web/20221007122712/https://en.wikipedia.org/wiki/Gaslighting) ，亦即 [「煤氣燈操縱」](https://web.archive.org/web/20221007122712/https://zh.wikipedia.org/zh-hk/%E7%85%A4%E6%B0%94%E7%81%AF%E6%95%88%E5%BA%94) ，是一種用謊言令到受害者相信自己精神失常、記憶錯亂的心理虐待手法......亦是極權一直以來用以摧毀人民精神健康、控制我們記憶、消除反抗意志的主要方法。
+
+<figure>
+<img src="https://web.archive.org/web/20221007122712im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/逃犯條例-元朗打人-元朗白衣人-20190726113319_2143_large.png" alt="">
+<figcaption>2019年7月21日，元朗西鐵站，立場新聞直播畫面截圖。</figcaption>
+</figure>
+
+我們認識的真相，就是一年前七月二十一日，白衣人在元朗地鐵站對途人、記者等作出無差別攻擊。他們以荒謬的藉口，推卻無視2400次求救來電、在收到消息後39分鐘後才來到現場、看到市民被攻擊卻轉身而走，令到無數無辜者受襲的責任。
+
+煤氣燈熄了又亮起來，我們被逼認同他們說的「真相」。原告人成為了被告人。39分鐘變成了18分鐘。無差別攻擊變成了雙方是旗鼓相當。「西瓜佬」遲遲還未被捕，某位應今年離任的議員與白衣人的關係仍未得由信賴的機構查出......
+
+
+{{< video src="https://web.archive.org/web/20221007122712if_/https://www.youtube.com/embed/BICqcEvzhVw" >}}
+
+
+煤氣燈熄了又亮起來，1944年同名電影《Gaslight》（亦是此術語的來源）的男主角告訴就被其謊言弄瘋的女主角，「煤氣燈根本沒有熄了又亮啊，你看錯了」。警方告訴同樣就被弄瘋的香港人，我們沒捏造真相的用意，真相會由歷史定奪。
+
+他們相信自己會是贏家，會是由自己寫歷史、真相。
+
+我雖勢弱，但決不會忘記。
+
+#### 我們有我們的真相，任由他們改寫捏造，這也不能改變親眼看見的事實。教科書改變了，數字少了「六」和「四」再少了「七」、「二」、「一」，可能幾天後又會少了「八」、「三」、「一」，這同樣改變不了我們明白的事實。
+
+煤氣燈熄了又亮起來，我看到它熄了又亮了，我記得它曾熄了又亮了，我知道它熄了又亮了。
+
+---
+
+![博客 | 必有我思焉](https://web.archive.org/web/20221007122712im_/https://hkcnews.com/uploads/avatars/3d22e226-8964-4344-8513-80c8c2e4e47d.png?1936132224)
+
+**博客 | 必有我思焉**
+
+【毛然・余見・徹國嵐／幗嵐・必有我思焉】三人行，又中又英，隨寫隨感；或許不倫不類，但必有我思焉。

@@ -1,0 +1,63 @@
+---
+title: "梁柏堅：DQ剝奪的不是我　而是所有香港人　我仍然做緊自己"
+date: "2021-09-18"
+last_updated: "2021-09-18 11:50:27"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "宣誓"
+  - "梁柏堅"
+  - "灣仔區議會"
+url: "https://web.archive.org/web/20211025014506/https://www.hkcnews.com/article/45567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 梁柏堅：DQ剝奪的不是我　而是所有香港人　我仍然做緊自己
+
+**傘兵、中佬、攝影師，都是屬於梁柏堅的形容詞，被DQ之後，可能再多一詞 - 失業人士。不過，大部分香港人對他的印象，或許是前年8.31太子站，他拍下速龍衝入車廂揮棍及以胡椒噴霧噴向市民，鐵證如山的一幕，還有在理大圍城期間，唯一逗留在理大而沒有拉票的候選人，結果仍是成功當選。**
+
+**談起區議會，他會滔滔不絕說跟你「講數」，建立議會自家數據，了解社區需求；談起目前社運處境，他會苦口婆心跟你分析，黃店不可單靠內循環經濟，不能動輒告急而忽視經營問題；談起是是非非，他縱然牢騷，卻又會說槍口對外，一同對抗威權。說到底，他形容自己是一個「講粗口的大愛左膠」。**
+
+<figure>
+<img src="https://web.archive.org/web/20211025014506im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/梁柏堅-20210918062049_1fb2_large.jpg" alt="">
+<figcaption>梁柏堅說，收到「DQ信」就像上月收到「刀片信」一樣，對威權政府並不缺乏想像力。</figcaption>
+</figure>
+
+### 「被剝奪的不是我」
+
+人稱「表弟」的梁柏堅，曾在2014年「佔中」擔任義工，傘後化身傘兵參選區議會，但不敵民建聯落敗。直至反修例事件再次參選，成功當上灣仔區議員。不過，這趟任期很短暫，僅僅一年半有多，就被民政事務局裁定宣誓無效，即時禠奪席位。街坊問候他，他一句回答：「傻啦！我的離開有光環！」著對方不用擔心。中佬的口吻，看得很開。
+
+或者由今屆參選一開始，早就已經不是昔日的選戰。他憶起2019年選舉那一天道：「選舉當日我在理大，那個星期我都在理大，當時基本上已經放棄了選舉。民意諮詢架構比起當時，我在理大需要做的事，我覺得採訪、報道、見證歷史，重要過選出民意代表，眼前的事先要關心，所以一直沒有甚麼參選的雄心壯志。」
+
+他甚至形容區議會制度其實會「令人變蠢」，所謂的民意諮詢架構，沒有太多諮詢，很單向、很有限制，很多時只是「派嘢」，做很低層次的關心，並非一個有權有責的制度。「其實我很早就想辭職，頭一年已覺得區議會髒亂不堪，大家都用很蠢的方法做事，根本達不到我們想做的事，但後來政府吹風DQ，我又唔想走住……」
+
+可能為了一啖氣，可能為了一份責任，畢竟他認為今屆區議會選舉是香港最後一次，一人一票、公民提名的公平選舉，要行到最後，捍衛當日有份投票的人，也就是他決定宣誓的原因之一。在歷史的洪流中，他被DQ正是反映港府對民意授權的打壓，「被剝奪的不是我，而是所有香港人。」
+
+<figure>
+<img src="https://web.archive.org/web/20211025014506im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/梁柏堅-20210918062058_10f2_large.jpg" alt="">
+<figcaption>梁柏堅的議辦有個大黑板，寫上區議會改革的願景。</figcaption>
+</figure>
+
+### 「沒有半句大話」
+
+在他的議辦內，有一個大黑板，寫上如蜘蛛網似的一層又一層的區議會願景。他認為民意要由科學說起，區議會應有自家數據，了解居民對衛生、文化、康樂、長者、青年服務等不同範疇的社區需求，繼而衡量區議會投放在不同需求的開支。他又希望區議會有錢做直播、釐清民政署和民政局的權責、為議員一方增設法律顧問……
+
+最終，這些願景都一一化為輕煙，「可能威權和建制很怕新議員大刀闊斧，但其實我都是想洽談、想醞釀一個政策出來。」他強調區議會不是啦啦隊，反而是民間一個「潤滑劑」，可協助不同思想價值的人在社區和諧共存，但「政府不需要我們民意代表去做，我們又有甚麼能力和誘因做下去？」
+
+對議會、對制度、對社區，他總可侃侃而談，說出很多奢望，問到自己這兩年的得著時，他卻想了一想，坦言這兩年只有痛苦，沒有得著，愈做愈窮，也沒有因為政府資源而有得著。他想了想說：「這兩年得著是我如何做好一個人，如何在這個環境下做回自己。」
+
+他記得當選後仍未上任之際，曾在電台節目說過，希望自己能夠堅持不會因現有制度而成為「變蠢」的一分子。他說：「這兩年，我仍然做回我自己，我相信的、我追求的、我仍然做緊，好好彩比起很多前輩和同路人，我的得失相對少很多、冒的風險少很多。我目睹很多前輩、同行者，面對的欺壓和不公拘捕審訊，他們告訴我要承擔說過的、做過的後果，但我並沒有因此而說過半句大話。」
+
+社區想像雖未圓，赤誠想法卻未忘，或許同樣珍貴。
+
+
+{{< video src="//web.archive.org/web/20211025014506if_/https://www.youtube.com/embed/W6LrIIg_KjI" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025014506/https://www.hkcnews.com/aboutus/#subscribe)

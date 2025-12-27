@@ -1,0 +1,49 @@
+---
+title: "警方取國安法被捕人DNA樣本　倘定罪可永久存檔"
+date: "2020-07-03"
+last_updated: "2020-07-03 22:51:08"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "國安法"
+  - "香港警隊"
+url: "https://web.archive.org/web/20210805040735/https://www.hkcnews.com/article/31594/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31610/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdna%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31594/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31610/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdna%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警方取國安法被捕人DNA樣本　倘定罪可永久存檔
+
+警方在七一遊行引用剛生效的國安法拘捕10人，有協助被捕者的律師向眾新聞表示，警方向多名涉違國安法被捕人檢取DNA樣本，質疑被捕人僅涉藏有被指港獨單張、衣物及旗幟，警方的做法完全超出調查需要。
+
+根據《警隊條例》第59C條，警方取得涉案人士非體內樣本時，必須由警司以上警官授權，且警司只可以（may only）在同時符合兩種情況下發出授權：一、有合理理由該人已經干犯某嚴重可逮捕罪行；以及，二，有合理理由樣本有助確定該人已干犯涉案罪行。根據《警隊條例》第59G條，如果涉案人士定罪的話，DNA樣本會被永久保存。
+
+警方在7月1日國安法生效後不足24小時內拘捕10人，當中大部分被搜出港獨、「光復香港」等字句的宣傳單張及旗幟。至周五中午，10人中涉嫌駕駛電單車撞向警員者未獲批保釋。
+
+有份協助被捕人士的義務律師彭皓昕表示，警方向多名因涉嫌違反國安法被捕人士檢取唾液樣本，並聲稱分裂國家等屬嚴重罪行，所以有權要求取得DNA樣本。當被質疑做法，彭引述有警員說：「你鍾意就JR（司法覆核）喇！」
+
+彭皓昕批評，被捕人士多只是涉嫌被搜出港獨單張、衣物及旗幟，但《警隊條例》59C中是針對嚴重罪行，而且被捕人已涉嫌持有物品，「到底警方想證明啲咩？」「警方做法完全不需要及不合比例，DNA是被捕人的個人資料，應該被尊重。」
+
+專打刑事案的資深大律師駱應淦表示，警方嚴格上是越權，因為在這情況未必有權索取DNA，變相是威嚇被告。駱說，自己執業期間，多見警方在性罪行案件中索取被告的DNA樣本，而白領案件中未見過取DNA樣本。「因為費事，（涉案）幾千萬、幾億都好，（DNA）對查案無幫助！」
+
+駱應淦預計，警方是要用DNA樣本，調查被捕人士是否涉及其他案件。
+
+警方回覆查詢時未有回應對《警隊條例》了解，但僅確認10名因違國安法被捕人全數都檢取DAN樣本。警方發言人稱：「警方於7月1日以違反《中華人民共和國香港特別行政區維護國家安全法》第20及21條，煽動他人分裂國家罪，拘捕10名人士，該罪名最高刑罰為10年有期徒刑。 警方在調查其間，根據《警隊條例》59C(2a)，向該10名被捕人士檢取其非體內樣本(DNA)。 」
+
+<figure>
+<img src="https://web.archive.org/web/20210805040735im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/七一回歸-20200703161505_2aec_large.jpg" alt="">
+<figcaption>警方在七一拘捕超過300人，當中10人涉嫌違反國安法被捕。美聯社資料圖片</figcaption>
+</figure>
+
+根據條例，警方必須在「只在」上述兩種情況下才取得DNA樣本，但即使涉案人士不同意，警方都可以用武力取得DNA樣本。
+
+香港人權監察總幹事羅沃啟質疑，警方在國安法控罪未釐清是否屬嚴重罪行下，用「搏懵」方式調查、侵犯私隱，促請警方交代。他表示，法例要求警方在無其他方法下才索取被捕人的DNA樣本，例如強姦或謀殺案等，「甚至偷竊判7年，都唔會驗DNA，我覺得就這樣視作嚴重罪行驗DNA有點牽強。」
+
+羅又說，DNA會永久保留，但不清楚是否用作案件外的其他用途，擔心濫取DNA情況在香港蔓延，「可能有政治檢控database，可能有來做政治檔案」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805040735/https://www.hkcnews.com/aboutus/#subscribe)

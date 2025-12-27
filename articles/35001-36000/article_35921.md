@@ -1,0 +1,65 @@
+---
+title: "民主先賢胡適批評國際特赦組織的校園人權教育的嚴重缺失"
+date: "2020-11-28"
+last_updated: "2020-11-28 02:06:18"
+author: "胡啟敢"
+category: "眾說"
+tags:
+  - "胡適"
+  - "國際特赦組織"
+  - "校園人權教育"
+url: "https://web.archive.org/web/20210729080701/https://www.hkcnews.com/article/35921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35999/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35999/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 民主先賢胡適批評國際特赦組織的校園人權教育的嚴重缺失
+
+<figure>
+<img src="https://web.archive.org/web/20210729080701im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/校園人權教育-國際特赦組織-胡適-20201128014715_1b06_large.jpg" alt="">
+<figcaption>插圖由筆者提供</figcaption>
+</figure>
+
+這不是標題黨，胡適的確有一篇演講，當中的批評適切批評了國際特赦組織的校園人權教育有嚴重的缺失，無法使莘莘學子了解人權的重要，從而培養他們成為一個追求人權、自由的公民。
+
+這樣，胡適哪一篇演講，剛好是批評了國際特赦組織的人權教育？胡適於演講 [《介紹我自己的思想》](https://web.archive.org/web/20210729080701/https://hushihhc.blogspot.com/2015/12/1930.html) 曾言：
+
+> **現在有人對你們說：犧牲你們個人的自由，去求國家的自由！我對你們說：爭你們個人的自由，便是為國家爭自由！爭你們自己的人格，便是為國家爭人格！自由平等的國家不是一群奴才建造得起來的！**
+
+
+胡適這句話，可謂切中要害！要一個懵懂無知的學生了解人權和自由對自己、對其他人的重要，首先要讓學生有機會在他們的生活層面，實踐他們的人權和自由，讓他們了解到人權和自由如何保護到他們的人格以及尊嚴，然後推己及人，愛屋及烏——這樣他們才會了解人權及自由對其他人的重要之處，然後成為世界公民，關心地球村其他地方的苦難。
+
+要培養一個人成為道德人，首先也是先讓他從生活周遭的層面踐行道德，之後使他的道德心和同情心成為習慣，及後再讓他關心社會、國家、以致世界。
+
+可惜的是，我閱讀過國際特赦組織給學校的人權教育教材，也許是國際特赦組織急功近利，想盡快趕鴨子上架，培養學生成為世界公民——國際特赦組織的教材大多是時事和國際議題，鮮有圍繞學生在校園應有的人權和自由等等議題，作出教育和啟發。人權教育與學生的生活相關僅有一項，就是校園欺凌。
+
+啟敢並非是說從國際時事教育學生了解人權自由的重要是錯的，但是國際時事畢竟和學生的生活隔了千山萬水，他們未必能迅速領悟人權議題和自由議題與自己相關之處。
+
+而且，學校在不同的層面也有剝削學生人權和自由的情況，當學生在自己的生活中的人權和自由都受到侵害，若果人權教育不是教育學生了解如何為自己爭取人權和自由；例如透過學生運動去改革校政和校規，廢除髮禁和服禁，為自己的身體自由作奮鬥，反而急功近利、揠苗助長要求學生了解世界的苦難，這樣會或許有反效果，學生認為人權和自由是一個道德虛偽的言辭，不再去相信。
+
+學生也許會認為，明明自己擁有的人權和自由都受到學校侵害，但是國際特赦組織卻「假大空」要學生先關心國際議題，不談校園人權：他們或許誤解，原來人權和自由只是一個口號，成年人要你們關心時事就講人權自由，但是要學生服從學校剝削他們的人權和自由就講獨裁紀律，這樣或許學生會認為人權自由是成年人欺騙他們的花言巧語。最後，人權自由失去了道德號召力，成年後的學生變得犬儒自私，不再相信人權自由，爭取人權自由。
+
+因此，胡適先生剛才所言，不啻是警世良言，一個自由平等的國度的民眾，一定是首先敢於為自己的權益發聲！然後推己及人，再為其他人的福祉奮鬥！我懇請國際特赦組織能檢討他們人權教育的題材，增加校園人權的教材，例如學生運動、改革校政及校規、學生會選舉、學生自治、髮禁和服禁等等議題，必定能因勢利導，藉著讓學生覺醒到要爭取他們的權益，之後學生昇華到成為世界公民，關心國際苦難。
+
+**聯絡作者：**
+
+[Facebook專頁](https://web.archive.org/web/20210729080701/https://www.facebook.com/wukaikam1988/)   
+ [IG專頁](https://web.archive.org/web/20210729080701/https://www.instagram.com/wukaikam/)   
+ [MeWe專頁](https://web.archive.org/web/20210729080701/https://mewe.com/p-front/wukaikam)
+
+你不需要相信我，要緊記：文章好，舉手之勞，請到 [我的網站](https://web.archive.org/web/20210729080701/https://www.boyangu.com/sc/education/aihk202001/) ，在最下面的「讚賞公民計劃」點like（按5次like是免費的），我就能賺取微薄收入，繼續寫更多文章給大家，也要分享這篇文章給其他朋友，謝謝！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729080701/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 胡啟敢](https://web.archive.org/web/20210729080701im_/https://www.hkcnews.com/uploads/avatars/73c7a0fc-9a50-47d5-9ddd-86a71250d99b.png?488794806)
+
+**博客 | 胡啟敢**
+
+【胡啟敢・閱微左翼筆記】和史學大師司馬遷一樣，因為心中有鬱結不平，才動筆為世界而寫。以前迷信市場，現在是堅定的左翼。文章散見於網媒和報章。那怕最後成為無名的墓塚，也得把正確的東西說出來。

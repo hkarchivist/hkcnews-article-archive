@@ -1,0 +1,74 @@
+---
+title: "共享經濟聯盟：打壓 Airbnb 所為何事？"
+date: "2017-10-24"
+last_updated: "2017-10-24 14:58:36"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "共享經濟"
+  - "airbnb"
+  - "旅館業條例"
+url: "https://web.archive.org/web/20211129105057/https://www.hkcnews.com/article/7788/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-airbnb-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-7794/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-airbnb-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/7788/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-airbnb-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-7794/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-airbnb-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 共享經濟聯盟：打壓 Airbnb 所為何事？
+
+【撰文：李兆富】   
+ ***共享經濟聯盟召集人***
+
+「可以做，但一定要合法。」   
+ 「不過當法規不合時宜呢？」   
+ 「法規不合時宜嘛⋯⋯」
+
+政府官員是否知道有些法規不合時宜？我相信他們是心知肚明的。不過，一講到要修訂這些法規，他們又變得顧左右而言他。
+
+今年八月 [「共享經濟聯盟」委託港大民意研究計劃](https://web.archive.org/web/20211129105057/https://www.hkcnews.com/article/6672/%E5%85%B1%E4%BA%AB%E7%B6%93%E6%BF%9F-%E6%9D%8E%E5%85%86%E5%AF%8C-%E5%89%B5%E6%96%B0%E5%8F%8A%E7%A7%91%E6%8A%80%E5%B1%80-6672/%E5%89%B5%E7%A7%91%E7%99%BC%E5%B1%95%E9%A6%99%E6%B8%AF%E5%8C%85%E5%B0%BE-7%E6%88%90%E5%8F%97%E8%A8%AA%E8%80%85%E6%8C%87%E6%B8%AF%E5%BA%9C%E9%81%8E%E6%96%BC%E4%BF%9D%E8%AD%B7%E6%97%A2%E5%BE%97%E5%88%A9%E7%9B%8A%E8%80%85) ，進行了一項香港市民對政府創科政策的民意調查；結果發現70%受訪者認為政府過於保護現有產業及既得利益者，與此同時有73%受訪者認為政府對共享經濟的開放程度較鄰近地區及城市為低。
+
+<figure>
+<img src="https://web.archive.org/web/20211129105057im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/09/Hong%20Kong-共享經濟-20170904193913_b6a2_large.jpg" alt="">
+<figcaption>照片來源：《共享經濟與香港競爭力調查報告》</figcaption>
+</figure>
+
+究竟特區政府是否有意偏幫既得利益者？我個人認為這種誅心論是不必要的；可惜在客觀效果上，當過時政策的而且確保護著某些既得利益，而政府除了強調「要合法」，對修訂法規卻沒有時間表又沒有路線圖，又怎能教市民不去質疑政府官員背後是否有其他不可告人的動機？
+
+話雖如此，以我多年研究觀察香港公共政策的經驗，政府官員不願意修例，是因為怕改變會帶來的影響；「多一事不如少一事」，或許是逃避面對現實的最主要原因。
+
+我不敢低估官員的智慧，但人在其位，有時會令人的觀點與角度有所偏差。以發牌監管為例，以從前的管治思維，尤其是在香港這種奉行積極不干預精神的社會，政府介入市場，不外乎出於兩大考慮：
+
+一，在消費者和生產者之間，假如存在資訊或其他形式的不對稱現象，政府會透過發牌和制定標準，約束生產者的行為。
+
+二，當經濟活動會構成一定的「際外效應」（Externality），政府透過限制經濟活動的規模，甚至要求生產者負擔起一定責任，確保其他人的權利受到保障；凡舉環保衛生、安全甚至公共空間如道路的使用，均屬這個範疇。
+
+現實反映，發牌制度保障消費者的成效未必盡善盡美，有時更只是聊勝於無。反而近年如雨後春筍般湧現的共享經濟平台，提高資訊透明度，以及促進生產者與消費者之間的互動，令到產品和服務的水平不斷漸進地提升；這種借市場力量自我改進的過程，並不是一般發牌規管可以做得到的。所以，就算政府有不可推卸的理由，必須要發牌規管共享經濟平台，原則上也應該以確保市場競爭為首要考慮，避免構成不必要的市場進入門檻。
+
+為何政府會有不可推卸的理由必須要介入市場呢？雖然在制度經濟學上，只要產權完全清晰界定，以及在沒有交易費用的前提下，際外效應是不存在的；就算有一定的交易費用，在清晰的產權下，市場亦可以找出價值最大化的方案。可是，在現實情況下，政府介入往往可能是一個有效，而且合乎政治公義價值的選擇。然而，過往那種「一本通書睇到老」的發牌規管制度，又是否真的可以達到社會最大效益？
+
+共享經濟平台，其實在促進交易的同時，也產生了不少有用的數據和資訊，可以讓監管當局就規管的方向和程度，作出微調以增進經濟效率。甚至乎，在最理想的環境下，這些數據甚至可以用作即時的調控措施；例如政府正在積極研究的電子道路收費計劃，要是能透過共乘平台所反饋的資訊，作出實時動態定價（Real Time Dynamic Pricing），以及向駕駛者提供實時道路交通狀況資訊，結果肯定會比現時構想中的靜態定價（Static Pricing），來得更加有效。
+
+還有一點不可忽視的就是，不少共享經濟平台，在促進交易的同時也是在建立某種社群關係。有些提供短租民宿的配對平台，例如 Airbnb，在不同的市場，會因應當地的特殊情況，向旅客和民宿戶主，提供有用資訊，以減少因文化差異帶來的衝突。事實上，這也是當今新世代旅行者希望得到的旅行體驗。
+
+<figure>
+<img src="https://web.archive.org/web/20211129105057im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/10/共享經濟-airbnb-Hong%20Kong-20171024143629_f97e_large.png" alt="">
+<figcaption>Airbnb網站。</figcaption>
+</figure>
+
+政府最近 [提出要修訂《旅館業條例》](https://web.archive.org/web/20211129105057/https://www.info.gov.hk/gia/general/201710/18/P2017101800462.htm) ，特別是降低檢控的舉證責任，只要環境證據，例如街道或互聯網上廣告、價目表、旅館佈置和佈局等，便可證明房間用來做無牌旅館證明有關處所用作無牌旅館，而且業主或租客都須負上刑事責任。但是從其他範疇的經驗反映，所謂加強執法未必可以完全杜絕相關的經濟活動，甚至會因為失去了平台促進資訊流動的原故，令消費者權益受損。具體地說，像短租民宿這種服務，假如由平台轉到個體透過其他非公開的渠道，以更隱密的方法進行，消費者更投訴無門，對其他鄰舍的影響亦不見得一定會減少。
+
+說到底，香港一直行之有效的規管方針，容許經濟活動在合理的環境下進行，而非事先假設要予以杜絕。兩星期前林鄭月娥在發表《施政報告》時說發展香港的創新科技，八大方針之一就是檢討過時的法規。言猶在耳，民政事務總署卻提出要修例以加強執法，反映官僚難以擺脫以執法思維去處理市場問題，最終也只會選擇行政方便，捨棄社會最大利益。這也是為何制定政策和執行政策必須要有獨立分工，否則創新經濟的空間只會越來越狹窄。但正面地看，共享經濟平台的冒起，不但顛覆市場經濟的機遇，更是改造政府政策制訂和執行方針的一次契機。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211129105057/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211129105057im_/https://www.hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

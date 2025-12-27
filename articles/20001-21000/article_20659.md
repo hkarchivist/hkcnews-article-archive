@@ -1,0 +1,97 @@
+---
+title: "《當今大馬》政治打壓中堅持廿載　總編顏重慶：不想令支持者失望"
+date: "2019-05-21"
+last_updated: "2019-05-21 02:11:44"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "馬來西亞"
+  - "馬來西亞聯邦"
+  - "當今大馬"
+  - "顏重慶 Steven Gan"
+url: "https://web.archive.org/web/20210927063358/https://www.hkcnews.com/article/20659/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_steven_gan-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20662/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/20659/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_steven_gan-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-20662/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《當今大馬》政治打壓中堅持廿載　總編顏重慶：不想令支持者失望
+
+馬來西亞知名獨立媒體 [《當今大馬》](https://web.archive.org/web/20210927063358/https://www.malaysiakini.com/zh) 聯合創辦人及總編輯顏重慶（Steven Gan），周日在港出席由香港記者協會與浸會大學「新聞與社會研究所」合辦的講座，擔任主講嘉賓，講述《當今大馬》如何在備受政府打壓、駭客入侵的環境中，成為馬來西亞至今的「第一和唯一」獨立新聞來源。
+
+《當今大馬》創立於1999年，正值國民陣線執政、馬哈蒂爾出任首相期間。其時，所有印刷媒體、電視台、電台等均由政黨直接或間接控制，方興未艾的網絡世界成了傳媒開拓新戰線、與政權抗衡的空間。顏重慶就在那年與拍擋詹德蘭創辦網媒《當今大馬》。
+
+走過20個年頭，曾經被囚禁的顏重慶說起被打壓的日子，朗聲一笑，堅持無悔。他說：「我經常跟記者說，你覺得這很差，但想想在印尼、在菲律賓、在泰國的記者，他們被消失、被虐待，不只是被監禁⋯⋯這不算甚麼，你要堅持下去。」
+
+<figure>
+<img src="https://web.archive.org/web/20210927063358im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/香港記者協會-顏重慶%20Steven%20Gan-當今大馬-20190520231502_123d_large.jpg" alt="">
+<figcaption>《當今大馬》聯合創辦人及總編輯顏重慶（Steven Gan）。莊曉彤攝</figcaption>
+</figure>
+
+馬來西亞於去年大選實現了逾60年來的首次政黨輪替。馬來西亞於1963年建國（新加坡於兩年後脫離聯邦，獨立建國），國民陣線自1965年成為執政黨，及至2018年敗選，由希望聯盟取而代之。
+
+顏重慶指出，馬來西亞是多元社會，種族、語言、信仰、文化各異，沒有一個所謂的「大多數」，但亦都因此難以在多個群體中取得共識，而傳媒就擔當起重要的溝通渠道。馬來西亞現時有55%是馬來人，25%華人、7%印度人、13%來自其他種族，日常使用的語言包括印尼語、英語、華語及泰米爾語。顏重慶說，這就是為甚麼《當今大馬》用四種語言報道，「傳媒的重要性在於提供一個平台，讓不同群體走到一起，討論重要、敏感的議題。希望大家明白其他人來自哪裡，以某種方式達成妥協，即使做不到，至少要認真地決定同意或不同意一些觀點。」
+
+顏重慶表示，馬來西亞是不自由的民主政體，「我們有言論自由，但言論之後沒有自由」、「我們有民主選舉，但不是自由及公平的選舉」。他形容，如果傳媒報道一些政府認為不實的事情，政府會制止記者，甚至拘捕記者。他認為，沒有新聞自由的成因有二：壓制言論自由的法律、媒體直接或間接由政黨操控。
+
+馬哈蒂爾首次拜相期間，於1996年宣布了計劃「多媒體超級走廊（Multimedia Super Corridor，簡稱MSC）」，志在馬來西亞發展高科技經濟特區。顏重慶說：「多謝馬哈蒂爾，承諾不會對互聯網進行審查，以吸引西雅圖、東京等地的公司進駐MSC，到馬來西亞投資。我們於是利用了這個漏洞。」1999年，顏重慶與拍擋詹德蘭創辦網媒《當今大馬》，當時全公司只有4名記者。
+
+<figure>
+<img src="https://web.archive.org/web/20210927063358im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/馬來西亞-馬哈蒂爾-當今大馬-20190520231438_2a41_large.jpg" alt="">
+<figcaption>去年勝出大選、第二度拜相的馬哈蒂爾。美聯社圖片</figcaption>
+</figure>
+
+儘管政府聲言不會審查互聯網，《當今大馬》的敢言作風仍使之成為政府的眼中釘。2003年1月，執政聯盟國民陣線旗下最大黨派是「巫統（UMNO）」，巫統青年向警方報案，稱《當今大馬》刊登的一篇文章令他們感到冒犯，約十名警員去到《當今大馬》辦公室。該文章是讀者來信，筆名「Petrof」，顏重慶拒絕向警方披露筆者身份。警方於是取走全部電腦，共15部電腦的CPU、4個伺服器（當時使用實體的伺服器）。
+
+「他們（警察）在辦公室逗留了頗長時間，有4個鐘。部分原因是因為出面落緊大雨，而且我們警告他們說，如果電腦不能完整回來並運作正常，我們會告你們，所以他們決定等雨停了才走。」顏重慶打趣道。在這段時間，顏聯絡各個媒體，並記得他當時接受CNN直播訪問，而警員站在他前面。及至雨停了，警員將電腦安放在車上的座椅，以確保運送過程穩妥。顏又笑言，「那時候，這些警員都不太認識電腦，他們起初想帶走埋顯示器（monitor），我們說No！顯示器入面甚麼都沒有。」
+
+#### 被警方撿走全部電腦後，《當今大馬》的記者仍留在辦公室，顏重慶形容，這是《當今大馬》成立廿年來其中一個最難捱的時刻。不過就在當天晚上，有群眾來到辦公室樓下、手持蠟燭進行集會。顏重慶憶述，當晚更有人帶著電腦前來，「他們說你可以用我們的電腦，繼續下去吧。有一個人走來跟我說，這是我女兒的電腦。我說不，把它帶回給你的女兒。」顏續道：「我們怎能讓這些人們失望？我們要堅持下去。（How can we disappoint all these people？We have to keep going.）」他說，當晚屬於非法集會，但警員只是站在一旁，沒有行動。
+
+<figure>
+<img src="https://web.archive.org/web/20210927063358im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/顏重慶%20Steven%20Gan-當今大馬-20190518232454_27b2_large.jpg" alt="">
+<figcaption>《當今大馬》辦公室。Marc圖片</figcaption>
+</figure>
+
+在1999至2003年馬哈蒂爾執政期間，《當今大馬》受到政府的打壓與主流媒體的攻擊。2004年，同屬國民陣線的巴達維（Badawi）上台，但對網媒採取放任政策，置之不理，顏重慶形容巴達維時期是他們的「蜜月期」。
+
+2009年，蜜月期告終，《當今大馬》迎來更嚴峻的政治打壓。同屬國民陣線的納吉（Najib）拜相，「納吉本人擁抱互聯網，他有Facebook Page、有Twitter，但我們回到被打壓、被拘捕的時期，亦出現了馬來西亞第一次有首相起訴媒體。」顏重慶說。
+
+「我覺得納吉對媒體的態度轉變，部分原因是見到巴達維執政時期發生的事。2008年大選，反對派突然表現不錯，令人覺得反對派有望執政⋯⋯2008年大選很關鍵，巴達維（勝選，但）受到重挫，納吉即時見到的是他們輸了網絡戰。反對派很好地使用了網絡，而執政黨對於控制主流媒體非常有自信而忘記了網絡。」顏重慶指，2009年納吉上台（巴達維因選戰失利而提早轉讓職權）後，因為巴達維的經歷而決定不能再對網媒坐視不理。
+
+2016年，馬來西亞爆出一馬發展公司（一馬）洗黑錢案，案情涉及首相納吉。《當今大馬》對事件進行廣泛報道，後來因為一則關於執政黨前黨員批評檢察部門與內閣關係密切的報道，顏重慶、詹德德被納吉起訴，控以「意圖滋擾」等多項罪名。直到納吉於去年下台後才撤銷控罪。
+
+但在納吉執政期間，顏重慶形容：「幾乎每個月都有警察上來（《當今大馬》辦公室）⋯⋯只要有人對我們的報道不高興，就去向警方報案，警察就會上來。這純粹是浪費時間，因為最後他們都沒有控告我們。每次浪費幾個鐘去接受查問。」
+
+<figure>
+<img src="https://web.archive.org/web/20210927063358im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/馬來西亞-東海岸鐵路-一帶一路-20190422133702_208c_large.jpg" alt="">
+<figcaption>馬來西亞地標、位於吉隆坡的「雙子塔」。資料圖片</figcaption>
+</figure>
+
+除了來自政府的騷擾，《當今大馬》亦都收過不少其他恐嚇。其中一次是收到活鴨，顏重慶笑言：「不知道這代表甚麼，有人說這是Black Magic Attack。那隻鴨至今仍活著，由我們的一個支持者所照顧。」又一次是收到一條蟒蛇，餐廳保安員發現一個袋裡有蛇，其後聯絡消防員處理。
+
+右翼組織亦曾到《當今大馬》辦公室示威，「我不清楚他們想證明甚麼，他們威脅說要破壞我們的大廈。所以我們決定邀請對方的領袖面對面傾談。他很意外，因為他沒有想到會被邀請。我們對話約5分鐘。然後他們就離開了。但至少我們認為，我們可以跟人們說，對方或許有1000人，我們不會被影響。」
+
+#### 直到去年大選，前首相馬哈蒂爾領導反對黨希望聯盟，實現馬來西亞首次政黨輪替。顏重慶認為，雖然不能盡信馬哈蒂爾，但在過去一年見到他的改變。顏重慶說：「馬來西亞多了許多自由，政府某程度尊重新聞自由，他們不再打壓傳媒、尊重記者，不再審查傳媒說這個不能報道、那個不能報道。」今天的《當今大馬》，已經有60名記者，加上40名做市場營銷、技術支援等的同事。有500萬Facebook支持者、150萬Twitter用戶追蹤、平均每日有500萬點擊次數，旗下的KiniTV有100萬用戶追蹤，去年營利達到300萬美元。
+
+<figure>
+<img src="https://web.archive.org/web/20210927063358im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/05/顏重慶%20Steven%20Gan-當今大馬-楊健興-20190520231528_1279_large.jpg" alt="">
+<figcaption>顏重慶（中）擔任主講嘉賓，講座參與者大多是現職／前記者。莊曉彤攝</figcaption>
+</figure>
+
+走過20個年頭，顏重慶始終心懷希望，或許與他創辦《當今大馬》前一度入獄的經歷有關。1996年，他當時任職馬來西亞《太陽報》記者。「當時在吉隆坡有個國際會議，談及東帝汶獨立運動。那時（印尼）由蘇哈多掌權，我估計蘇哈多一定有告訴時任首相馬哈蒂爾，讓他阻止會議進行。我到會議上見幾個朋友。當他們正在進行會議，約200個執政黨的青年衝入會場，停止了會議，並嘗試挑釁與會者，幸而他們沒有回應，否則一定是大型打鬥。」
+
+他續道：「最後警方來到，拘捕了所有與會者，而不是來抗議的執政黨青年。我雖然是記者，也被捕了，在獄中過了7天。」就在被拘留的當晚，有群眾前來聲援，同樣帶著蠟燭到場集會。被拘留的50人，被分配到不同囚室，顏重慶所在的囚室有個小窗，可以見到外面聲援的群眾。
+
+#### 顏重慶憶述：「我記得被拘留期間的其中一日是我的生日，大概是35歲的生日。一個夜裡，我們聽見外面有人唱歌，其他被囚者想我告訴他們外面發生甚麼事。所以，我爬上小窗，望向外面，我見到一片如海的燭光，因為他們手持的是蠟燭，我在夜裡看不見蠟燭，但我可以見到光。然後我告訴他們，這是我至今收過最好的生日禮物。」
+
+#### 「我覺得人們展示支持是很重要的，這給我堅持下去的信念。我認為人們傾向低估（展示支持的作用），你可能前去支持某人，你覺得你只是許多人當中的其中一個，但那對在囚／被打壓的人而言是重要的。即使只有一個人出來支持，也說明了有人在外面支持你，你沒有被遺忘。所以我覺得如果某些事情發生了，你要走出來。」
+
+
+{{< video src="https://web.archive.org/web/20210927063358if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FHKJA.official%2Fvideos%2F354765842059272%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210927063358/https://www.hkcnews.com/aboutus/#subscribe)

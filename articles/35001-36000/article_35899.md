@@ -1,0 +1,61 @@
+---
+title: "林鄭罕有提未成年被捕者可警司警誡或簽保　關注團體指實例「少之又少」"
+date: "2020-11-25"
+last_updated: "2020-11-25 19:26:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "未成年"
+  - "被捕人"
+url: "https://web.archive.org/web/20220125161950/https://www.hkcnews.com/article/35899/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35908/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/35899/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35908/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭罕有提未成年被捕者可警司警誡或簽保　關注團體指實例「少之又少」
+
+特首林鄭月娥在《施政報告》指，在反修例風波被檢控的人士中，18歲以下、有悔意而非涉及嚴重罪行的被捕人士，警方願意視乎情況考慮採取讓其改過自新的措施，例如以警司警誡或簽保守行為處理，但前提是該未成年人士需承認他犯錯的行為。
+
+由溫和建制學者宋恩榮、宋陳寶蓮夫婦推動的 [「蛻變計劃」](https://web.archive.org/web/20220125161950/http://www.cadlprojectchange.org/zh/) 回應說，歡迎特首在施政報告提出措施，但表示反修例風波至今18個月，以警司警誡方式結案的僅得16名未成年人士（政府數字是19人），促請當局交代：「為何以警司警誡方式處理的案例少而又少？為何近日為涉案青年申請簽保守行為越來越困難？」
+
+值得留意的是，警司警誡及簽保並非特赦或新措施，而是現有刑事制度中沿用已久的制度。
+
+### [2020施政報告相關文章](https://web.archive.org/web/20220125161950/https://www.hkcnews.com/event/97)
+
+<figure>
+<img src="https://web.archive.org/web/20220125161950im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/中學生-被捕-527反惡法大三罷-20200528135406_2298_large.jpg" alt="">
+<figcaption>反送中運動中4成被捕者為學生。資料圖片</figcaption>
+</figure>
+
+林鄭月娥在記者會解釋，她見到多名年輕學生被捕感到心痛，一直與保安局局長李家超及警務處處長鄧炳強探討，如何協助學生有改過自新的機會，最終在鄧炳強同意下在報告中提及此安排。
+
+林鄭表示，在逾1萬名因反修例而被捕的人士中，大約2,300人被檢控，當中只得19人接受警司警誡；至於簽保守行為方面，由警方直接簽保而不落案控告的有11人，另外有230人是經司法程序、在法院席前簽保守行為。
+
+根據警方截至9月份數字，逾1萬名因反修例被捕人士中，1731人即約17%（1234男、497女）為18歲以下，涉及罪名包括參與暴動、非法集結、刑事毀壞、襲警、阻礙警務人員執行職務、藏有攻擊性武器等。當中403人已被檢控。
+
+林鄭呼籲，被捕人士的家長、老師、校長或朋友，應鼓勵他們承認犯錯，「我們很關心他們，犯法就是犯法，但是有出路的，請各位被捕人士或家長看著情況，鼓勵被捕學生承認錯誤。」
+
+警司警誡是指當一名介乎10至18歲的青少年干犯罪行，警方除提出起訴外，可根據 [警司警誡計劃](https://web.archive.org/web/20220125161950/https://www.police.gov.hk/ppp_tc/13_faqs/faq_cri.html) 處理，由一名警司或以上職級人員行使酌情權，對青少年罪犯作出警誡，而不提出起訴，涉案青少年須接受警方監管，為期兩年或直至該名青少年年滿18歲為止。決定是否以警司警誡的手法處理案件時必須考慮的因素，本來已包括「涉案罪犯自願及明確承認罪行」一項。其他因素包括罪行的性質、嚴重程度及普遍性；涉案罪犯過往的刑事紀錄等。
+
+至於簽保守行為，被要求簽保守行為的人，須透過擔保方式，承諾保持行為良好及遵守法紀。值得留意的是，簽保守行為，沒有明確要求必須要涉事者承認過錯。
+
+港大法律學院首席講師張達明表示，無意揣測為何林鄭在施政報告提及兩個措施，認為兩個措施本身都是制度，最終都要看控方接受多少個案、法庭是否同意等，林鄭對使用措施的鬆緊並無表述。
+
+「我覺得唔需要在施政報告去講，有少許⋯⋯呢樣嘢主要處理係律政司、法庭同被告。所以要做，唔駛喺施政報告度提。呢個唔係施政嘅問題。」
+
+宋恩榮及宋陳寶蓮夫婦牽頭組成的蛻變計劃亦促請政府回應為何批出警司警誡及簽保守行為的數字偏低。
+
+**以下是「蛻變計劃」聲明全文：**
+
+特首林鄭月娥在《施政報告》表示，「在超過10000名因反修例而涉嫌違法的被捕人士中，四成是學生，當中接近2000名是中小學學生，怎不令人痛心呢？」.........「對於18歲以下有悔意而非涉及嚴重罪行的被捕人，警方願意視乎情況考慮採取讓其可改過自新的措施，例如以警司警誡或簽保守行為來處理，但前提是該未成年人需要承認他犯錯的行為」。
+
+蛻變計劃歡迎特首提出「警司警誡」及「簽保守行為」這兩種不留案底的措施讓涉案年青人可改過自新。其實蛻變計劃自成立以來一直向涉案年青人推薦並為他們爭取以上兩種不留案底的安排。不過，按照我們半年以來的經驗，上述兩種措施卻有待充分落實。對特首的聲明，我們希望政府澄清以下疑問。
+
+首先，反修例事件至已經18個月，約2000名 18歲以下的涉案少年只有16人以警司警誡的方式結案，比例微不足道。
+
+其次，按香港法律，簽保守行為並沒有「18歲以下」的年齡限制，可以用於任何年齡、值得例外處理的個案。考慮因素除了涉案人士屬初犯、有歉意、罪行性質輕微、過往品行良好，也考慮涉案人士的精神狀態，例如是否有精神問題等等。
+
+為何以警司警誡方式處理的案例少而又少？為何近日為涉案青年申請簽保守行為越來越困難？特首表示「警方願意視乎情況考慮採取讓其（涉案年青人）可改過自新的措施」，用意本善，不過如何推行，還需要警方、保安局、及律政司進一步澄清及落實。

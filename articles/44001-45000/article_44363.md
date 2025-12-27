@@ -1,0 +1,157 @@
+---
+title: "蔡玉玲：「Move on不代表放棄追尋真相，要相信所堅持是有價值。」"
+date: "2021-08-13"
+last_updated: "2021-08-13 07:01:09"
+author: "特約記者陳零"
+category: "眾聞"
+tags:
+  - "鏗鏘集"
+  - "蔡玉玲"
+  - "721元朗恐襲"
+url: "https://web.archive.org/web/20211027122208/https://hkcnews.com/article/44363/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44367/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDmove-on%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44363/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44367/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDmove-on%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 蔡玉玲：「Move on不代表放棄追尋真相，要相信所堅持是有價值。」
+
+**2019年7月21日，註定成為香港歷史的圖騰。這一天載著未解的疑團，似乎來到今天，還是未有答案。「做了能力做到、應該做的事，就要 move on (繼續前行)，未來有更多重要的事要做。」或者，終此生亦未能找到真相，但蔡玉玲寄望與香港人「一直問問題，透過掌握零碎碎片，盡量逼近真相。」她今天（13日）已啟程到美國，將在哈佛大學進修一年。**
+
+<figure>
+<img src="https://web.archive.org/web/20211027122208im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/車牌查冊-蔡玉玲-20210813023211_3053_large.jpg" alt="">
+<figcaption>經歷化作養分，前行成為動力，未來再見一定是更好的自己。Paul Yeung攝</figcaption>
+</figure>
+
+### 為信念　從沒退後
+
+從來，新聞工作者都寂寂無聞，默默耕耘。除了少數的電視主播，敢信你叫不出幾個記者的名字。
+
+2020年11月3日中午，新界北區重案組探員上門拘捕蔡玉玲，涉嫌兩項「明知而作出要項上的虛假陳述罪」，並於2021年4月22日被判罪成。全城譁然。的確是同聲一「嘩」 —— 記者因為採訪查冊被定罪，已夠荒謬。更震撼是，事件緣於香港電台節目 [《鏗鏘集：7.21 誰主真相》](https://web.archive.org/web/20211027122208/https://www.youtube.com/watch?v=6psWa6uVoVY) ，編導之一的蔡玉玲，因為查冊車輛登記而被定罪；然而，721事件至今，真相未明。
+
+自此，蔡玉玲與元朗721事件，與香港人，與未找到的真相，就連結在一起。
+
+「第一次上庭、第二次判罪成，要定格一刻的話，這兩個畫面肯定最難忘。」過往，她經常因為工作而走訪法庭：「第一次被告就因為做新聞，整件事很不真實；當自己第一次踏上被告席，被問是否明白兩條控罪，要答明白控罪，對我是前所未有的體驗；而在那個background（查冊）、那件事（721）下被告，內心當然覺得很荒誕。」 前後半年，審訊結束，塵埃落定，情緒紛雜。「好傷心、好失望、好難過，腦海浮現好多問題，應否上訴 **[1]** ， 對自己、對業界有甚麼影響。」
+
+荒誕在前，被停職、被定罪，但蔡玉玲說，自被捕那天以來，從未曾因為案件而失眠。「事件不由自己控制，一直都很被動，盡量叫自己平常心面對，亦可能因為問心無愧吧。當沒有覺得自己確實做錯甚麼，沒有對誰不起，是心安理得吧。」案件帶來是具體的影響，因為被停職了，就要躊躇生計：「對我心理影響不算很大，反倒是讓家人擔心了。」
+
+在她捲入訴訟的第一星期，她媽媽每天都給她打電話。「問：『你喺邊呀，返咗屋企未呀？』很明顯，那星期她好緊張。」有一晚，她不能接媽媽的來電：「當晚她就睡不著了，擔心不知我到了哪裏去。」蔡玉玲生於基層家庭，父母是每天為口奔馳的上一代，但對她的選擇，絕少干預。
+
+「整件事要說有一個人我對不起的， 一定是我家人（媽咪），我feel sorry（愧疚）亦做不到甚麼去釋除她的擔心。」可有多了回家探望兩老？「沒有因為案件改變原有生活，但父母年紀大了，跟他們互動是多了。」有因此多了擁抱嗎？「嗯，我們不是這種的。」看似沉著、平靜的她，也有一閃即逝的靦腆呢。
+
+風雨過後，蔡玉玲是泰然自若的。然後，她要繼續前行了。
+
+「721事件在自己長大的社區發生，是有情感牽連的，但《7.21 誰主真相》只是自己記者生涯其中一個報道；它當然為我帶來人生轉捩點 — 被捕、被告，但這些都會過去的，我不會將它放在身上，成為包袱。」她會記著這事件，記著這報道：「對很多香港人來說，（721）是重大事件，如果 5年、10年後，歷史沒有給抹走，不得不承認 721是反送中一個重要的轉捩點。」可是，她認為不應該停留在那個階段：
+
+#### 做了能力所能做、應該做的事，就要 move on（繼續前行），未來有更多重要的事要做。
+
+前行不代表放棄追尋真相：「我和大家一樣，都有很多問題：究竟整件事有沒有一個有系統的組織？如果有，組織來自哪裏？系統又是甚麼？但我會明白終一生都未必找到（真相）。」時間是最大敵人，令真相變得模糊：「但會否在10年、 20年後，有更多證人出現？我不知道，但希望大家會一直問這個問題。」
+
+在蔡玉玲心中，難有所謂的真相，因為無人是全知全能：「有許多盲點、死角是看不見的，我們只能透過掌握零碎的碎片，盡量逼近真相，看到接近真相的全貌。那未必是一、兩年間可以做到，時間愈長、難度愈高，但就繼續去做，希望有天會愈來愈靠近真相。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027122208im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/蔡玉玲-車牌查冊-20210813023153_24e6_large.jpg" alt="">
+<figcaption>人是要選擇一條可以前行的路。Paul Yeung攝</figcaption>
+</figure>
+
+### 柳暗花明
+
+審訊了結後月逾，歷史最悠久的新聞從業員進修獎學金——哈佛大學尼曼獎學金（ [Nieman Fellowship](https://web.archive.org/web/20211027122208/https://nieman.harvard.edu/fellowships/) ）宣佈新一屆獲獎研究員，22 位得獎記者名單上，寫有蔡玉玲的名字。
+
+來得正好，她有了前行最完滿的方向。
+
+「父母年紀大，都有擔心的，但（課程）時間短，明年6月便完成了。媽咪都欣喜的，覺得難得有出國讀書的機會。」她說這是第二次申請同一獎學金，第1次是2018年底。「2007年做記者，到2018年，大約10年左右，所學的、識的，都到了樽頸，想去見識一下。」當時，她剛離開工作兩年的 [傳真社](https://web.archive.org/web/20211027122208/https://www.factwire.org/) （FactWire News Agency）：「在思考獨立新聞機構在香港，究竟有無切實可以sustainable（可持續）的營運模式。」
+
+當年，她未有獲得獎學金，然後她以外判身份，再次替香港電台拍攝《鏗鏘集》。「由早期做《議事論事》，用政治思維去看議會、社會事件，直到2012年，社會運動出現新一波的興起。」她亦開始參與製作《鏗鏘集》：「初期都在摸索，嘗試用長片形式、用22分鐘去『講故仔』。」
+
+蔡玉玲形容，當年製作空間很大，沒有遇到太多制肘：「做過大型調查報道、即時性新聞回顧、人情故事，還有機會做内地 feature（專題）。」後期，她對調查新聞產生興趣，才決定於2016年轉投傳真社；她甚至放棄了他人夢寐以求的公務員合約。
+
+安穩又高薪的新聞工作崗位，於她而言，是那麼輕於鴻毛？「調查報道具挑戰性，有些事情社會不知道，記者將其暴露，面對的阻力和困難很大，但滿足感亦大，我想就是調查報道的魅力。」
+
+#### 情況好比解謎，要窮盡所有方法去接近謎團的核心答案，是有趣的，但更重要是覺得其中必定涉及重大公眾利益，才會值得花那麼多時間、氣力和資源去找出答案，亦解釋了世界各地那麼多記者終其一生都會做這麼多調查報道。
+
+沒有《傳真社》調查報道 **[2]** 的經驗，或者就未必有2020年的《鏗鏘集：7.21 誰主真相》。
+
+「2019年的反送中（運動），來到2020年底，是暫時進入另一階段，還是衰落也好，都是一個好時機有個 mid-career break（離職休假），去思考問題。」2020年10月，她再次申請哈佛大學尼曼獎學金。
+
+沒想到，一個月後她被捕了。2021年4月，她被判罪成，但同樣沒料到，一個月後她獲頒獎學金，於同年8月起程到哈佛大學進修一年。「我會形容為是『瀨尿牛丸』成形，把所學的放進去，又或者是做過的，improvise （即興）放進去。」
+
+過去兩年，新聞媒體和新聞從業員幾經風暴。「對港台變化，對《鏗鏘集》濃厚感情，都花了前人很多心機才建立起來，在這麼短的時間給肆意破壞，與大環境密不可分。但有時就是要move on（前行），無得去爭取，件事是很被動的；無得死都要做《鏗鏘集》、無得不被捕、不被告， **人要選擇一條繼續行的路， 選擇『停喺度』（停在一點），對件事、對自己都無好處，對我信奉的價值無益，不如輕裝上路，繼續在行業發揮我的價值，才不枉過。** 」
+
+「今時今日的香港，要得到公義看似渺茫，希望香港人記著這個感覺，去支持仍能夠存在的媒體。我仍然相信獨立新聞、decentralise（去中心化），是香港新聞的出路。在高壓環境下，新聞機構愈百花齊放，政權愈難針對。」歷史上，獨裁高壓政權面對的挑戰，總離不開媒體與政權處於角力：「明白是實力懸殊，但如何在這個空間盡量拖延、盡做，是大家都在面對的問題。」她帶著許多問號，希望在這一年間，找到一個半個答案。
+
+會回來嗎？「出發時，無想過不回香港，只是抱學習更多的心智（到美國），（將來）可以貢獻香港。」然而，此刻時局變化以日計：「我是個 never say never（永不說不）的人，亦不知道一年後自己有甚麼新想法，未必是單一的去與留，是個人很多factor（因素）拉扯，這刻沒有definite（肯定）答案。」
+
+唯一肯定是，她完成學業，還是會回到傳媒的崗位。「未必透過單一的新聞工作去定義自己，但會一直留在這 arena（崗位），我不是做完A就可以離場都無所謂那種，我想做新聞，會看怎樣可以維持戰鬥力、長長久久留在戰場實踐經歷那種。不知這是否叫做精神勝利法。」
+
+#### 可以很有耐力、長時間留在戰場是最重要的，比打過一場很精彩的球場，但可能因傷退賽的好。
+
+「未有具體目標，但會把所學化為我的養份。不知道回來後有甚麼際遇，是加入新聞機構，還是和一班獨立記者做 ongoing project（持續項目），沒有想得很實，去到那個階段，就會指你去另一條路，我會好開放、好包容，去接受所有可能性。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027122208im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/蔡玉玲-車牌查冊-20210813023236_185c_large.jpg" alt="">
+<figcaption>記者的生活註定不會是安穩的，今天更又添上幾分危險，但一頭栽進去，就難以輕易言退。Paul Yeung攝</figcaption>
+</figure>
+
+### 盡量慢慢做
+
+訪問在蔡玉玲練習瑜伽後進行。她修習瑜伽已八年，一星期兩課，從沒有偷懶，因為真心熱愛這件事。
+
+她說做瑜伽讓她很平靜，可以靜觀身心變化。「我不是身體很靈敏那種，但會將勤補拙，我不是很有才華的人，但會好有耐性，很長時間做一件事，容許自己無甚麼明顯進步，但享受持之以恆。這是我的性格，認識自己，知道自己喜歡甚麼，選擇自己生活模式。」
+
+她熱愛傳媒工作，未有想過離開：「我相信要有持久戰鬥力，人生很漫長，記者生涯亦很漫長；我會鬥長命，盡量慢慢做，身體或隨年紀大而有限制，那就由一個崗位轉去另一崗位，會為自己做好準備。」
+
+「未必是 yoga，有人禪修、有人meditation（冥想）、玩音樂；身心是要培養的，身體心靈的健康，是需要努力，怎樣保守自己身心，要找適合自己的方法。」 也不一定是時代太壞，就算是最好的時代，也需要保守自己身心，讓自己活得好好。
+
+**或者，因為一宗案件，讓蔡玉玲突然成為新聞人物。**   
+ **或者，因為這宗案件，讓蔡玉玲在人前流過淚。**   
+ **這其中並沒有曲折傳奇，她還是與香港人一起走過荒誕的日子。**
+
+「我也是和香港人在這大時代一起成長，once（只要）與社會 connect（連結），就不會獨善其身；社會怎樣變，自己也會跟著變，有種共同體的想法，因為是在跟大家一起經歷，無論大家身處在甚麼地方 ，而從香港人作為群體去看，是有一個徹底的顛覆。」
+
+在訴訟期間，蔡玉玲得到實在的支持，包括杜汶澤的 [工作機會](https://web.archive.org/web/20211027122208/https://www.lateshow.net/videos/老戲橫秋-最新上線/) ，她說「盡在不言中」。「那些不認識的，在街上遇到的，走過來說句支持加油多謝，那些默默認同自己的人更觸動，明白到原來他們默默認識這件事，知道在發生甚麼事，令自己對社會的形態多了信心，令自己相信堅持是有價值的。他們不是公眾人物，成本更大，要克服的更多，說句話都有很多憂慮。」這些種種，她都放了在心。
+
+立於今天，她引用前港台同事鄭思思的說法：「我們走進了一條很長、很黑的隧道，也不知何時是盡頭，但有很多人在隧道內一起前行。」這也是她的信念：「要知道很多人都有相同感覺；要知道很多人在陪你行，你不是孤獨的。我們會一起行到見到光，但不知要多久的。留在入面，就多留意身邊的人，互相支持、好好關懷、 好好生活，無論有多黑暗，盡量好好照顧自己身心，抱持信念。」
+
+她只要求自己保守底線和良心，未必要做偉大的事：
+
+> **不做壞事、不做壞人，已經好難得。那怕是老師好好教導學生，不說違背良心的話；記者不做違心的報道；任何專業堅守專業的價值，已經好難得。我們的社會就是透過這樣的個體，得以維繫，現在未必是時機，但有天總可以振作起來，不知要等多久，或者是我們下兩代、三代，但我們要相信所堅持的，是有價值的。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20211027122208im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/車牌查冊-蔡玉玲-20210813023228_b1df_large.jpg" alt="">
+<figcaption>她說，要相信堅持做一個人是有價值的。Brenda Wong攝</figcaption>
+</figure>
+
+### 採訪後記
+
+約訪蔡玉玲並不容易，幾經轉折，終於見面。
+
+大家都做傳媒，新聞記者是有一種性格（笑）。況且又不知有甚麼交情，要在短短一小時，讓她真情流露，暢談經歷，幾乎是不可能的。不過，還是想說，在她回覆時，第一句就說自己是阿包，好像一下子就拉近了彼此的距離。見面後，她也有記者那種不怕陌生又不會太熱情的態度，很自然，令人很舒服。
+
+我們來到贊助場地，不幸地找不到冷氣的遙控，焗熱良久，也耽誤了訪問時間。訪問完結，明明她要趕赴另一個約會，還在跟兩位攝影師閒聊幾句，反而是我在催促她，怕她會遲到。
+
+的確，耐性是一種修為。那亦將決定我們在這崩壞的時代能走多遠。
+
+### 續後記
+
+在她離港前，因為跟進她在《立場新聞》發布的【721】系列，我們再次匆匆見面。她說系列早在去年已落實會做。一年間，物事人非，也不用多問她為甚麼繼續做。鍥而不捨，就是這樣。
+
+她再次說了當日步出法院的一句：「繼續做新聞，是對判決最好的答案。」
+
+訪問協議在她離港後才發布。阿包說：「今日做記者，多了考慮報道會否影響受訪者的人身安全。」我記了在心。
+
+第二次見面，因為攝影師Paul Yeung是阿包大學時新聞攝影的導師，二人聚舊閒談，也有關切問候，還拍下阿包輕鬆大笑的一面。揀相時，跟Paul說想選一張大笑的阿包，讓大眾看見她的另一面。其實，還有鬼馬和日系少女的一面，不過那些就讓她自肥吧（笑）。
+
+鳴謝場地 [Hygge Bar](https://web.archive.org/web/20211027122208/https://www.instagram.com/hyggebarhk/)
+
+**註釋：**
+
+1  蔡玉玲2021年5月5日在社交平台 [貼文](https://web.archive.org/web/20211027122208/https://www.facebook.com/bao.choy.5/posts/10157821915147021) 表示已委託律師進行上訴。   
+ 2  蔡玉玲 [〈35列中國製新加坡地鐵現裂紋秘密回收退內地〉](https://web.archive.org/web/20211027122208/https://www.factwire.org/investigation/35列中國製新加坡地鐵現裂紋秘密回收退內地-同一/?__cf_chl_jschl_tk__=40550776aa5a6d024443e9a60f37da1bcd974d60-1626149835-0-AaIghZIDNQaDnhRjnuEoucXq-0xM-pvVCRp5e3tS0GC3yzSEzrbQLfkDDS3ZIzsd7rEuHL8pb0W-m0kCmV5MA9AXJ-4C3exVAoHHjIT1Mbltmz9RTi2nfRQuz6hSgx7mytX65NX75XyFbFXXbkHqP0J1MnEmGSra1_ycJLpX7tT38BCKq4Mew3gpfWiP4q0gWXDQBrJ-Bh6rg57LPxdDV1_dDELXpCtt2X9etgdue9oL43THO33GJVYd4c4hKjMcUH-iFZN-osAWSS7sP48dHphM2XxsLfdLWBq5ok5HzYS2miCeQwNvWRfdWbJD27q4KMMAOzSo3W61RNCJSzyFeZf7L4LWYRyeRGVvA9z00i9G1MYjN_xbFlou7n5lkFfAEscK6NMQVNNpZ-7TwhR8YOVvFhpIHCm8mvt_b289DSBZX0eIbpM9riZ1zJq71UhVERfYIuGVyNxdNiefTVvfHIUG8UlpWIFetIxkM-Qa07ZM_2USRVUYI5YzAqq-u96rKGCA3Bosw2yJG_-wcellSZi90svPmCcXOt3uf6UPWDoZVLLEGeV3wfePVbYvb65cEyQjjflZ3Wnbmk8EpA6RcEze2sZsEpDua4D7H-sz8LKeihuoSIXhscGsIsng9LMgzvBxApNv_2eVnMM3Uqn-h6Tkd9v8IKaCDtolHr42BiQy) (香港：傳真社，2016年7月
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027122208/https://hkcnews.com/aboutus/#subscribe)

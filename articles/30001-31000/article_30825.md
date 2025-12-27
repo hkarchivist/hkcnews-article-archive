@@ -1,0 +1,57 @@
+---
+title: "民主派7月11、12日公民投票初選　戴耀廷料DQ風險非常大　各團隊正籌劃Plan B"
+date: "2020-06-09"
+last_updated: "2020-06-09 20:40:47"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "公民投票"
+  - "民主派初選"
+  - "2020立法會選舉"
+url: "https://web.archive.org/web/20221205055620/https://www.hkcnews.com/article/30825/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30827/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDplan-b"
+original_url: "https://www.hkcnews.com/article/30825/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30827/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD7%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD12%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDdq%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDplan-b"
+---
+
+# 民主派7月11、12日公民投票初選　戴耀廷料DQ風險非常大　各團隊正籌劃Plan B
+
+民主派公布立法會選舉協調機制，將在7月11日及12日舉行公民投票，13日公布結果，目標希望至少17萬人投票。負責統籌的港大法律系副教授戴耀廷表示，預料民主派參選人最後會被DQ的風險非常大，各團隊都正籌劃Plan B，協調機制會盡量承認，一旦發生DQ，該候選人指派的Plan B會得到協調機制的認可。
+
+選舉事務處暫定在9月6日舉行立法會選舉，選舉提名期定為7月中旬至7月下旬。
+
+<figure>
+<img src="https://web.archive.org/web/20221205055620im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/民主派初選-公民投票-20200609194708_18bd_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+投票日定在7月11日（六）及12日（日），市民可於早上9時至晚上9時，到實體票站進行電子投票，範圍涵蓋5個地方選區、功能組別「超級區議會」以及衛生服務界。負責統籌的港大法律系副教授戴耀廷指，是次投票會採用有別於以往公投的全新系統，市民會在其選區的票站，以自己的智能電話掃瞄場內提供的二維碼，以進入投票系統作電子投票，屆時須輸入少量個人資料，如部分身份證號碼等，以防重複投票。為確保投票人士是當區選民，市民須提供住址證明、官方發出的投票通知卡或選舉事務處選民記錄截圖，不能跨區投票，小量特別票站會準備紙張選票。
+
+衛生服務界的選民則有特設票站供投票。衛生服務界為少數競爭較大的功能組別，據悉目前有4名非建制派人士有意參選，包括現任議員李國麟、醫管局員工陣線主席余慧明、專職醫療人員及護士協會幹事劉凱文、仁安醫院護士學校校長袁偉傑。至於功能組別其他界別，大多數只有一名民主派候選人挑戰建制派；教育界有指非建制補習老師蔣旻正會挑戰教協葉建源連任，戴耀廷指，由於教育界選民中民主派得票比很高，所以即使多於一隊民主派團隊出選，失去議席的機會也不會太大。
+
+民主動力會在7月13日公布投票結果。戴耀廷指，希望投票人數可達去年區議會投予民主派的170萬人當中的10%，即是17萬人。選舉事務處暫定在9月6日舉行立法會選舉，選舉提名期定為7月中旬至7月下旬。
+
+有意參選者可以在6月13日至20日報名，凡認同民主派要在今屆立法會選舉爭取「35+」的個人或團體，都可報名參與，民主動力會在6月24日公布參選名單。而在6月25日至7月9日，民主動力會協助18區區議會民主派舉行選舉論壇，並宣傳公民投票。
+
+公民投票的排位結果，會用作協調參選官方正式選舉的名單。部分選區已擬好參選名單數目，目前各區商討的參選名單數目如下：九龍東5張；新界東7張；新界西6張；超級區議會4張；而九龍西及港島會待公民投票後再決定。
+
+計劃第二階段，民主動力8月18日至9月1日會委託香港民意研究所進行民意調查，以電話抽樣方式，在每個地區直選選區至少採集1000個樣本，調查在各區參與官方選舉的所有民主派及非民主派參選名單的支持度，屆時再參考民意調查結果，決定最終推薦名單數目等安排。戴耀廷指，目前民主派目標是在新界東及新界西各取6席、九龍西及港島各取4席、九龍東3席，另外超級區議會取3席。戴耀廷解釋，參選名單較目標議席多，是因為希望在官方選舉程序中，讓市民有對參選人更多認識。
+
+民主動力為計劃代為進行眾籌，目標希望籌到350萬元。戴耀廷指，目前正在尋求可設置票站的地方，包括黃店、議員辦事處等，指最理想是在452個區議會選區有票站，但因有些選區相鄰、有些選區地點較偏遠，故希望至少可設立200個票站，呼籲黃店或其他場所借出地方。
+
+<figure>
+<img src="https://web.archive.org/web/20221205055620im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/公民投票-民主派初選-20200609194630_ea6d_large.jpg" alt="">
+<figcaption>民主派召開記者會公布詳情。鄭靖而攝</figcaption>
+</figure>
+
+### 料DQ風險非常大
+
+戴耀廷指，在中央直接為香港制定國安法的形勢下，民主派參選人最後會被DQ的風險非常大，即使在官方選舉中成功提名的侯選人，都可能在投票日前被DQ，甚至在當選之後被取消議員資格，但無論形勢如何惡劣，相信參與公民投票的市民都會掌握機會表現追求民主的決心。他指，預見公民投票的程序會被不同政見的人或警察干擾，甚至最終所有民主派支持的候選人的政治權利都會在官方選舉被剝奪，但仍認為要讓港人有機會通過公民投票程序，在社區實踐民主參與，呼籲香港人積極參與。
+
+區諾軒亦指，國安法下未來很可能出現新一輪DQ潮，但不認同公民投票是沒有意義，「民主派要以最好的準備，為市民爭取最大的願望。」選舉論壇上參選人的言論，會否增加被DQ的風險，區諾軒指，相信每個候選人都會思考如何回應關鍵問題，會想到適當答案應對，亦希望市民在政治氣候惡劣下多加體諒。戴耀廷指，各團隊都正籌劃Plan B，協調機制會盡量承認，一旦發生DQ，該候選人指派的Plan B會得到協調機制的認可。
+
+至於參選人需否承諾進入議會後會否決財政預算案及施政報告，戴耀廷指，協調過程中大家都對為何要爭取35+有共識，但在國安法下，「我哋唔會愚蠢到製造藉口畀當權者DQ」，指是靠雙方互信。
+
+就初選是否具約束力，戴耀廷指，眾人商討時都同意，將會由投票結果的排名優次出選，落敗的人將不會參與官方正式選舉。民主動力趙家賢則指，每人都有參選的自由，無法威迫利誘他人不參選，但指民主陣營有道德責任，要向市民交代。
+
+被問到會否有人不願參加機制，戴耀廷指，過去差不多連繫了所有有意參選的人，包括本土派人士，已建立一定程度信任及達成共識，最終只有熱血公民表明不參與。
+
+熱血公民現任立法會議員鄭松泰回應為何不參與機制時指，熱血公民的政治綱領及政治立場，與現時參與協調的其他黨派不太相同，強行協調只會內部掀起爭鬥，徒添不必要的磨擦。他質疑用協調機制「分餅仔」，有違民主的意思。鄭松泰表示，熱血公民正積極考慮出戰三區，包括鄭松泰考慮在新界西角逐連任；大埔區議員黃兆健考慮出選新界東；莊芷茵考慮出戰港島區，鄭錦滿考慮排第二為其「抬橋」。

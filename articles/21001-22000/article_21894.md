@@ -1,0 +1,70 @@
+---
+title: "兒女上街怎麼辦？（二）歷史的啟示"
+date: "2019-07-07"
+last_updated: "2019-07-07 11:32:51"
+author: "華人基督徒義顯社"
+category: "眾說"
+tags:
+  - "青少年"
+  - "父母"
+  - "逃犯條例"
+url: "https://web.archive.org/web/20210725153122/https://www.hkcnews.com/article/21894/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21895/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21894/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21895/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 兒女上街怎麼辦？（二）歷史的啟示
+
+【撰文：山山】   
+   
+ 當不公義的事發生了，家長如何引導子女？兒女在甚麼情況下才決定參與示威行動呢？孩子除了要審視事件、自省個人委身的程度外，更要當機立斷，思考行動的時間性和法律性。   
+   
+ **參考例子：馬丁路德金（Martin Luther King, Jr.）在五、六十年代美國南部爭取推翻種族隔離政策**
+
+<figure>
+<img src="https://web.archive.org/web/20210725153122im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/馬丁路德金-Martin%20Luther%20King%20Jr-MLK-20170115174421_293a_large.jpg" alt="">
+<figcaption>在上世紀五、六十年代的美國，馬丁路德金牧師以非暴力抗議行動，發起反種族歧視抗爭。網絡照片</figcaption>
+</figure>
+
+**（一）審視：**   
+ 首先，家長最好與子女共同探討事件的始末，盡可能掌握事實真相，確認是否真的有不公義的情況。同時，檢視是否已通過正常途徑如反映、磋商、談判、仲裁等都不成功。   
+   
+ 例：美國南部種族歧視根深蒂固，最高法院甚至判為合符憲法，已經沒有其他途徑可循了，故馬丁路德金最後只好號召公民抗命（civil disobedience），挑戰歧視性的法律。   
+   
+ **（二）自省：**   
+ 孩子要清楚明白參與示威的代價，有些地方的法律會禁止，兒女必須反問自己是不是有心志作出犧牲，而不是一時之勇。   
+   
+ 例：那時代南部的黑人公然在白人地方靜坐是犯法的，會被捕判監，馬丁路德金自己便鎯鐺入獄，受盡白人指責。   
+   
+ **（三）時間性：**   
+ 你的孩子所爭取的，是否有人叫他再等？那麼，他必要嚴肅審視，對方是否為保障特權而施行「拖」字訣。   
+   
+ 例：美國南部奉行種族隔離政策達一個世紀，不少人仍批評馬丁路德金應該忍耐再等。從歷史看，鮮有享受特權的政府自願放棄優勢的，黑人的要求已經被敷衍這麼久了，延遲太長的公義，就已不是公義了。   
+   
+ **（四）法律性：**   
+ 亞洲不少極權國家就常引用公眾安全條例，拘捕爭取民主訴求的異見人士，甚至屠城。這些表面維持社會穩定的法律，卻在保護不公義的政治制度。   
+   
+ 例：有人指馬丁路德金觸犯種族隔離的法律，是知法犯法。馬丁路德金提醒，世間上有公義和不公義的法律之分，種族歧視的法律就是不公義的法律。   
+   
+ 家長若能與兒女同行，互助互勉，自能得孩子的尊重，減少偏激的行徑。
+
+相關閱讀：
+
+[兒女上街怎麼辦？（一）心靈的準備](https://web.archive.org/web/20210725153122/https://bit.ly/2RNIHTl)
+
+[兒女上街怎麼辦？（二）歷史的啟示](兒女上街怎麼辦？（二）歷史的啟示)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725153122/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 華人基督徒義顯社](https://web.archive.org/web/20210725153122im_/https://www.hkcnews.com/uploads/avatars/81bc8451-efb1-4dc2-9482-f5b0c5859fce.png?76270930)
+
+**博客 | 華人基督徒義顯社**
+
+【華人基督徒義顯社・義顯之聲】組織使命為：彰顯神國公義，普及社會倫理，結合靈修社參，服事華人教會。

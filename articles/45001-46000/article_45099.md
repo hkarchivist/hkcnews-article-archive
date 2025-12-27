@@ -1,0 +1,61 @@
+---
+title: "【中央再出手】繼推出橫琴粵澳深度合作區　再推全面深化前海深港合作區"
+date: "2021-09-06"
+last_updated: "2021-09-06 20:32:01"
+author: "中國組記者曾海琪"
+category: "眾聞"
+tags:
+  - "香江"
+  - "HK"
+  - "香港"
+  - "Hong Kong"
+  - "澳門"
+  - "廣東省"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20211026233956/https://hkcnews.com/article/45099/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45100/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45099/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45100/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【中央再出手】繼推出橫琴粵澳深度合作區　再推全面深化前海深港合作區
+
+與珠海及澳門一水之隔的橫琴島，即將迎來重大改變。中央昨晚發布《橫琴粵澳深度合作區建設總體方案》，在這七千多字的方案中，表示要把橫琴打造為廣東省及澳門政府的合作區，並成為「一國兩制」實踐的新示範。目標是到2035年，全面彰顯「一國兩制」強大生命力和優越性。
+
+即是要怎麼做呢？橫琴新區原本是廣東省政府委託珠海市政府管理，方案提出未來合作區的重大規劃，都由廣東及澳門一同決策，包括設立管理委員會並實行「雙主任制」，由廣東省長及澳門行政長官共同擔任。又指定一名常務副主任由澳門委派，餘下副主任就由粵澳雙方協商，成員單位包括珠海市政府等。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233956im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/中央-20210906195043_11cc_large.png" alt="">
+</figure>
+
+新加入的澳門似乎佔主導位置，但其實黨的建設、國家安全刑事司法及社會治安等社會管理，會上升為廣東省管理。而澳門主要負責經濟範疇，例如管委會下設的執委會，由澳門擔大旗做國際推介、招商引資及土地開發等工作。
+
+廣東省體改研究會執行會長彭澎估計，商業訴訟亦可能按照澳門那套：「前海已經實踐港人港企，他們的經濟糾紛可以雙方同意，使用香港的法律規則。我相信橫琴也會有類似情況，我們雙方同意，可以使用我們澳門的熟悉的澳門規則和法律。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026233956im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/中央-20210906195051_2397_large.png" alt="">
+<figcaption>橫琴</figcaption>
+</figure>
+
+在如此架構下，方案列明合作區實施範圍會是橫琴島「一線」和「二線」之間的海關監管區域，總面積約106平方公里，其實即是約有整個橫琴島的大小。除了被細分為「一線」的範圍，由全國人大授權澳門全權管理，包括澳門大學橫琴校區和橫琴口岸澳門管轄區會有圍網隔離。「二線」就是橫琴其他地方，亦即是內地部分，會由廣東省及澳門政府共同管理。
+
+除了未來會進一步開放貨物及人員進出，又強調要開放跨境融資及營商環境，例如探索跨境資本自由流入流出及建立高度便利的市場准入制度，更特別指要設立數據跨境傳輸安全管理試點，例如會研究綠色通道，能夠連接國際互聯網同時確保安全。
+
+彭澎形容這種特區和內地的共同管理創下全國先河：「畢竟相對來說澳門政局比較穩定，香港現在慢慢穩定下來，起碼她反對聲音會多一些。澳門可能簡單一點，傾向在經濟方面更多和內地合作澳門先走一步，再推廣到深圳等地方去，這個可能性是完全存在。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026233956im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/一國兩制-前海-橫琴-20210906203023_2727_large.png" alt="">
+<figcaption>前海</figcaption>
+</figure>
+
+言猶在耳，中央今日傍晚亦公布《全面深化前海深港現代服務業合作區改革開放方案》，同樣強調方案會在一國兩制框架下先行先試，推進與港澳規則銜接、機制對接。未來前海合作區總面積會由14.92平方公里擴展至120.56平方公里。
+
+而與橫琴方案中廣東澳門「雙主任制」最大分別是，前海方案中並無涉及領導機構的成份，只提到研究讓區內工作、居留的港澳和外籍人士，參與前海區域治理，可能讓符合條件人士擔任區內法定機構職務。而在法律事務方面，會探索完善區內適用香港法律和選用香港作仲裁地，解決民商事案件的機制。
+
+方案強調前海合作區，會是支持香港經濟社會發展的重要舉措，增強香港同胞對祖國的向心力具有重要意義。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026233956/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,79 @@
+---
+title: "【修改選舉】張曉明：非民主步伐快慢　涉奪權、顛覆與滲透　無退讓餘地"
+date: "2021-03-12"
+last_updated: "2021-03-12 21:47:58"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "張曉明"
+  - "zhang xiaoming"
+  - "完善香港選舉制度"
+  - "修改香港選舉制度"
+url: "https://web.archive.org/web/20210805045815/https://www.hkcnews.com/article/39174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39174/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【修改選舉】張曉明：非民主步伐快慢　涉奪權、顛覆與滲透　無退讓餘地
+
+
+{{< video src="//web.archive.org/web/20210805045815if_/https://www.youtube.com/embed/qiF6jwMpn30" >}}
+
+
+(報道由05:26開始)
+
+全國人大會議昨日（11日）閉幕，通過了修改香港選舉制度的決定。港澳辦副主任張曉明今早在北京見記者，稱修法不是民主步伐快慢問題，而是涉及奪權與反奪權、顛覆與反顛覆、滲透與反滲透的較量，「在這個問題上，我們沒有退讓的餘地」。
+
+他又指，全國人大常委會本在2014年已制定雙普選路線圖，「本來香港是可以在2017年實現行政長官普選的，最後沒有實現，誰應該負這個責任？是誰在阻撓香港的民主步伐，阻撓香港實行普選？我覺得公道自在人心，大家心裡都有數。」
+
+[【相關閱讀】修改制度令民主倒退？港澳辦副主任鄧中華：恢復過去做法非倒退　循序漸進不等於增加直選](https://web.archive.org/web/20210805045815/https://www.hkcnews.com/article/39176/%E4%BF%AE%E6%94%B9%E9%A6%99%E6%B8%AF%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6-%E5%AE%8C%E5%96%84%E9%A6%99%E6%B8%AF%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6-%E5%85%A8%E5%9C%8B%E4%BA%BA%E5%A4%A7-39176/%E4%BF%AE%E6%94%B9%E5%88%B6%E5%BA%A6%E4%BB%A4%E6%B0%91%E4%B8%BB%E5%80%92%E9%80%80%EF%BC%9F%E6%B8%AF%E6%BE%B3%E8%BE%A6%E5%89%AF%E4%B8%BB%E4%BB%BB%E9%84%A7%E4%B8%AD%E8%8F%AF%EF%BC%9A%E6%81%A2%E5%BE%A9%E9%81%8E%E5%8E%BB%E5%81%9A%E6%B3%95%E9%9D%9E%E5%80%92%E9%80%80-%E5%BE%AA%E5%BA%8F%E6%BC%B8%E9%80%B2%E4%B8%8D%E7%AD%89%E6%96%BC%E5%A2%9E%E5%8A%A0%E7%9B%B4%E9%81%B8)
+
+<figure>
+<img src="https://web.archive.org/web/20210805045815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/張曉明-人大法工委副主任張勇-修改香港選舉制度-20210312150311_2a32_large.png" alt="">
+<figcaption>港澳辦副主任張曉明（左二）、鄧中華（右一），聯同全國人大法工委副主任張勇（右二）今早（12日）在北京見記者，介紹修改香港選舉制度的決定。</figcaption>
+</figure>
+
+### 張曉明：7成港人支持修改制度　涉顛覆沒有退讓餘地
+
+張曉明在開場白時，首先提到在表決通過時，「人民大會堂內掌聲雷動，經久不息」。他引述香港研究協會民調指，約有7成受訪者表示支持全國人大的決定，形容這是對國際上的誣衊不實之詞，最好和最有力的回應。
+
+張曉明指，這次兩會期間，港區人大代表和政協委員都非常興奮，引述他們稱人大決定為香港送來「遲到的春天」，又指他們歡呼「香港有救了！」張曉明指，治重病用猛藥，對香港選舉制度也要動大手術，但形容為一場微創手術，術後會回復比較快。
+
+張曉明指，近幾年香港出現的問題表明，現行選舉制度的安全性不足，使反中亂港分子得以通過選舉進入特區政權機關，外部勢力能以多種形式滲透香港事務，必須亡羊補牢。
+
+他形容，2019年反修例運動演變成社會動亂，充分證明香港存在的主要是政治問題，而非「選舉制度要不要民主、民主步伐快一點還是慢一點的問題。」他強調，這是涉及奪權與反奪權、顛覆與反顛覆、滲透與反滲透的較量，「在這個問題上，我們沒有退讓的餘地」。
+
+張曉明又指，現行選舉制度的不確定狀態，是香港高度政治化的催化劑，反對派議員濫用立法會的議事規則，以拉布等手段和不正當手法癱瘓立法會運作，嚴重掣肘了特區施政，造成巨大內耗。
+
+<figure>
+<img src="https://web.archive.org/web/20210805045815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/佔中-20170108161019_e31f_large.jpg" alt="">
+<figcaption>港澳辦主任張曉明指，2017年本可實現特首普選，但被反對派否決。資料圖片</figcaption>
+</figure>
+
+### 張曉明：2014年已有普選路線圖　批佔中阻撓香港民主步伐
+
+被問到中央為何以「決定+修法」的形式，而非依照「五步曲」推行政改，人大法工委副主任張勇指，若不堵塞反中亂港分子進入政權機關的制度漏洞，「五步曲」已經名存實亡，是走不通的。
+
+張勇指，全國人大曾在2007年規定2017年特首選舉可以普選，2014年又規定了普選路線圖和時間表，是「反中亂港」分子否決了普選方案，才令雙普選遙遙無期，無法實現。
+
+張曉明補充指，全國人大常委會在2014年通過了「831決定」，明確了香港在2017年可普選特首，2020年可普選立法會議員：「但當時就是香港的反對派百般阻撓，他們提出的『公民提名』完全違背基本法第45條已經明確規定的提名機制，主張香港社會任何人都可以提名產生行政長官的候選人。」
+
+「本來香港是可以在2017年實現行政長官普選的，最後沒有實現，誰應該負這個責任？是誰在阻撓香港的民主步伐，阻撓香港實行普選？我覺得公道自在人心，大家心裡都有數。」
+
+<figure>
+<img src="https://web.archive.org/web/20210805045815im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/完善香港選舉制度-修改香港選舉制度-張曉明-20210312150325_1e11_large.png" alt="">
+<figcaption>港澳辦副主任張曉明。片段截圖</figcaption>
+</figure>
+
+### 教育領域需正本清源、撥亂反正
+
+對於下一步的制度改革，張曉明指，政治、經濟、文化、教育和社會方方面面，都會繼續完善和建設相關制度。他特別提到，教育領域需要注意一些正本清源、撥亂反正的工作。
+
+至於何時完成修法工作及選舉，全國人大法工委副主任張勇指，人大常委會將盡快修改基本法附件一和附件二，之後香港需要根據決定修改本地法律，之後才能舉行選舉。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805045815/https://www.hkcnews.com/aboutus/#subscribe)

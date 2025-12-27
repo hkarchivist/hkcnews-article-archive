@@ -1,0 +1,48 @@
+---
+title: "伊凡卡3個月內獲中國13項商標註冊認可　民間組織斥利益衝突"
+date: "2018-05-28"
+last_updated: "2018-05-28 22:52:49"
+author: "記者陳駿豪"
+category: "眾聞"
+tags:
+  - "伊凡卡"
+  - "貿易制裁"
+  - "商標註冊"
+url: "https://web.archive.org/web/20220525091648/https://hkcnews.com/article/12434/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12444/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/12434/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12444/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD13%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 伊凡卡3個月內獲中國13項商標註冊認可　民間組織斥利益衝突
+
+<figure>
+<img src="https://web.archive.org/web/20220525091648im_/https://hkcnews.com/news_新聞/hk-discuss/2018/05/donald%20trump-伊萬卡-20180528171038_128f_large.jpg" alt="">
+<figcaption>美國有組織指伊萬卡獲批商標認可，有捲入利益輸送之嫌。美聯社資料圖片</figcaption>
+</figure>
+
+美聯社翻查中國商標局記錄，過去3個月內，白宮顧問、美國總統特朗普女兒伊凡卡名下公司獲中國批出一共13項商標註冊認可，8項臨時認可。此外，特朗普上任後，伊凡卡的公司在菲律賓亦取得3項商標認可。美國民間非牟利組織「華盛頓公民責任與倫理」（Citizens for Responsibility and Ethics in Washington，CREW）發表報告，質疑伊凡卡利用白宮的勢力持續獲得好處，有利益衝突之嫌。
+
+### 伊凡卡商標多獲中國認可
+
+<figure>
+<img src="https://web.archive.org/web/20220525091648im_/https://hkcnews.com/news_新聞/hk-discuss/2018/05/伊凡卡-中美關係-20180528190659_a2d3_large.jpg" alt="">
+<figcaption>伊凡卡在中國獲得多項商標註冊。美聯社</figcaption>
+</figure>
+
+在中國，伊凡卡的商標幾乎包攬「生養死葬」，由嬰兒床單、紡織品、毛毯、窗簾，香水、以至棺木和壽衣，都有她的商標註冊。雖然父親特朗普上任後，伊凡卡逐步抽身管理層，並將資產投入家族基金，但據報道，伊凡卡至今仍從生意中獲利。美聯社報道，中國商標局的網上記錄顯示，伊凡卡在白宮正式出任顧問前，她的公司已申請17項專利。截至周一（28日），伊凡卡公司產品的商標有至少25項等候檢視，有36項已被接納，另外8項獲發臨時認可。中國海關記錄顯示，伊凡卡名下公司有大量商品由中國出口至美國。中國官員接受美聯社記者查詢時表示，「所有商標申請都是依法辦事。」
+
+美聯社又從世界知識產權組織的資料庫查出，「伊萬卡特朗普商標有限公司」（Ivanka Trump Marks LLC）自特朗普上任後，在菲律賓獲得3個商標認可，當中包括內衣和嬰兒衣服。
+
+### 民間組織斥伊凡卡商標獲中國認可　換取特朗普「放生」中興
+
+美國傳媒《紐約每日新聞》、《赫芬頓郵報》引述CREW的報告稱，伊凡卡今年5月初獲中國政府批出5項商標的註冊認可後一星期，特朗普下令商務部解決因中興被封殺而引起的中國工人失業危機。CREW的行政總監卜拜達（Noah Bookbinder）在Twitter發文批評，近月伊凡卡取得的商標認可反映伊凡卡「更多利益衝突，以及利用白宮為自己牟利的證據。」
+
+<figure>
+<img src="https://web.archive.org/web/20220525091648im_/https://hkcnews.com/news_新聞/hk-discuss/2018/05/中國-商標註冊-伊凡卡-20180528223257_14f2_large.jpg" alt="">
+<figcaption>伊凡卡的商標。美聯社</figcaption>
+</figure>
+
+今年3月，「伊凡卡特朗普商標有限公司」（Ivanka Trump Marks LLC）向中國申請商標註冊認可，至5月7日獲批，在待批期間，中美貿易戰升溫，中興電訊被美國封殺，CREW質疑中國是否以批准伊凡卡的申請，換取特朗普「放生」中興。
+
+去年，伊凡卡首次在中國獲得3個商標註冊的同一日，她正與中國國家主席習近平於特朗普的海湖莊園共晉晚餐。其後，特朗普向中國增收關稅，成衣並不包括在內，其中伊凡卡名下在中國的廠房出口至美國的成衣，亦獲豁免。
+
+CREW的報告質疑，伊凡卡身為白宮顧問，代表美國出席多種外交場合，與夫婿庫什納積極介入美國外交政策，代表美國出席駐耶路撒冷大使館開幕禮，但對潛在的利益輸送問題毫不避諱，做法不恰當。報告亦指，雖然伊萬卡逐漸在商場上退下來並成立基金，但她仍然從生意中獲利，難以撇清利益輸送的嫌疑。

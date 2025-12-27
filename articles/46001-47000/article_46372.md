@@ -1,0 +1,34 @@
+---
+title: "青年示威地點附近藏鐳射筆罪成　高院駁回上訴指身懷其他物品證參與示威"
+date: "2021-10-11"
+last_updated: "2021-10-11 17:15:03"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "鐳射筆"
+  - "1111全城三罷"
+  - "公眾地方管有攻擊性武器"
+url: "https://web.archive.org/web/20220123115632/https://hkcnews.com/article/46372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46389/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46372/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-1111%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46389/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 青年示威地點附近藏鐳射筆罪成　高院駁回上訴指身懷其他物品證參與示威
+
+網民前年11月11日發起全港「大三罷」，當時19歲的青年於深夜在屯門一個停車場管有鐳射筆，早前被裁定一項在公眾地方管有攻擊性武器罪成立，判入更生中心。青年不服定罪提上訴。法官張慧玲今宣判，駁回定罪上訴，指事發停車場與示威地點只有4分鐘路程，青年另身懷口罩和生理鹽水等物品，肯定他參與示威，明顯是打算用鐳射筆供自己或他人用來傷害警員，定罪毫無合理疑點。
+
+<figure>
+<img src="https://web.archive.org/web/20220123115632im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/高等法院-20210909214238_251b_large.jpg" alt="">
+<figcaption>高等法院今駁回上訴。(資料圖片)</figcaption>
+</figure>
+
+上訴人為學生甄振嵐（20 歲），他被控於2019年11月11日，在屯門青賢街管有鐳射筆。上訴方陳詞稱，鐳射筆本身並非攻擊性武器，上訴人被截停搜身的停車場，與附近的示威集結有一段距離，他當時已正遠離集結之處，難證有意圖用鐳射筆傷人。上訴方引述警員證人曾稱，不肯定被告曾否參與附近集結。
+
+法官張慧玲的判決與原審裁判官王證瑜的裁決一致。張官指，停車場距離示威位置約150至200米，步行只需4分鐘。上訴人被捕後，身上除了有涉案的鐳射筆外，另有勞工手套、口罩、四支生理鹽水。上訴人沒有自辯解釋為何他在控罪地點出現及逃避防暴警，張官指綜合本案所有環境情況，唯一及無可抗拒的合理推論是他曾參與示威。
+
+### 鐳射筆拆件擺放　官：組裝簡單快捷
+
+張官又指，上訴人逃離示威現場，這並不表示該示威行動已完全結束。他攜有涉案的鐳射筆參加示威活動，明顯是打算用鐳射筆作攻擊性武器，以供他本人或其他人用來傷害警員；即使他在先前的示威活動沒拿出鐳射筆射向警員，不代表他無「打算」。
+
+至於有關鐳射筆各部份當時是分開擺放，張官認為要將它們組裝起來簡單快捷，並不影響上訴人的意圖。
+
+案件編號：HCMA115/2021

@@ -1,0 +1,49 @@
+---
+title: "禁得住蒙面，禁不住良知的糾纏"
+date: "2019-10-20"
+last_updated: "2019-10-20 06:59:35"
+author: "南秀"
+category: "眾說"
+tags:
+  - "岑子杰"
+  - "禁蒙面法"
+url: "https://web.archive.org/web/20211202152239/https://www.hkcnews.com/article/24312/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24314/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24312/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24314/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 禁得住蒙面，禁不住良知的糾纏
+
+《禁蒙面法》實施至今已經超過半個月，示威行動不但沒有減退，反而越演越烈。林鄭政府倒行逆施，以為只要在施政報告推出放寬首次置業首期限制的措施就能令市民噤聲，實在何等幼稚。經過多月來的公民啟蒙運動，現在即使是普通市民都能看出這是給予地產商歸邊的獎賞，令人更添怒憤。
+
+更有甚者，政府現在連狡辯的工作也不想做了，直接引來中國政府的一套治國歪風。政務司司長張建宗說，不要再糾纏於他對七二一事件的說法，香港要向前發展。這是甚麼樣的邏輯？ 香港政府是否希望，我們以後就用這套邏輯教育下一代？孩子欠交功課，不要糾纏？情人出外偷情，不要糾纏？工程超時超支，不要糾纏？殺人放火，不要糾纏？戰爭罪行，不要糾纏？林鄭是否打算死後面對上帝的終極審判，也跟上帝說不要糾纏於你所犯下的罪惡，一起向地獄發展？
+
+<figure>
+<img src="https://web.archive.org/web/20211202152239im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/逃犯條例-元朗白衣人-元朗打人-20190722133011_2754_large.jpg" alt="">
+<figcaption>香港人不會忘記，7.21元朗出現無警時份，任由白衣人無差別攻擊市民。</figcaption>
+</figure>
+
+你認為香港人很想糾纏嗎？香港人一向是有名的善忘，對各類時事娛樂新聞的記憶非常短暫，這是傳媒界所公認的。那為何這一次會如此持久？是因為這是良知的呼喚！是我們禁不住自己良知每天的糾纏！每當想起那無法無天的七二一元朗恐襲，想起本應除暴安良但轉身離開的警察，想起那些無辜市民驚恐萬分的表情，良知就鞭撻著我們的內心，這是絕不能忘記的疤痕，良知就告訴我們的理智，這是必需追究到底的黑幕！這不是甚麼高深莫明的道理，純粹發自做為一個人的良知呼喚。如果需要選擇，我願意一世被這良知糾纏下去，直至公義得到彰顯，也不願就此為世俗的利益而只懂向前，否則我們就真的跟禽獸無異，跟曱甴無異。
+
+就在前幾天，民陣召集人岑子杰先生再一次被襲，這是對文明社會的再一次攻擊，再一次告訴香港人，如果你們選擇只懂向前，選擇蒙上自己的眼睛耳朵而不理會社會發生的各種不公義事情，他日當你的利益跟政權相衝，那無論你是多麼的和理非，結局都會一樣，因為所有阻礙政權向前的人都要被暴力讓路。
+
+<figure>
+<img src="https://web.archive.org/web/20211202152239im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/民陣-禁蒙面法-20191020064340_5322_large.png" alt="">
+</figure>
+
+香港人，十月二十日，無論你選擇在彌敦道的行人路上逛街，或者到尖沙咀的海濱走廊散步，你都必定要走出來，告訴這個政權：即使你禁得住我們蒙面，禁得住我們晚上出門，禁得住我們網上發聲，甚至禁得住我們整個肉身，但你永遠都禁不住我們的思想，更禁不住我們良知的糾纏。我們會一直糾纏下去，一直糾纏下去，所有你意想不到的地方都將會成為我們抗爭的戰場， 直至公義得到彰顯。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202152239/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 南秀](https://web.archive.org/web/20211202152239im_/https://www.hkcnews.com/uploads/avatars/61a45cca-2e0d-44ee-b8e0-c7e07f8e7030.png?451624515)
+
+**博客 | 南秀**
+
+【南秀・秋見山情】山不在高，水不在深。 一隅之見，只求發而皆中節。

@@ -1,0 +1,54 @@
+---
+title: "去與留的碎碎念"
+date: "2021-08-28"
+last_updated: "2021-08-28 04:03:30"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "香港人"
+  - "移民"
+url: "https://web.archive.org/web/20211027003318/https://hkcnews.com/article/44822/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44824/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44822/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44824/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 去與留的碎碎念
+
+【撰文：迷彩服下的智子】   
+ ***作者是寫 [《迷彩服下的智子Blog》](https://web.archive.org/web/20211027003318/https://sunfunsiufu.wordpress.com/) 的人***
+
+我家快沒廁紙用了。曾經決定要一直在光時訂廁紙，還要是以紙包飲品盒回收漿造的再生廁紙：環保、支持好人、幫襯本地企業，一舉三得。不知應笑我鴕鳥還是天真，那樣的一個名字怎麼可能存在於這個時空？
+
+最後一批貨兩週前已送來，當中沒有廁紙，最後一張單我訂了些又貴又不切實際的東西以助散貨。現在，廁紙快用完了，但我不想補（雖然知道誠哥有賣）。一旦補了貨，那一頁就算揭過了，沒有回頭路。
+
+之前有朋友離開，我選擇不理會、不歡送、人家到埗後的臉書貼文我也不按讚，總之不直視。一方面不想知道子女錯過失了什麼（我會內疚），另一方面不想接受原來經過那麼多之後，問題沒解決卻一片風平浪靜（理性上明白離開的人沒有錯，只是自己幸運身處未受太大影響的行業所以暫時不用走。而這一片無風無浪某程度上也令我的外在生活平順了一些）。
+
+<figure>
+<img src="https://web.archive.org/web/20211027003318im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/移民-赤鱲角機場-UK-20210828035556_2b3e_large.jpg" alt="">
+<figcaption>香港人移民，在機場與親友道別的畫面天天上演。EYEPRESS資料圖片</figcaption>
+</figure>
+
+直至今年八月，最好的朋友走了。我不能不直視、不能不祝福（真心想他們好）、不能不看他們回傳的生活照、也不能不聆聽他說想念香港，因為他只有比我更不願走。
+
+他的故事就是香港故事：上一代南來，廉租屋長大，讀書不成但頭腦聰明，學了手藝開店搵食，娶了靚老婆每年去兩趟日本，一切頭頭是道。你有試過找朋友搬屋嗎？那年我還很年輕很窮，家中抽到居屋要搬，他帶來九個「兄弟」，舊屋地上數十個水果紙皮箱，我上趟廁所便全部不見了，事後他自掏腰包請兄弟到大排檔晚飯。然後，戰事爆發，仗義每多屠狗輩，他也只能走了。送機時十兄弟齊集，我幫他們拍了照，那張照片，我印了出來放在客廳。
+
+也有親人移民後勸我們不要心存僥倖。是的，的確是心存僥倖，希望在還頂得住的時候用屁股佔著一些位置（或曰戀棧權位），不敢說守護什麼，只想維持正常運作，與走不了的人互相支持。
+
+教協、612、光時……在在也說明走的人是對的，但我不願走，也許因為一個縈繞心頭的疑問：「個個走哂咁點算？」
+
+這天，我坐在辦公室，喝著用又貴又不切實際的日本茶包泡的茶，嘗試不去想廁紙的事，這一刻只想知道身邊誰個不走，好壯大圍爐規模。有時也會自我安慰：我喜愛的星星們多有才華也不走，我要跟他們一起讓香港再次成為亞洲第一。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027003318/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211027003318im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

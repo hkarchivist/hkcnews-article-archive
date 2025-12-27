@@ -1,0 +1,37 @@
+---
+title: "廉署拘三人涉互聯網轉載貼文籲投白票　稱選舉條例適用任何形式通訊　不論是否香港境內"
+date: "2021-11-09"
+last_updated: "2021-11-09 21:45:16"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "許智峯"
+  - "HUI Chi-fung"
+  - "ICAC"
+  - "香港廉政公署"
+  - "廉署"
+  - "白票"
+url: "https://web.archive.org/web/20220117170431/https://hkcnews.com/article/47485/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47488/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47485/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47488/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 廉署拘三人涉互聯網轉載貼文籲投白票　稱選舉條例適用任何形式通訊　不論是否香港境內
+
+廉署拘捕兩男一女，涉嫌在互聯網轉載貼文呼籲市民在立法會選舉投白票，目前獲准保釋。廉署指，不排除再有進一步執法行動，又表明選舉條例適用於一切與選舉有關的行為，不論是否在香港境內或其他地方作出。今次是選舉改制後，執法部門首次拘捕行動。
+
+<figure>
+<img src="https://web.archive.org/web/20220117170431im_/https://hkcnews.com/news_新聞/hk-discuss/2020/08/投票站-election-香港人-20200812140733_2f90_large.jpg" alt="">
+<figcaption>資料圖片</figcaption>
+</figure>
+
+被捕三人年齡介乎29歲至65歲，涉嫌違反《選舉舞弊及非法行為條例》第27A條，即「在選舉期間內藉公開活動煽惑另一人不投票或投無效票」。控罪指，三人涉嫌在2021年立法會換屆選舉期間，在互聯網轉載貼文，呼籲市民在立法會選舉中投白票，廉署檢走數部手提電話，所有被捕人士已獲准保釋候查。
+
+廉署指調查仍進行，不排除再有進一步執法行動。立法會選舉提名期由10月30日展開，由當日起直至12月19日投票日，被界定為「選舉期間」。「公開活動」指向公眾作出的任何形式通訊、分發或傳布任何材料，條例亦適用於一切與選舉有關的行為，不論是否在香港境內或其他地方作出。廉署提醒，一經定罪最高可判處監禁三年及罰款20萬元。
+
+### 許智峯倡白票運動　鄧炳強點名質疑犯法
+
+目前流亡海外的前立法會議員許智峯，早前在社交平台提倡以白票反制立法會選舉的「如水計劃」 ，認為動員在選舉中投白票是香港人力所能及、切實可行的反抗，因為「面對現實，香港人在暴政管治下，要做出有實質影響力的政治動員，選項非常有限。而去投票是我們僅有、暫仍未被消滅的基本權利。」
+
+他指，不以「誰當選」或「多少議席」為目標，而是以官方的白票票數去表達對暴政的反抗、對自由的渴求，就是當下可切實做到的最大政治動員，也是香港人力所能及的集體無聲抗爭。「儘管我們無法取得議席，但卻能撼動暴政已設下的政治劇本，儘管卑微，卻是巨大的政治能量。」他形容白票運動，大有可能是歷史上最後一次策略投票。
+
+保安局局長鄧炳強事後在網誌點名批評許智峯，稱他在社交網站發帖，煽動香港市民杯葛抵制2021年立法會換屆選舉，在選舉當日投白票，指他的行為或已觸犯《選舉舞弊及非法行為條例》。他又指，破壞選舉的違法行為，亦有可能干犯《香港國安法》相關條文。鄧炳強在文中指，若認為投白票以反制立法會選舉是合法合理，為何自己不回港進行所謂的「抗爭」，反而煽動市民違法？正所謂「叫人衝、自己鬆」，行為卑劣。在文末又寫到，切勿參與不法呼籲或轉載相關違法內容，否則很可能需要承擔法律責任。對任何違法行為，執法部門必定嚴正執法，不會讓違法分子逍遙法外。

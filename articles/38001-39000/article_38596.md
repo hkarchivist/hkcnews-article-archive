@@ -1,0 +1,73 @@
+---
+title: "蘇子謙醫生：醫管局IT System急需upgrade"
+date: "2021-02-26"
+last_updated: "2021-02-27 17:12:34"
+author: "特約轉載"
+category: "眾說"
+tags:
+  - "醫管局"
+  - "作業系統"
+url: "https://web.archive.org/web/20210917202809/https://www.hkcnews.com/article/38596/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38616/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDit-system%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDupgrade"
+original_url: "https://www.hkcnews.com/article/38596/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38616/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDit-system%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDupgrade"
+---
+
+# 蘇子謙醫生：醫管局IT System急需upgrade
+
+【作者：蘇子謙，香港大學臨床腫瘤科臨床助理教授。明報醫學專欄作者，防癌會公眾教育小組委員。】
+
+當香港正想發展智慧城市、人工智能和大數據發展在各行各業高唱入雲。但醫管局的電腦系統，我懷疑只是停留在Windows 2000（甚至是windows 98）的水平。要發展MedTech，實在遙不可及。
+
+早幾天在電療門診當中，為一個肺癌腦轉移病人，安排立體定位高能量腦部電療（stereotactic radiosurgery）。首先和病人解釋點解需要做這個治療，和相應的各樣副作用。接着便要在電腦中尋找相應的那一份同意書PDF（有非常多份），跟着要print出來。由於printer 型號非常殘舊，列印大概八頁單面同意書，會中間jam紙已經司空見慣。最後在這八頁紙當中搵到一個位醫生簽名，再交給病人簽名。
+
+<figure>
+<img src="https://web.archive.org/web/20210917202809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/醫管局-20210226214119_2a90_large.png" alt="">
+<figcaption>醫管局CMS系統截圖</figcaption>
+</figure>
+
+以為簽完就搞掂？仲未。另外仲有一頁同意書，是需要額外貼label再簽名。呢張紙，仲要自己寫日期等等。簽完以為搞掂。點知後來同事提我，由於做電療設計之前，需要做腦部電腦掃描和磁力共振，每樣都需要打顯影劑。所以需要在電腦找出另外這兩份同意書的PDF，每份大約6頁紙，再逐分列印出來再簽過。因為打顯影劑有機會令腎臟有損傷或者過敏，所以每照一次，要簽一份同意書。（其實病人已經做過好多次⋯⋯）。這個規矩好似只是在醫管局當中有。簽曬所有文件之後，還有逐張慢慢整理在folder當中。
+
+搞掂曬對好曬所有文件，仲要在一個技術應該是Notepad啲細box 當中打返今次的病歷……跟着仲要在電腦慢慢search返每次的診斷，tick 啱曬格仔……最緊要是診斷的那些ICD code入得清清楚楚……
+
+病人的太太也忍不住說：原來醫管局醫生時間咁寶貴，但大部分就花費在 print嘢和文書工作，實在是資源錯配。
+
+那個時候我只有苦笑。因為現實上，真的差不多在門診當中，七成時間都是處理文書工作。所以有時病人問，點解醫生唔可以花多點時間在病人身上，係因爲要符合醫管局定下各繁瑣文書工作。否則到時到候又有什麼總部audit，去睇下大家有冇入漏嘢或者剔錯嘢。假若醫管局能夠請一隊專門人員，負責指示入ICD code又或者整理文書，相信會慳返醫生唔少時間。   
+   
+ 其實有時見到門診很多病人等候時間很長，其中一個原因是因為實在文書工作太繁複。例如在外國很多地方，病歷早就是用語音記錄，打字員後來幫醫生打返病歷，又或者現在有些地方已經是語音輸入。基本上，你直接講就得。更加好的是其實很多東西可以用語音指令，可以多啲automation，實在慳時間而且提升準確度。
+
+總言之，醫管局的整個系統CMS是一個頗為舊式的系統。可能是20幾年前開始用了之後，很難整個系統一次過 upgrade，所以每一次update都係小修小補，就好似Windows一樣越嚟越慢。因為入邊啲core code做得唔好，不斷添加新嘢。
+
+另外一樣令大家都非常苦惱的是，每次開一些病人的病歷的時候，會彈出很多alert box。情況就好似大家睇網頁，突然間會彈多兩個advertisement windows一樣，原意是希望醫生要留意該病人一些特別的注意。但當每一個病人都是這樣，習慣性大家都撳落個交叉度。（大家可以諗下如果chrome 冇裝 ad blockers 嘅情況……）
+
+要改善這個系統的方法，我建議醫管局可以將成個CMS 轉open source；然之後舉辦幾次hackathon，應該就可以立竿見影地改善。又或者直接外判比科技公司做好過。
+
+除左軟件之外，硬件亦是非常大的問題。不少電腦經常hang機。有時要打開一個PDF，可以等分幾兩分鐘都未開到，成部機frozen。
+
+另外轉駁去睇影像，例如是X-ray、CT、MRI的那個系統亦非常緩慢。有時開幾份影像要load半分鐘都有可能。估計除咗CPU非常慢之外，成個網絡系統的bandwidth根本唔夠。唔知道醫管局的內聯網是哪些線路。既然學界和政府都想發展人工智能醫療科技，最起碼應該內部用光纖網絡可能會好好多。
+
+當然，那些經常jam紙啲printer也是很討厭。其實近這十年無論你去登記寬頻電話，又或者去銀行要簽名。很多都已經改為電子版上簽名。唔需要經常印紙張出嚟，因為實在非常浪費紙張。而且有些醫療程序例如輸血，實在唔需要每一次輸血都重新簽一份同意書。（特別那些經常輸血的病人）應該在電腦中列明譬如輸血這個同意書有效期為一年，實在節省大家不少時間。即使明白輸血每次都有一定風險，但不少藥物每次進食和注射也有一定風險，倒不會每一次吃藥也要簽一份同意書吧？
+
+從我這個用家的估計，整個系統還是用一個傳統servers和terminals的方法。Servers應該也不是用非常強的硬件，所以很容易跪低。隨着醫療界對於電腦系統的需求增加，應該考慮改為cloud computers，又或者利用blockchain 技術，應該可以增加整個病歷系統速度和可靠度。
+
+我成日都說笑，如果香港國際金融中心，買賣股票是用於醫管局的電腦系統，相信無論是基金大戶或者散戶，每日都唔知打爆幾多個mon。
+
+總言之，要配合臨床的需要和政府發展醫療科技的大方向，醫管局的IT系統急需upgrade。
+
+有興趣的，下一篇討論下醫管局開藥和配藥是否有改善空間。
+
+（原刊 [作者Facebook](https://web.archive.org/web/20210917202809/https://www.facebook.com/drsotszhim/posts/3628795970567492?__cft__[0]=AZWSNCeD3uGzoOF9C1cYrRak9ljap3FFnCXJltyBFusdz4E67aGoDUElVCiI4dSIoUifK0Ku_3Yb43w6KfcPXzI_q7EY6-pY_rNt0XB7uDbBBWVBgqozf0M-RKl-VZpy83R_OughQ6gzqiEQKRzkCXdJ&__tn__=%2CO%2CP-R) ）
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210917202809/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 特約轉載](https://web.archive.org/web/20210917202809im_/https://www.hkcnews.com/uploads/avatars/b9253e8a-10e3-49ef-b6c4-24b3101fd809.png?1997537264)
+
+**博客 | 特約轉載**
+
+

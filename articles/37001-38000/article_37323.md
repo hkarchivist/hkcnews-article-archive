@@ -1,0 +1,104 @@
+---
+title: "前有線中國組原班人馬加入　眾新聞成立中國組　盼公眾支持訂戶倍增"
+date: "2021-01-17"
+last_updated: "2021-01-23 22:47:58"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "眾新聞"
+  - "有線中國組"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20210928144225/https://www.hkcnews.com/article/37323/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37476/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37323/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37476/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 前有線中國組原班人馬加入　眾新聞成立中國組　盼公眾支持訂戶倍增
+
+
+{{< video src="https://web.archive.org/web/20210928144225if_/https://www.youtube.com/embed/jIFuYXIpnPA" >}}
+
+
+
+{{< video src="https://web.archive.org/web/20210928144225if_/https://www.youtube.com/embed/HY07NVjcW2M" >}}
+
+
+上月總辭的十名有線中國組成員，將加入眾新聞，成立「眾新聞中國組」，計劃2月1日起投入運作、3月份將會有全新的中國新聞節目在眾新聞平台亮相。
+
+其中一名成員、前有線中國組助理採訪主任黃麗萍示，希望中國組能夠在網媒的平台重新出發，繼續做中國新聞的夢想。眾新聞總編輯李月華表示，公司人手將增加一倍，呼籲公眾以月費訂閱支持。李月華表示，仍記得四年前眾新聞成立時，當時也不能斷言眾新聞能走到今天，今天能與中國組合作也如是，「嘩，一個無錢的機構憑咩乘大一倍？憑甚麼？係憑對公眾有個相信。」
+
+眾新聞成立中國組，大眾必定有不少疑問：前有線中國組本身做電視新聞，轉型網媒如何做？質素能否保持？眾新聞能否派記者駐內地，如何做中國新聞？中國組的營運資金又要多少? 需否啟動眾籌？眾新聞詳列以下問題，嘗試逐一解答。
+
+<figure>
+<img src="https://web.archive.org/web/20210928144225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/眾新聞中國組-李月華-黃麗萍-20210117180158_2030_large.jpg" alt="">
+<figcaption>部分中國組成員和眾新聞兩位主管日前與同業會面，分享成立眾新聞中國組的計劃。後排左起：區翠恩、曾海琪、徐文傑、翁維愷；前排左起：主筆楊健興、總編輯李月華、前有線中國組助理採主黃麗萍。周滿鏗攝</figcaption>
+</figure>
+
+**Q：為何是眾新聞？**
+
+眾新聞總編輯李月華表示，當日得知有線中國組總辭後，便致電中國組主管司徒元關心問候情況，她提到眾新聞在四年前成立，當時也是「摸著石頭過河」，以自身經驗與對方討論後，認為中國組會否有繼續發展的空間，「傾吓傾吓就覺得，點解唔一齊試吓呢？」她說，眾新聞四年以來得到訂戶的支持，能夠「存活下來」，「係咪可以1+1，變得更大呢？」
+
+前有線中國組助理採訪主任黃麗萍說，中國組總辭的當刻，她並沒有重組或其他個人發展的想法，但之後聽到坊間不少聲音希望中國組重新出發，她後來重溫了中國組過去的新聞，「有一晚睇返真係幾好睇，啲故事幾有趣，而且深度、畫面同內容同坊間好唔同。」適逢眾新聞的邀請，她和其他同事商量後，決定在眾新聞這個平台上繼續做中國新聞的夢想。
+
+**Q：眾新聞中國組與以往電視新聞，形式上會有何分別？**
+
+黃麗萍說，眾新聞中國組2月1日會正式投入運作，預計2月中開始會有一些報道。至於有線中國組原定逢星期一至五9點半會播出節目（casts）。 **她說，日後眾新聞中國組暫定晚上8時至9點，同樣有屬於自己的新聞節目，期望今年三月的「全國兩會」前，節目會率先首播，「同以前有變化，亦都會保留以前一些元素」、「希望新平台見到熟悉內容和面孔之餘，亦有啲驚喜俾人。」**
+
+黃麗萍表示，以往在電視台也有限制，例如畫面不足夠的話，便要放棄做電視新聞，她相信日後網上平台發揮空間較大，「只要隻故仔有趣，內容值得寫就會以自己方式表達出來」、「甚至主持人chit－chat 去present番隻故仔出來」，另外中國組亦會嘗試撰寫分析性文章。
+
+前有線中國組記者曾海琪表示，新平台繼續由固定班底組成，對內地新聞有一定的經驗和默契，「點樣突破以前的框架去諗一啲新的事物俾觀眾都好重要」 、「過去識咗好多內地的人，佢哋仲有好多嘢想講落去」，她期望未來會與其他同事去探索更多不同形式的新聞。
+
+另一名前有線中國組記者翁維愷，畢業後曾經在眾新聞工作過一段時間，之後才轉到有線。他說，明白兩間媒體各有不同的限制，雖然網媒資源不足，但自由度非常大，「做乜都得」，並舉例一些電視台做不到的新聞，「介紹書、內地的獨立樂隊，佢哋的文化，唔一定係Hard news。」、「我依家都話唔到你聽會成功，起碼我肯去試先。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928144225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/眾新聞中國組-翁維愷-20210117180122_1682_large.jpg" alt="">
+<figcaption>前有線中國組記者翁維愷。周滿鏗攝</figcaption>
+</figure>
+
+**Q: 眾新聞能否派記者駐內地採訪？沒有電視台龐大的資源，做到中國新聞嗎？**
+
+黃麗萍說，眾新聞中國組在起步階段，暫時未有計劃派駐記者到內地，但當一切準備好後，會嘗試申請。李月華表示，過去眾新聞較少做中國新聞，沒有到過內地採訪，日後條件許可，會嘗試申請到內地採訪。她又說，記者能駐地，畫面必定會更豐富，但畫面並非新聞唯一元素，「缺乏（畫面）係咪代表做唔到中國新聞，不是的，你話樂唔樂觀？試囉，可能失敗的話，唔得我哋都試咗。」
+
+李月華又說，四年前也不能斷言眾新聞能否維持下去，「今年的環境絕對比四年前惡劣，我試過行過呢條路，四年前係Hope，希望，我唔敢口響話一定成功，但四年行落嚟的經驗話俾我知，信心一定比四年前更大」、「嘩，一個無錢的機構憑咩乘大一倍？憑咩？我真係憑對公眾有個相信。」李月華笑言，若最後真的失敗、沒有人支持的話，也沒有損失，「反正都會搵工。」黃麗萍說，對同事的工作表現有信心。
+
+**Q: 經費從何而來？會否搞眾籌？**
+
+總編輯李月華說，眾新聞的開支現時依靠市民訂閱的支持，不會考慮眾籌方式。她又特別呼籲如果希望支持中國組的人，便支持較大金額的訂戶費，讓中國組在短時間內有充裕的資金供運作。
+
+現時 [訂閱眾新聞](https://web.archive.org/web/20210928144225/https://bit.ly/訂閲我們) 月費為100元，每年1200元，李月華估計，過去眾新聞每月需要有4000個訂戶以應付日常運作。現時因應中國組的加入，她估計訂戶數要增倍至8000人，才能應付相關人手擴充的開支。
+
+**Q：眾新聞本身架構會有何調整？會否影響日常港聞運作？**
+
+眾新聞原本人手有13名全職員工，現時加上前有線中國組的10名成員，另外會再聘請負責剪接圖像設計的人員，預計團隊擴張至26人。李月華說，現已物色到新辦公室，讓眾新聞整個團隊一起工作。
+
+過往眾新聞並沒有專責報道中國新聞的人手，故中國組的加入並不影響日常港聞運作。李月華說，現時年輕同事具創意，善於解決問題，相信日後兩組人有合作空間。
+
+**Q：為何不考慮逐步增加人手降低風險？**
+
+李月華說，中國組總辭事出突然，把握時間有其重要性，「你話（先請聘）兩、三、四個，其實做唔到嗰樣嘢，（整組人加入）的確好大膽行呢一步，我唔會話一定成功，但唔試就唔使講成唔成功，我覺得值得去試。」李月華又解釋，「如果我哋請多幾個人做中國新聞，只係內容上多少少中國新聞，但係無一個impact喺度」。
+
+**黃麗萍補充道，中國新聞並非簡單如增加三、四個人就做到，背後需要有人做深度、調查和研究，各方面合力才能製作出一個casts。另外，她說資源上會盡量節儉，以確保新聞質素，「例如買嘢平啲、點樣裝修，盡量慳錢，我哋join得入來，都唔想個casts好樣衰，人手方面，各人有各人的崗位，互相補位先造就到好睇的中國新聞。」**
+
+眾新聞主筆楊健興說，這並非錢的問題，「本身中國組係一個資產，要發揮到唔在於慳少少錢，定係用更多功夫去搵支持。」楊健興提到，四年前創立眾新聞時，大家都是從主流傳媒出身，當時難以估計由公眾支持的運作模式能否成功，視乎市民的支持程度，但他相信「唔試的話，空間會越越來細」。他表示，現時媒體的前景比較灰暗，「如果今次可以做落去，係俾個訊息出來，新聞有辦法做得到」、「如果唔做就一定無，繼續做就係即使細的空間做落去。」
+
+<figure>
+<img src="https://web.archive.org/web/20210928144225im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/眾新聞中國組-楊健興-20210117180030_235e_large.jpg" alt="">
+<figcaption>楊健興說，「如果今次可以做落去，係俾個訊息出來，新聞有辦法做得到。」周滿鏗攝</figcaption>
+</figure>
+
+**Q：中國維權新聞越來越難做，加上近期的港版國安法雷厲風行，再做中國新聞會否大受限制？**
+
+黃麗萍說中國組比普遍香港人更早接觸有關法律，而「709事件」後，內地維權人士越來越少，「可以發聲的不多，但中國新聞係咪就無咗？」、「內地律師更加用一些擦邊球的方式，同外界溝通」，她對於內地維權人士方面有信心，「佢哋唔係day 1先知呢樣嘢，佢哋經驗比我豐富，反而應該向佢哋學習點樣生存。」
+
+翁維愷補充說，中國新聞除了維權新聞，亦包括環保、經濟、政治各方面，「點解我哋需要咁多人手，因所有嘢我哋都要睇，我哋嚟緊的節目想話俾大家聽，今日中國發生咩事係會影響將來發展。」
+
+### 即時行動　成為眾新聞訂戶
+
+**眾新聞訂戶基本月費為100元，年費1200元，現時成為一年的年費訂戶除了可以在每個星期日收到一份詳盡的時局分析電郵通訊，更可獲贈眾新聞出版新書《7.1到七一》以及5張A2海報：圖解抗爭運動5個關鍵事件612、721 、831、中大保衛戰及理大圍城。因應中國組的成立，若支付訂戶年費金額超過2400元，除了新書和海報，更可獲得潘源良為中國組題字書法「寧化飛灰　不作浮塵」的帆布袋。** [訂閱眾新聞詳情](https://web.archive.org/web/20210928144225/https://bit.ly/訂閲我們)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928144225/https://www.hkcnews.com/aboutus/#subscribe)

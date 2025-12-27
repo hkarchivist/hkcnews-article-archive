@@ -1,0 +1,52 @@
+---
+title: "法官批3警保釋　部分上訴理據不切實際　惟量刑起點有爭議"
+date: "2017-06-28"
+last_updated: "2017-06-28 21:50:36"
+author: "特約記者梁瑞珮"
+category: "眾聞"
+tags:
+  - "七警案"
+  - "七警"
+  - "7警"
+  - "上訴"
+url: "https://web.archive.org/web/20211202014130/https://www.hkcnews.com/article/4936/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4937/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/4936/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-4937/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 法官批3警保釋　部分上訴理據不切實際　惟量刑起點有爭議
+
+於佔領運動期間涉嫌襲擊公民黨前成員曾健超的7名警員，被裁定襲擊致造成身體傷害罪罪成判囚兩年。七警當中3人今天在高等法院申請保釋外出等候上訴，上訴庭副庭長楊振權直言，上訴一方提出的部份上訴理據不切實際，不認為被說服有合理成功機會推翻定罪；惟考慮原審法官採納的兩年半量刑起點是否明顯過高，確具爭議之處，而上訴聆訊不太可能在未來6至9個月內處理，屆時或已服完刑期，故批准3人保釋外出等候上訴。
+
+<figure>
+<img src="https://web.archive.org/web/20211202014130im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/七警-20170628213428_22d0_large.jpg" alt="">
+<figcaption>七警之一、獲准保釋的劉卓毅 (右)，離開法庭時，沒帶口罩和墨鏡。劉前面為另一獲准保釋的黃偉豪。</figcaption>
+</figure>
+
+申請保釋的3名上訴人分別高級督察劉卓毅（31歲）、 警員劉興沛（40歲）及警員黃偉豪（38歲），他們於今年2月被定罪及判刑。各人在辦妥保釋手續後，至下午5時半才步出羈留室，乘車離開法院。記者們簇擁追問他們對獲准保釋的心情，以及對上訴是否有信心，各人一概沒有回應。
+
+劉卓毅獲准以現金及人事各5萬元擔保， 而劉興沛及黃偉豪則准以現金及人事各1萬元擔保， 另各人須交出旅遊證件及居於報住地址。
+
+上訴庭副庭長楊振權聽畢陳詞後指出，按現有的證據，不覺得被告提出的上訴理據，能說服有合理成功機會推翻定罪。 而本案極嚴重，過往沒有同類案例。副庭長並提到，當時正值佔領運動，警員在極度困難的環境下受託執法，長時間工作執行職務而沒有適當的休息，面對示威者的侮辱及暴力行為，就例如曾健超所作的，警員承受巨大壓力。
+
+副庭長續指出，當時警員正維持法紀及治安，曾健超卻傲慢及愚蠢，向警員淋潑液體，其行為是具攻擊性及高度挑釁， 警員才作出不理性的回應，決定教訓他。
+
+副庭長表示，該控罪最高刑罰為判監3年，而原審法官採納兩年半為量刑起點是否明顯過高，確具爭議之處； 而上訴聆訊仍未排期，相信不太可能在未來6至9個月內處理， 屆時各人可能已服畢或服了大部份的刑期，故批准各人的保釋申請。
+
+代表劉卓毅的資深大律師余承章陳詞時指出，其中一項上訴理據是若劉當時在場，劉是否有夥同犯案，並指劉當時確曾兩度阻止其他人襲擊曾健超；惟副庭長則反問， 若一名警員目睹4至5人襲擊一個人，會否拔槍？ 副庭長考慮陳詞後，認為上訴一方指，即使劉在場也不能達致推論劉是有夥同犯案的說法，是不切實際。
+
+至於代表劉興沛及黃偉豪的大律師蔡維邦則提出，案發時參與的警員可能換了其他人，並質疑控方呈堂不同片段，有43秒曾間斷。副庭長則認為，警員中途曾換人的說法也不切實際，沒有其他證據支持。
+
+案中被定罪的7名警員依序為總督察黃祖成、高級督察劉卓毅、 警長白榮斌、警員劉興沛、陳少丹、關嘉豪及黃偉豪。 各人均有申請上訴尋求推翻定罪及刑期。據悉， 黃祖成亦已申請保釋等候上訴。
+
+<figure>
+<img src="https://web.archive.org/web/20211202014130im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/七警-20170628213416_1acf_large.jpg" alt="">
+<figcaption>獲准保釋的兩警劉興沛 (前)，黃偉豪(後)。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202014130/https://www.hkcnews.com/aboutus/#subscribe)

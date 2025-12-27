@@ -1,0 +1,41 @@
+---
+title: "《霸王別姬》若然重演，能過中國審查嗎？"
+date: "2021-09-15"
+last_updated: "2021-09-15 10:56:19"
+author: "家興"
+category: "眾說"
+tags:
+  - "張國榮"
+  - "娘炮"
+  - "霸王別姬"
+url: "https://web.archive.org/web/20220519020314/https://www.hkcnews.com/article/45419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《霸王別姬》若然重演，能過中國審查嗎？
+
+
+{{< video src="https://web.archive.org/web/20220519020314if_/https://www.youtube.com/embed/QBjd8KKl27U" >}}
+
+
+《霸王別姬》這部被譽為二十世紀百大經典電影，由陳凱歌執導，張豐毅、張國榮及鞏俐主演，劇情就政治生態、性別議題等也引起熱議，能夠榮獲康城影展的金棕櫚獎、金球獎最佳電影等多項殊榮，不得不提的一定是「哥哥」張國榮在戲中的精湛演出。
+
+程蝶衣一角堪稱「哥哥」演藝生涯的顛峯之作，電影中一句「不瘋魔，不成活」，正是傳奇一生的寫照，從小因個子不高、外貌清秀，一直接受旦角的訓練（即戲劇中的女性角色），最後發現自己真是愛上了由張豐毅飾演的段小樓，成了一個被視為性別錯置，不為當時世俗眼光所接受的人，落得被批鬥至自殺的悲慘下場，若放在今時今日的廣電總局，是否已被一句「畸形審美」、「娘炮」而下架？
+
+「我本是男兒郎，又不是女嬌娥」，當小豆子（即小時候的程蝶衣）從小受訓，被那位戲班師父訓斥「唱錯詞」，成了「我本是女嬌娥，又不是男兒郎」時，讓人認為他的性向是從小因為訓練緣故而被「扭曲」，認為自己與真正的花旦一樣，而卸下角色後，他在一般人眼中當然也就是一個男子漢，也許是比較嫵媚而已。對了，當唱到這句時，程蝶衣充滿女性風采的演出，想必也就被廣電總局視為「對人民思想生活的侵蝕」，馬上又要禁播了。
+
+然而，在那個主張要「破舊立新」的時代，京劇當然是首當其衝要被「鬥」的產物，但性向呢？封建社會中不被接納的自由戀愛，不同性別傾向，為什麼就不能夠為這個要「立新」的時代所接受？程蝶衣在戲中就是因為文革的浪潮，被迫抖出由鞏俐飾演的菊仙曾為娼妓，自己則被人誣陷為與別人有不倫戀，逃不過互相批鬥的可怕命運。在現時廣電總局要弘揚優秀中國文化、革命文化的主調下，這些充滿「黑歷史」的橋段，也肯定要被刪掉。
+
+大家也知道「破四舊、立四新」這些口號式謊言，只是為了一場政治運動「正名」，從骨子裏就是把政敵、不喜歡的眼中釘拔掉而已。惟以廿一世紀的價值觀重新衡量，當世界各地對性別傾向越來越尊重的同時，中國社會究竟出了甚麼毛病，要走這條要求男子漢要有陽剛氣的「回頭路」？
+
+可以肯定的是，不論喜歡甚麼性別的人，既不是毛病，也不是錯，當有這個認知基礎時，性別議題才值得討論。而在這次中國政府「整改」的浪潮下，又不知有多少人為此而犧牲。
+
+最後，謹向最喜愛的巨星張國榮致敬。
+
+---
+
+![博客 | 家興](https://web.archive.org/web/20220519020314im_/https://www.hkcnews.com/uploads/avatars/280c426b-3a89-496e-be2b-847e31c0c942.png?1442209085)
+
+**博客 | 家興**
+
+【家興專欄】前職工盟工會幹事，現為自由撰稿人。

@@ -1,0 +1,60 @@
+---
+title: "林鄭越快樂　香港越淪落　「藍絲」夢醒未？"
+date: "2020-12-10"
+last_updated: "2020-12-11 05:32:39"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "建制派"
+  - "親中派"
+  - "Pro-establishment"
+  - "屈穎妍"
+url: "https://web.archive.org/web/20210927230434/https://www.hkcnews.com/article/36359/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36360/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36359/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36360/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭越快樂　香港越淪落　「藍絲」夢醒未？
+
+
+{{< video src="https://web.archive.org/web/20210927230434if_/https://www.youtube.com/embed/xtAQExusUb4" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210927230434/https://bit.ly/2Cj8v4t)
+
+一場反修例風暴未過，再爆世紀冠狀病毒疫情，香港政治、經濟、社會陷入大亂，特首林鄭月娥很忙、很忙、很忙，尋回「自己」後，很多事情想做、要做，她做得越起勁，香港越紛亂。 疫情第4波未見有緩和跡象，港人恐怕將要渡過一個不快樂的聖誕。
+
+林鄭月娥周三出席《華爾街日報》國際政商界論壇，接受訪問，形容現在是來港營商「最好的時候」，她稱經歷混亂一年後，香港的法律、秩序均已恢復，《港區國安法》下香港維持穩定，中央「祝福」香港，香港未來仍然大有可為。又說，香港的權利、自由仍是非常「有活力」，有堅實、透明而公開的法律制度、司法獨立不受干預，法援亦確保人人在法律面前平等。
+
+林鄭口中的「香港」，與現實有很大差距。美國國務卿蓬佩奧在論壇亦再重申香港不過是「 另一個中國共產黨統治的城市」，認為全球、商界亦應這樣看待香港。
+
+特朗普「唱淡」香港，更接近不少港人對今日及可見未來香港的估計。林鄭「唱好」香港的言論，傳媒報道不多，除官方媒體，建制報章亦冷淡處理。建制派開始感到要接受現實，不能再自我催眠，把香港亂局都歸咎民主派，或所謂「反對派」、「攬炒派」。抗疫無人阻林鄭，林鄭及團隊無能，將香港推落深淵。
+
+親中建制派背後是龐大跨境政商利益，香港在兩岸四地中是最現代化城市，抗疫表現卻比不上澳門、台灣、內地。兩地未能通關，親中建制人士利益直接受損，早前已不斷向林鄭施壓，要求進行全民檢測，以達到「清零」目標。全民檢測可行性和實際作用明顯有限，建制派打「全民檢測」牌，目標越來越明顯是針對林鄭的管治。
+
+首任特首董建華日前引用2003年沙士時政府汲取的教訓，強調決策要果斷，他當年將淘大花園整座隔離，有暗指林鄭抗疫不夠果斷。九龍灣麗晶花園爆發確診個案，強制檢測出現混亂，建制派勢將再針對林鄭的抗疫工作未見成效。另一位前特首梁振英不但針對林鄭不搞全民檢測， 炮台亦指向林鄭及教育局處理教師投訴事宜。
+
+日前，一群「海歸派」金融界人士牽頭成立的「紫荊黨」曝光，劍指立法會及特首選舉委員會，目的是要參與「造王」，成立建制派另一旗幟，明顯並非「林鄭粉絲」。林鄭2017年以777票當選，建制中人公開說，都是中央的票，當日投林鄭的別無選擇，北京一日挺林鄭，建制派不敢「造反」，只能針對抗疫、教師等問題放暗戰，不敢公開鞭撻林鄭。
+
+在「藍絲」圈子爆紅的專欄作家屈穎妍，周四（10日）在《頭條日報》專欄以〈 我不是建制派〉為題撰文，表示自己經歷 3 年，見證林鄭施政無能，雖然曾經相信她，但現在「證實自己錯了」 ，表示要「打倒昨日的我」，無法再如以前寫文章撐她。 她批評林鄭「不懂民情」，疫情之下仍指責無法在家工作的市民「出出入入」，她又批評施政報告內容顯示她對現時本港困境「束手無策」。她說，「中央也想聽真話看真像」，「如果政府把市民引向懸崖我們還要拍掌叫好才叫建制派，對不起，那我絕非一員，我只是路上一個指着國王說她根本沒穿衣服的老實孩子。」
+
+不少港人對林鄭上任前已是「零期望」，仍有的話，早已變「零」。「藍絲」痛恨泛民，視他們為死敵，敵人越反對的越要死撐，錯也要撐，林鄭有「阿爺」撐，對建制「嗤之以鼻」，揶揄民建聯無人才是一個清楚例子，工聯會之流她更不會看在眼內。建制派啞忍，林鄭近日飄飄然，擺明有意爭取連任，連「孩子」 也按捺不住，打倒昨日的自己，要將明日的林鄭拉下馬。 好戲在後頭。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210927230434/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210927230434im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

@@ -1,0 +1,55 @@
+---
+title: "男子被控廁所寫狗官字句　警員供稱不記得細節　反問辯方「唔係喺莊嚴嘅法庭玩記憶遊戲呀？」"
+date: "2021-12-08"
+last_updated: "2021-12-08 21:55:31"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "廁所"
+  - "黑警死全家"
+  - "刑毀"
+url: "https://web.archive.org/web/20220117185601/https://hkcnews.com/article/48797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48807/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48807/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 男子被控廁所寫狗官字句　警員供稱不記得細節　反問辯方「唔係喺莊嚴嘅法庭玩記憶遊戲呀？」
+
+29 歲男子被控在葵涌廣場男廁內，寫上「黑警死全家」及「狗官」等字句，案件今（8日）在西九龍法院續審。聲稱目擊被告犯案的警員接受辯方盤問，對於案件細節絕大部份稱「唔記得」，語氣態度多番顯得不耐煩，反問辯方大律師：「你唔係喺個咁莊嚴嘅法庭度同我玩記憶遊戲呀？」裁判官陳慧敏訓斥：「證人，你答問題啦！記得就記得，唔記得就唔記得，律師有責任向你盤問㗎！」警員向裁判官致歉，惟其後又兩度拒答辯方問題，再遭裁判官質疑後始肯回答。
+
+<figure>
+<img src="https://web.archive.org/web/20220117185601im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/警員-刑毀-20211208192632_1830_large.jpg" alt="">
+<figcaption>聲稱目擊被告在男廁寫字的警員25711 羅偉文作供時多以「唔記得」回答。</figcaption>
+</figure>
+
+被告麥榮傑（29 歲）被控於今年1月19日，在葵涌廣場二樓男廁兩度損壞廁格牆身及門口。
+
+聲稱目擊被告在男廁寫字的警員25711羅偉文今在盤問下稱，當晚約7時在警署聽取訓示，指目標人士為一名雙手有紋身、著黑衫黑褲、黑波鞋黑口罩的男子。他與小隊到商場巡查。
+
+### 警員沒筆錄曾進男廁調查　辯稱：我將記憶放喺腦入面
+
+辯方問他在被告未出現時，有否入過男廁檢查，羅稱有但不記得時間。羅獲准翻看記事冊後，稱他獲警員20715告知於晚上八時半巡查涉事廁所，除發現「黑警」「狗官」四個黑色字外，沒有其他字，而他自己進入廁所的經過則沒有記錄。
+
+羅解釋：「記事冊作用只係將我哋嘅記憶回復返，我將我嘅記憶放喺腦入面。我記得， 所以唔使寫落去。」辯方隨即質疑：「但你依家唔記得咗喎？」並問羅是否選擇性記錄資料在記事冊。羅不同意，又著辯方：「麻煩你，案件重點？ 」
+
+### 男廁細節一律「唔記得」　警：律師你都唔記得上星期六去邊間餐廳食飯啦？
+
+閉路電視顯示，被告進入男廁後，羅相隔20秒後跟隨進入。被問到通往廁所的走廊當時有否其他人、男廁門是否關上、廁格與大門的距離、見到被告寫字時手抬到哪個高度等等的問題，羅一律回答「唔記得」，稱「我淨係記得佢企係度寫字」，並一度向大狀反問：「律師呀，係唔係玩緊記憶遊戲？ 你唔係喺個咁莊嚴嘅法庭度同我玩記憶遊戲呀？律師你都唔記得上星期六去邊間餐廳食飯啦？」
+
+裁判官陳慧敏訓斥羅：「證人呀，你答問題啦！記得就記得，唔記得就唔記得，律師有責任向你盤問㗎！」羅只好稱：「係，對唔住法官大人。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117185601im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/陳慧敏-裁判官-裁判法院-20211005133451_f883_large.jpg" alt="">
+<figcaption>裁判官陳慧敏。資料圖片。</figcaption>
+</figure>
+
+### 向官道歉後兩度向大狀稱「我唔會回答」
+
+但及後大狀再問到羅目擊被告寫字時動作，羅稱：「律師，我重覆我嘅答案，佢企係度寫字。」大狀問：「係咪企直，你都唔會回答？」羅稱「我唔會回答」。大狀再問被告的身體有否阻擋羅的視線，羅再稱「我唔會回答呢個問題」。
+
+陳官再次開腔：「點解唔回答呢？好簡單之嘛呢個問題，佢身體有冇阻住你視線呀，有定冇呀？」羅沉默一會後稱「係冇嘅」，陳官稱「咁你咪答無冇，做咩唔回答呀？我唔明嘞。」
+
+羅供稱，在被告行出廁所時截停他，並與同袍帶返他回男廁調查。羅說向被告指出廁所上「黑警死全家」五隻字由他寫上，被告當時沒有任何回應，但警誡後供出「對政府表達不滿，所以用筆表達意見」的說法。
+
+案件2月14日續審。
+
+案件編號：WKCC1943/2021

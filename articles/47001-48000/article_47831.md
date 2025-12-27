@@ -1,0 +1,74 @@
+---
+title: "【警司呃房貸案】法官裁定被告說謊隱瞞租約　辯方求情稱被告服務30年沒行差踏錯"
+date: "2021-11-17"
+last_updated: "2021-11-18 01:00:26"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+  - "詐騙"
+  - "沈小民"
+  - "龍少泉"
+url: "https://web.archive.org/web/20220117171530/https://hkcnews.com/article/47831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47845/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47845/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【警司呃房貸案】法官裁定被告說謊隱瞞租約　辯方求情稱被告服務30年沒行差踏錯
+
+剛退休的警司龍少泉涉於4年間隱瞞出租單位，向政府及銀行詐騙逾600萬房貸。事件在政府抽樣檢查中被揭發，警司遭廉署起訴兩項欺詐罪。區域法院法官沈小民今（17日）裁定警司兩罪罪成，指被告是資深執法人員，人生經驗豐富，對買樓事事關心，必然知悉其購買的單位會連租約出售，卻故意隱瞞情況，欺騙房貸及賺取租金，形容「一般明白事理、誠實嘅人，都會明白咁樣做係唔誠實」。
+
+辯方求情稱被告在1986年加入警隊，工作沒有行差踏錯或誤入歧途，在2009年任職警察投訴科期間，相信加強監警制度有助增強公眾信心，顯示他「是公正的人」。案件押後至本月29日判刑，被告獲准以原有條件保釋。
+
+<figure>
+<img src="https://web.archive.org/web/20220117171530im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/詐騙-龍少泉-20211117201653_916a_large.jpg" alt="">
+<figcaption>被告龍少泉（穿西裝）。邢穎琦攝</figcaption>
+</figure>
+
+55歲被告龍少泉被控兩項欺詐罪。第一項指他於2016年9月29日至11月30日期間，根據政府購屋貸款計劃向庫務署申請貸款時，虛假地表示將交付一個愉景灣空置單位，而沒有申報他與該單位當時的租客已簽訂租約，詐騙而誘使庫務署向他發放約207萬港元貸款。
+
+第二項則指被告向滙豐銀行申請按揭貸款時，虛假地表示上述單位將由其父母居住，及將於交易完成時取得空置單位，而沒有通知滙豐他已簽訂上述租約，詐騙而誘使滙豐向他發放按揭貸款390萬港元。
+
+### 被告有意營造不連租約的印象
+
+法官沈小民裁決提到，本案爭議在於被告是否有意隱瞞單位連租約購入，即原租客可繼續在該單位居住，不用遷出「交吉」。
+
+被告早前辯稱以為「交吉」等於「交樓」，又指簽署臨時買賣合約至簽租約協議的兩個月期間，原租客的意向飄忽，難以確定是否續租。法官今反駁指，被告與地產經紀的WhatsApp對話顯示，經紀有說明「交吉」意思，被告亦有足夠機會向對方了解。正式簽署買賣合約時，租客續租情況已「相當明朗化」，而被告事實上有實行新租約，生效日期為租客與原業主租約完結的翌日。
+
+控方在結案陳詞指，被告簽署臨時買賣合約時，同時簽了一份補充協議，前者列明會「交吉」，後者補充租客可能繼續居住，惟被告申請貸款時，並沒一併提交兩份文件，顯示他有意營造不連租約的印象。法官同意控方說法，認為兩份文件矛盾，被告理應懂得分辨；按常理而言，若被告想不連租約購入單位，並不會額外多簽一份補充協議，為自己增添麻煩，何況被告任職警察多年，人生經驗豐富，「不會愚蠢地簽下不利協議」。
+
+### 不可能視簽署聲明為「信口開河」
+
+被告早前另辯稱沒有細閱《公務員事務規例》第809條，不知道以政府貸款資助購買的物業，不得分租及出租。法官批評被告說法不可信，指他已簽署清楚理解條例的聲明，簽名前理應已花時間查閲，而被告身為資深執法人員，絕不可能將簽署聲明視作「信口開河」。
+
+對於被告聲稱向滙豐銀行申請按揭的事宜由妻子處理，他不知為何會填寫單位供父母自住，法官認為銀行職員並沒誘因虛構資料，只會按被告夫婦提供資訊填寫申請表格。被告與妻子緊密溝通，過程有商有量，必然知道連租約與否會影響按揭批核。綜合各種證供，法官認為本案唯一結論是，被告明知單位連租約買，卻有意說謊隱瞞，欺騙房貸，因此裁定被告兩項欺詐罪成。
+
+<figure>
+<img src="https://web.archive.org/web/20220117171530im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/法官-沈小民-20211008163241_13e8_large.jpg" alt="">
+<figcaption>法官沈小民</figcaption>
+</figure>
+
+### 求情稱失350萬退休金及每月6萬長俸
+
+辯方求情稱，被告出生基層家庭，中五加入警隊投身社會，工作沒有行差踏錯、誤入歧途，之後更努力考取大學學士資格，並在工餘時間做義工。辯方又稱被告2009年任職警察投訴科期間，相信加強監警制度有助增強公眾信心，顯示他「是公正的人」。被告的聲譽因本案受打擊，亦將失去350萬退休金及每月6萬的長俸，他早前已償還購屋貸款計劃的津貼，亦願意交出早前賺取的116萬租金。
+
+辯方透露，被告與妻子在中學相識，二人育有一名18歲兒子，他原本在英國讀書，為了多見父親選擇回港讀大學。兒子在求情信提到，父親自小教他做個誠實的人，勉勵他要「百折不撓、永不放棄」。
+
+辯方另呈上數份報告，指被告因本案承受巨大壓力，有抑鬱及焦慮症狀，心臟懷疑有缺陷，有中風危機，早前接受廉署調查時，更試過昏倒送入深切治療部，望法庭考慮被告已得到教訓，予以輕判，考慮緩刑。
+
+<figure>
+<img src="https://web.archive.org/web/20220117171530im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/區域法院-法院-20210902174536_2c5d_large.jpg" alt="">
+<figcaption>灣仔區域法院</figcaption>
+</figure>
+
+### 租金收益約116萬
+
+案情指，被告於2016年3月向庫務署申請獲批房貸計劃，貸款金額約為207萬元。同年7月，被告經地產中介在愉景灣尋找單位，兩個月後跟涉案單位的原業主簽訂臨時買賣合約，定於同年11月30日「交吉」，以約660萬元購入單位。惟被告購入單位後，繼續與原租客簽訂租約。雙方在2019年3月終結租約後，被告再租出物業至2020年8月，租金收入共約116萬。
+
+此外，被告亦在2016年9月29日向滙豐銀行申請按揭貸款，並填寫表格表明物業由父母居住，最後獲批390萬元貸款。被告當時已透過地產中介洽談新租約，準備以租金償還按揭，但被告從未就資料的變更通知滙豐。
+
+至去年9月2日，被告接受廉政公署調查，辯稱不知道公務員規例的詳細內容，也不清楚自用和投資用的分別，誤認為「交吉」意思為「完成買賣」。他又稱向滙豐申請按揭時，曾向銀行職員表示會將物業短期出租，但最後不知為何表格卻填了「自用」。被告的Whatsapp訊息記錄透露，其妻子曾向他表示若向銀行申報物業為自住，按揭可批達六成，成數較高，著他申報「自用」。
+
+【案件編號：DCCC410/21】

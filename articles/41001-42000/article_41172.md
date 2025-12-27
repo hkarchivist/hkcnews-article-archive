@@ -1,0 +1,49 @@
+---
+title: "【理大圍城首宗暴動案開審】29歲設計師逃跑時跌倒被捕　涉藏索帶、波子參與暴動"
+date: "2021-05-10"
+last_updated: "2021-05-10 17:26:47"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "區域法院"
+  - "理大圍城"
+url: "https://web.archive.org/web/20210725161145/https://www.hkcnews.com/article/41172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41177/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41172/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41177/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【理大圍城首宗暴動案開審】29歲設計師逃跑時跌倒被捕　涉藏索帶、波子參與暴動
+
+前年11月理大圍城事件，大批市民發起「圍魏救趙」，試圖營救被困校園的抗爭者，當晚警方在紅磡一帶以催淚煙驅散示威者，一名產品設計師疑因跑在示威者隊尾，並一度跌倒，最終被捕，事後被控暴動罪及管有適合作非法用途工具罪，案件今日於區域法院開審，是首宗涉及理大圍城的暴動審訊案件，被告否認控罪受審。高級督察今供稱，當日得悉網民呼籲市民前往理大營救被圍困者，遂吩咐同袍不要讓示威者循漆咸道進入理大，他又指有示威者投擲汽油彈，但沒有警員受傷。
+
+<figure>
+<img src="https://web.archive.org/web/20210725161145im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/圍困理工-救理大-20191121125829_10fe_large.jpg" alt="">
+<figcaption>前年 11 月警方連日圍封理工大學，大批市民於 11 月 18 日前往理大外圍試圖營救被困校園的抗爭者。    資料圖片</figcaption>
+</figure>
+
+被告雷爍鏗（29 歲，產品設計師），被控參與暴動及管有適合作非法用途工具兩罪，指他於2019年11月18日，於紅磡蕪湖街與其他不知名人士參與暴動；及管有 26 粒波子及 100 條膠索帶。案件由法官姚勳智審理。
+
+控方開案陳詞指，當日晚上8時許，示威者於蕪湖街馬路上聚集，擺放傘陣並向漆咸道北推進，並以雜物堵路。及至9時許，警方在漆咸道北及蕪湖街附近設立防線，當時有200至300名示威者於該處聚集，部分人向警方投擲汽油彈、磚頭及鐵枝。警方多次警告無效，遂施放催淚彈和發射橡膠子彈，示威者一度後退，但不久又再度聚集。眾人撤退期間，有警員看見被告轉身奔跑卻跌倒，隨即上前制服及拘捕被告。當時被告身穿黑衫，背囊內有防毒面具、衣物、生理鹽水、膠索等。
+
+控方認為，警方驅散聚集人群時，被告身處其中並隨人群逃跑。控方指從被告被捕位置、逃跑行為、裝束及持有物件，例如驗出有易燃有機溶劑殘留成份的手袖，可推論被告參與了暴動。被告另被控一項管有適合作非法用途的工具，即100條索帶及26顆玻璃彈珠，意圖將其作任何非法用途使用。
+
+<figure>
+<img src="https://web.archive.org/web/20210725161145im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/警員-理大圍城-20210510162907_2694_large.jpg" alt="">
+<figcaption>高級督察麥善涵於庭上承認當日沒有汽油彈命中警員，事件中亦沒有警員受傷。   蘋果日報圖片</figcaption>
+</figure>
+
+控方傳召案發當日為臨時指揮官的高級督察麥善涵作供，他表示當日得悉網民呼籲營救被圍困理大的示威者，特意吩咐同袍不要讓示威者循漆咸道進入理大。麥憶述，當時有約100名示威者於附近掘磚及設置障礙物堵路，他指警方其後發出多次警告要求示威者立即散去，但示威者卻架起傘陣向他們的防線推進，又向警員投擲汽油彈，並用「強力雷射光」照向警方，警方遂施放催淚彈驅散群眾。他承認沒有汽油彈命中警員，事件中亦沒有警員受傷，他於事後得悉同袍曾拘捕一名逃跑人士。
+
+另外，當日有份拘捕被告的羅姓警員供稱，當日在現場戒備時看見200至300名「暴徒」投擲汽油彈及攻擊警方防線。警方之後發射催淚彈驅散，示威者見狀四散。他表示由於被告在大批逃跑的人群中跌倒，他才特別關注對方，並且上前制伏及拘捕被告，鎖上手銬並帶被告到附近的橋底搜身。
+
+聆訊明天繼續。被告以原有條件繼續保釋，期間不得離港，每周到警署報到一次及每晚 11 時至翌晨 7 時宵禁。
+
+【案件編號：DCCC434/20】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725161145/https://www.hkcnews.com/aboutus/#subscribe)

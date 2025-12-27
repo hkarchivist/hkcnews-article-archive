@@ -1,0 +1,64 @@
+---
+title: "【許智峯私人檢控案】律政司引警獨立調查指表證不成立　法庭批准律政司撤控"
+date: "2020-08-24"
+last_updated: "2020-08-24 22:21:03"
+author: "實習記者鄭啟智"
+category: "眾聞"
+tags:
+  - "許智峯"
+  - "HUI Chi-fung"
+  - "西灣河"
+  - "私人檢控"
+url: "https://web.archive.org/web/20210923233622/https://www.hkcnews.com/article/33209/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33221/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33209/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33221/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【許智峯私人檢控案】律政司引警獨立調查指表證不成立　法庭批准律政司撤控
+
+民主黨立法會議員許智峯早前提出兩宗私人檢控，包括去年10月深水埗的士司機駕車撞人案，以及去年11月西灣河警員開槍打傷示威者，均獲法庭接納。惟律政司日前介入兩宗案件，要求撤銷檢控。主任裁判官羅德泉今日（24日）批准律政司就上述兩宗案件撤銷檢控的申請，原定於8月31日進行的聆訊將會取消，相關的檢控傳票亦會撤回。許智峯在審訊完結後回應，指法庭今次批准律政司撤控，是在案件受害人的傷口上灑鹽，又認為警方的獨立調查小組是「自己人查自己人」，不能令市民信服。
+
+<figure>
+<img src="https://web.archive.org/web/20210923233622im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/私人檢控-HUI%20Chi-fung-20200824191750_4273_large.jpg" alt="">
+<figcaption>民主黨立法會議員許智峯早前提出兩宗私人檢控，早前被律政司介入要求撤控，法庭今日批准律政司的申請。邢穎琦攝</figcaption>
+</figure>
+
+案件今日下午在西九龍裁判法院審理，律政司一方在庭上讀出要求撤銷檢控兩宗案件的理由，指律政司經過審視所有證據，當中包括申請人許智峯一方未有掌握的證據，認為兩宗案件的現有證據顯示表面證據不成立，沒有足夠證據，也無合理機會將被告定罪。
+
+就去年11月西灣河警員開槍打傷示威者一案，律政司獲得警方獨立調查小組的報告和證據，當中包括但不限於涉事警員的陳述，現場汽車的行車攝錄鏡頭片段，以及警方對片段的逐格分析。律政司指根據現有證據，警員當時開槍是為了防止罪案和自衛，使用了合法和合理的武力，沒有足夠證據證明涉事警員的行為是非法或者罔顧後果。律政司一方又指，許智峯一方未有傳召中槍人士作證，會影響被告獲得公平審訊的權利。
+
+<figure>
+<img src="https://web.archive.org/web/20210923233622im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/西灣河-警察開槍-20191111081759_8699_large.png" alt="">
+<figcaption>去年11月11日，一名警員在西灣河開槍打傷示威者。資料圖片</figcaption>
+</figure>
+
+至於去年10月深水埗的士司機駕車撞人案，律政司獲得警方獨立調查小組的報告和證據，當中包括但不限於被告和其他證人的口供，被告當時與的士公司的即場對話，以及深水埗警署的閉路電視片段等。律政司一方續指，現有證據顯示，被告人被襲擊者以武器攻擊，而撞車後有3人從的士下車，沒有足夠證據證明被告當時正在控制的士。
+
+<figure>
+<img src="https://web.archive.org/web/20210923233622im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/深水埗區-106反蒙面法遊行-20200824181202_1acc_large.jpg" alt="">
+<figcaption>去年10月6日反蒙面法遊行，59歲的士司機鄭國泉在深水埗駕駛的士鏟上行人路，撞傷三名女子，當中一名23歲女子被撞斷雙腳。資料圖片</figcaption>
+</figure>
+
+許智峯在審訊完結後表示，與律師團隊商討後，會盡快提出司法覆核。他又指法庭今次批准律政司撤控，是在案件受害人的傷口上灑鹽，他稱案中的年青人因為案件而斷送青春、影響學業、更在身體上留下永遠的傷痕，律政司的決定等同繼續殘害他們，對此感到極度憤怒，也為案中的年青人感到難過。
+
+許智峯又批評，警方的獨立調查小組是「自己人查自己人」，不能令市民信服。「我們告一位警員，就由警察自己去查，話無足夠理據，市民會相信嗎？真正公義會達到嗎？我們絕對唔相信。」他批評律政司拒絕提供警方的調查結果和相關證據，是黑箱作業，又認為律政司不願在法庭上用證據打贏官司，而是選擇撤控，是「搬龍門、打茅波」。 許強調，今次法庭判決不會影響他日後繼續提出私人檢控，又指現時手上部分案件已經成熟，相信很快能提出私人檢控。
+
+代表許智峯一方的律師楊浩然表示，法庭早前批出檢控傳票時，已經裁定案件的表面證據成立，認為律政司以表證不成立為由撤控是不合理。他續說，律政司一方以「法律專業保密權」拒絕披露警方的獨立調查報告，認為此舉，是剝奪公眾知情權。
+
+<figure>
+<img src="https://web.archive.org/web/20210923233622im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/許智峯-私人檢控-20200824191855_27ae_large.jpg" alt="">
+<figcaption>許智峯（中間）和代表律師楊浩然（左一）在審訊完結後見記者。邢穎琦攝</figcaption>
+</figure>
+
+法庭今日先處理律政司一方要求撤銷檢控的申請，至於的士司機鄭國泉申請訟費的事宜，則會留待10月15日再審理。法庭將會要求鄭指明向哪一方申索訟費，並陳述相關理據。
+
+審訊結束後，部分旁聽市民情緒激動，批評律政司「放過殺人犯」、是「垃圾」，又以粗口指罵出庭的律政司代表，並一直沿扶手電梯追罵他們，從四樓法庭追到法院的一樓大堂。
+
+案件編號：ESS12887/2020、 ESS13467/2020、 ESS13468/2020、ESS13469/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923233622/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,62 @@
+---
+title: "變種病毒難纏！台灣長榮機師打完2劑疫苗確診又傳子　5例施打中國疫苗又染疫"
+date: "2021-09-03"
+last_updated: "2021-09-04 00:23:19"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "陳時中"
+  - "BioNTech"
+  - "中央流行疫情指揮中心"
+  - "國藥疫苗"
+  - "科興疫苗"
+  - "台灣疫情"
+url: "https://web.archive.org/web/20211027004634/https://hkcnews.com/article/45021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-biontech-45031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-biontech-45031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 變種病毒難纏！台灣長榮機師打完2劑疫苗確診又傳子　5例施打中國疫苗又染疫
+
+武漢肺炎（COVID-19）變種病毒難纏，台灣今（3日）新增移入個案中，有2例是接種完2劑阿斯特捷利康（AstraZeneca，簡稱AZ）疫苗仍染疫的長榮航空機師，被列為突破性感染個案（COVID-19 Vaccine Breakthrough Case）；其中一人還將病毒傳染給就讀高中的兒子，全校因此停課。另外，根據台灣中央流行疫情指揮中心統計，台灣近二周已有5例完整接種國藥、科興及智飛疫苗卻仍染疫的境外移入個案。
+
+<figure>
+<img src="https://web.archive.org/web/20211027004634im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/新冠疫苗-國產疫苗-台灣疫情-20210903205708_197e_large.jpg" alt="">
+<figcaption>台灣全力拚疫苗接種施打率，目前接種人口涵蓋率為42.82%。高雄市政府提供</figcaption>
+</figure>
+
+台灣本土疫情趨緩，今僅新增2名本土病例，但卻引發高度緊張；指揮中心指揮官陳時中說，高度懷疑是Delta病毒，因此，原本防疫措施為1名學生染疫，全班停課的規定，緊急改為全校停課；另外，同班同學及曾一起上課的他班同學，全都入住集中檢疫所14天；同班同學的家人，也全都進行預防性集中檢疫，總數約142人。
+
+不只學校高度防疫，原本全國已降至二級防疫警戒，機師及其子個案所在地的桃園市，也提升防疫警戒，將原本聚會人數標準，從原本室內80人降為50人，室外則從300人降至100人，若有超額需先預提防疫計畫，通過後才可舉行；另外，原本9月15日才要開始實施的航空機組員加強管制措施，也改為即日起開始實行。
+
+指揮中心表示，這名學生是被擔任長榮航空機師的父親傳染，機師已完整接種2劑疫苗，曾駕貨機飛往美國芝加哥及澳洲布里斯本，可能因此在外站染疫，並在居家自主健康管理期間，將病毒傳給兒子。
+
+目前台灣累計已有3名機師完整接種2劑疫苗卻仍染疫的突破性感染個案；指揮中心表示，3人都是接種AZ疫苗。
+
+台灣5月中爆發本土疫情，反對陣營及部分民眾質疑，指揮中心將航空公司機組員檢疫規定，由「5天隔離檢疫、9天自主健康管理」放寬為「3天隔離、11天自主健康管理」，導致疫情出現破口；陳時中多次解釋，當初是基於航空公司外站管理明顯改善，才會決定放寬檢疫措施；另外，根據發病日來看，疫情爆發起點的萬華地區個案，也早於4月機師及空服員違反自主健康管理規定的時間；不過，在野陣營早將「3+11」視為疫情破口，不斷藉此攻擊指揮中心及蔡英文政府。
+
+這次機師傳染病毒給兒子，讓指揮中心高度緊張的三大原因，首先是連續三名境外移入確診個案都是機師，而且都是接種完整疫苗的突破性感染個案；其次，其中一名機師已傳染給兒子，成為本土個案；第三，目前境外移入個案經基因序列比對的結果，發現主流病毒株仍是目前傳染力最強的Delta變種病毒株，所以，指揮中心繃緊神經，採更高規格防疫，就是希望將Delta病毒阻絕於境外，避免再有大規模本土感染發生 。
+
+<figure>
+<img src="https://web.archive.org/web/20211027004634im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/新冠疫苗-台灣疫情-國產疫苗-20210903205723_1bc8_large.jpg" alt="">
+<figcaption>台灣民眾施打疫苗累計有10例完整接種後仍確診的個案，都是施打AZ疫苗。高雄市政府提供</figcaption>
+</figure>
+
+目前台灣的突破性感染個案，除了3名長榮機師外，根據自7月中開始統計境外移入個案施打疫苗的情形，上月26日首先出現一例在中國施打2劑國藥疫苗、入境台灣檢疫期間確診的個案；上月29日，指揮中心又公布2名分別施打2劑科興疫苗及3劑智飛疫苗個案，同樣都被列為突破性感染個案。
+
+本月1日，又有2例完整接種2劑中國國藥疫苗，且達14天卻又確診的個案；指揮中心醫療應變組副組長羅一鈞說，這2名個案分別為台灣40多歲男性及女性，在7月20日從阿拉伯聯合大公國入境台灣，入境及檢疫期滿均為陰性，但8月30日因工作需求採檢後確診。
+
+根據指揮中心統計，目前境外移入的突破性感染個案，施打的疫苗品牌包括BNT、AZ，嬌生和莫德納、國藥、科興、智飛、俄羅斯衛星-V（Sputnik-V）疫苗及印度國產疫苗（Covaxin）等。
+
+在台灣完整施打疫苗而確診的個案，目前總共有10例，分別為8例本土病例與2例境外移入，都是無併發症的輕症個案，都是接種AZ疫苗。
+
+陳時中說，台灣本土流行的病毒株仍是Alpha變異株，境外移入個案幾乎都是Delta，即使施打疫苗，仍有相當比例會出現突破性感染，所以，除了邊境嚴守外，疫苗覆蓋率愈高，自我保護力愈好，但還是要戴口罩、勤洗手，維持社交距離，才能讓疫情降到最低。
+
+根據指揮中心統計，截至目前為止，台灣累計接種疫苗數已達1100萬劑，疫苗接種人口涵蓋率 42.82 %，劑次人口比 46.87（劑／每百人）。另外，繼之前已提供台灣的334萬劑疫苗，日本政府今再宣布，將捐贈第4批疫苗給台灣；根據媒體報導，數量約在6萬至7萬劑。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027004634/https://hkcnews.com/aboutus/#subscribe)

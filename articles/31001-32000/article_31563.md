@@ -1,0 +1,46 @@
+---
+title: "羅冠聰國安法生效前夕離港 　「今此一別未知歸途何期」"
+date: "2020-07-02"
+last_updated: "2020-07-03 00:12:08"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "羅冠聰"
+  - "Nathan LAW"
+  - "港版國安法"
+url: "https://web.archive.org/web/20200703135313/https://www.hkcnews.com/article/31563/%E7%BE%85%E5%86%A0%E8%81%B0-%E6%B8%AF%E7%89%88%E5%9C%8B%E5%AE%89%E6%B3%95-31581/%E7%BE%85%E5%86%A0%E8%81%B0%E5%9C%8B%E5%AE%89%E6%B3%95%E7%94%9F%E6%95%88%E5%89%8D%E5%A4%95%E9%9B%A2%E6%B8%AF-%E3%80%8C%E4%BB%8A%E6%AD%A4%E4%B8%80%E5%88%A5%E6%9C%AA%E7%9F%A5%E6%AD%B8%E9%80%94%E4%BD%95%E6%9C%9F%E3%80%8D"
+original_url: "https://www.hkcnews.com/article/31563/%E7%BE%85%E5%86%A0%E8%81%B0-%E6%B8%AF%E7%89%88%E5%9C%8B%E5%AE%89%E6%B3%95-31581/%E7%BE%85%E5%86%A0%E8%81%B0%E5%9C%8B%E5%AE%89%E6%B3%95%E7%94%9F%E6%95%88%E5%89%8D%E5%A4%95%E9%9B%A2%E6%B8%AF-%E3%80%8C%E4%BB%8A%E6%AD%A4%E4%B8%80%E5%88%A5%E6%9C%AA%E7%9F%A5%E6%AD%B8%E9%80%94%E4%BD%95%E6%9C%9F%E3%80%8D"
+---
+
+# 羅冠聰國安法生效前夕離港 　「今此一別未知歸途何期」
+
+眾新聞由兩個獨立消息得悉，前香港眾志常委羅冠聰在國安法生效前離開香港，但目前未知確實原因及身在何處。羅冠聰周四報道刊出後證實已經離港，但未透露具體地點，並說會專注國際戰線及民間外交，形容是「香港刻下必須要捍衛的領域」。
+
+羅冠聰 [晚上在Facebook留言](https://web.archive.org/web/20200703135313/https://www.facebook.com/NathanLawKC/photos/a.645858435565493/2257920621025925/?type=3&theater) 感慨：「今此一別，尚未知歸途何期。從飛機望下香港的繁華璀璨，是我心目難以忘懷的一幀剪影。願他朝有幸，半生歸來，仍是那位無忘初衷的少年。願香港安好，願榮光早日到來。」
+
+七一遊行期間有示威人士舉起「我真係好X鐘意香港」，在社交網站廣傳，羅冠聰也感言：「我何嘗又唔係好X鐘意香港。」
+
+據悉，眾志另外兩名成員黃之鋒及周庭則因為有案在身，所以不能離港。
+
+<figure>
+<img src="https://web.archive.org/web/20200703135313im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/港版國安法-羅冠聰-20200702133020_22be_large.png" alt="">
+<figcaption>羅冠聰在美國眾議院外交事務委員會聽證會上發言。聽證會直播影片截圖</figcaption>
+</figure>
+
+羅冠聰在香港時間周三晚上，透過視像方式在美國眾議院外交事務委員會聽證會發言，批評北京強推國安法違反中英聯合聲明及一國兩制承諾，令香港淪為另一個大陸城市，並促請國際社會及華盛頓不能坐視不理。雖然可能違反《國安法》，羅冠聰在開場發言時說要為港人高喊：「光復香港、時代革命；五大訴求、缺一不可」。同場以視像方式出席聽證會的包括工黨前立法會議員李卓人，以及流亡美國的香港大學《學苑》前總編輯梁繼平。
+
+羅冠聰發言內容稿一度寫道：「要離開自己成長地方及不知道幾時回來是非常艱難。但這一步，為了香港好，我知道很多人已經有所準備。我們必須繼續發聲及在國際平台提倡我們的理念。」（To leave the place where you grew up and not knowing when you ever will return is difficult. But this is a step I know many of us are prepared to take for the good of Hong Kong. We must continue to speak up and advocate for our cause on the international stage. Be Water, as we like to say.）不過，羅冠聰最終發言時，沒有發表上述內容。
+
+羅冠聰周四晚在Facebook證實離港消息，表示出席國際戰線在國安法通過後所冒風險幾何級數上升，但仍需要與本地抗爭雙軌並行。他表示，深信必須有國際視野，在民間外交層面以港人身分發聲，令各國警惕中共威權，所以當日出席美國國會聽證會時，「就已有走到國際的準備」。
+
+羅冠聰又說抱歉因他人安全，未能詳細交代個人訊息，並預計決定會引來相當攻訐，需要逐一消化。但他說：「七一的人海，已證明香港人的抗爭是不會止息。」
+
+眾志羅冠聰、黃之鋒、周庭等在周二（6月30日）人大常委會通過國安法後，先後宣布退出眾志，周二下午，眾志宣布即時解散。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20200703135313/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,47 @@
+---
+title: "孌童私家偵探非禮偷拍5女童　透露弟任警員　官指無求情理由重犯機會偏高囚三年兩個月"
+date: "2021-11-18"
+last_updated: "2021-11-18 12:50:35"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+url: "https://web.archive.org/web/20220117170156/https://hkcnews.com/article/47853/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47853/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47858/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 孌童私家偵探非禮偷拍5女童　透露弟任警員　官指無求情理由重犯機會偏高囚三年兩個月
+
+胞弟任職警員的30歲私家偵探，非禮及偷拍5名女童，包括偷拍裙底、摸胸、逼女童為他手淫及射精入對方的口，並用手機拍下過程。他早前認8罪，求情指擔心本案會影響胞弟升遷，他還柙至今日（18日）判刑。報告顯示被告有孌童癖，重犯風險「接近高」，法官稱被告事發前向受害人搭訕減低對方警覺，短時間內向不同受害人下手並攝錄犯案過程，均為加刑因素，除認罪外，沒有其他有效求情理由，最終判監三年兩個月。
+
+<figure>
+<img src="https://web.archive.org/web/20220117170156im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/區域法院-20210607141022_1d49_large.jpg" alt="">
+<figcaption>本案為區域法院案件，今在西九龍法院判刑。</figcaption>
+</figure>
+
+被告叶厚鑫（30歲）承認於2019年中至2020年9月期間犯案，被控向16歲以下兒童作出猥褻行為、作出有違公德的行為、擾亂公眾秩序、製作及管有兒童色情物品共5罪，及3項猥褻侵犯罪。
+
+辯方早前求情稱，被告被捕後向警員道謝，因「如果唔係佢哋及時拉到我，我唔知我會變成點」。他又表示愧對家人，尤其是任職警員的胞弟，擔心本案會影響其升遷。其母則透露，患癌去世的前夫生前也偏好兒童色情，被告或因照顧他而不知不覺受到影響。
+
+### 報告指被告有孌童癖　辯方稱已主動尋求治療
+
+辯方今日進一步求情指，兩份精神科醫生報告均顯示被告沒有精神病，但確認被告有孌童癖，適當的心理治療對他有幫助。而心理專家報告顯示被告的重犯風險為「中度至偏高」。辯方指被告知道沉迷兒童色情是不正常，自發尋求治療，自還柙起叫任職社工的表妹為他尋找治療方法，希望法庭考慮被告有悔意、願改過而輕判。
+
+### 官：年齡差距大　事前搭訕為加刑因素
+
+區域法院暫委法官張潔宜判刑時指，猥褻侵犯是嚴重罪行，涉及兒童更加嚴重。本案有加刑因素，包括被告與受害者年齡差距10至20年，被告事發前向受害人搭訕減低對方警覺，令他更容易下手。被告犯案持續一年，亦有在短時間內向不同受害者下手，並攝錄犯案過程，加劇受害者及其家人的創傷及痛苦。此外不能忽略被告重犯風險接近高。
+
+張官考慮案情及加刑因素，認為不能忽視對女童的驚嚇及被告一些跟蹤尾隨的行為，管有兒童色情物品的判刑亦需具阻嚇性，各項罪名以6至30個月監禁為量刑起點，認罪後扣減至4至20個月監禁，沒有其他有效求情理由，考慮整體刑期後判監38個月。
+
+### 警誡下認「咸濕」　有接觸女學生的癖好
+
+案情指，去年5月8日被告在慈雲山慈正邨向9歲女童W搭訕，其間強行將女童帶到梯間，向她自瀆並要求她觸摸其陽具，過程用手機拍下。同年7月7日，被告在葵涌石籬（二）邨藉詞拍攝校徽，先後觸摸12歲女童X及16歲女童Y的胸部。同年9月1日，被告在葵涌邨尾隨13歲女童Z，並再以拍攝校徽為由觸摸女童胸部、小腿及脫去她的襪，更一度掀其校裙拍攝。
+
+兩日後，警方拘捕被告，並在其手機再發現多段影片及照片，揭發他前年在長沙灣蘇屋邨非禮不知名女童，被告更將下體放入女童口內射精。
+
+被告手機連接的雲端伺服器內被發現大量從網上下載的兒童色情檔案，最年幼的受害者界別為4至6歲，當中包括集體性愛片段。被告警誡下承認，他有接觸女學生的癖好，因性衝動及「咸濕」而犯案。
+
+案件編號：DCCC270/21

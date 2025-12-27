@@ -1,0 +1,36 @@
+---
+title: "《美國之音》剖析北京宣傳戰　引胡平稱放低強硬調子與內部政治有關"
+date: "2019-02-12"
+last_updated: "2019-02-12 10:15:58"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "美國之音"
+  - "中美貿易戰"
+url: "https://web.archive.org/web/20220808165310/https://www.hkcnews.com/article/18431/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18434/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/18431/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18434/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《美國之音》剖析北京宣傳戰　引胡平稱放低強硬調子與內部政治有關
+
+中美兩國即將進行新一輪貿易談判之際，美國官方《美國之音》發表長篇文章〈 [美中貿易戰與北京宣傳戰](https://web.archive.org/web/20220808165310/https://bit.ly/2GDH5YI) 〉，稱在去年貿易戰一開始時頻繁高調宣揚「不怕與美國打貿易戰」的中方，近幾個月不但放低對美強硬的調子，對雙方的談判也採取低調宣傳姿態。文章引述《北京之春》榮譽主編胡平說，中共在宣傳方面對貿易戰的低調，顯然是與內部政治有關。他稱，在中國社會和中共黨內，早就有很多人對習近平上台以來，在各方面的倒行逆施感到強烈不滿。
+
+這篇長文一開始便引述中國官媒新華社2月9日的報道：「中共中央政治局委員、國務院副總理、中美全面經濟對話中方牽頭人劉鶴將於2月14日至15日在北京，與美國貿易代表萊特希澤、財政部長姆努欽舉行新一輪中美經貿高級別磋商。雙方將在不久前華盛頓磋商基礎上，就共同關注的問題進一步深入討論。美方工作團隊將於2月11日提前抵京。」
+
+文章接着引述長期觀察中國問題的政論雜誌《北京之春》的榮譽主編胡平說，從貿易戰開始，外界就可清楚看出，中共的說法前後不一致、內外不一致，同一個時候的說法也不一致，非常亂。「中共的宣傳說法，有些非常非常可笑。比如說，貿易戰剛開始的時候，中共媒體就說，美國打貿易戰是搬起石頭砸自己的腳。當時就有網友說，既然他砸自己的腳，你就讓他砸嘛。但中共和習近平後來又表示，要以牙還牙，然後中共自己也增加關稅。這就顯得更荒唐了。既然美國打貿易戰是搬起石頭砸自己的腳，你為什麼要砸自己的腳呢？這豈不是荒唐？」
+
+對於這場貿易戰，《美國之音》在文中稱，美國政府的說法是，這是針對中國多年來損害美國利益的貿易政策和做法而採取的措施，目的是要中國糾正多年來拒絕履行加入世界貿易組織的承諾、一方面充分利用自由貿易的好處、另一方面卻拒絕中國實行市場自由化的做法。
+
+文章續稱，對美國採取的懲罰性貿易措施，北京當局一開始擺出高調的對抗姿態，聲言不怕跟美國打貿易戰，決心跟美國奉陪到底，並且一度聲言要不惜一切代價打贏貿易戰。然而隨着時間推移，北京強硬調子開始放軟，「奉陪到底」、「不惜一切代價」之類的說法成為明日黃花，貿易戰成為中共控制下的中國媒體的敏感話題。
+
+《美國之音》並稱，儘管中國的對外貿易對中國經濟舉足輕重、亦對中國就業形勢舉足輕重，儘管貿易戰佔中國對外貿的大半，但中國的官媒在新聞報道方面，對這個話題似乎特別「羞澀」。中共中央機關報《人民日報》在過去的一個多星期的頭版，沒有有關中美貿易話題的報道。
+
+《美國之音》引述胡平認為，中共當局在宣傳方面對貿易戰的低調，顯然是跟中共內部政治有關。因為在中國社會和中共黨內，早就有很多人對習近平上台以來，在各方面的倒行逆施感到強烈不滿，「正是因為打貿易戰，在過去的一年裏，我們看到了中共內部的不同聲音，而且可以看得很清楚。本來就有很多人對習近平不滿，但他們苦於找不到公開表達反對的場合或說話的由頭。有了貿易戰，就給各種反對者提供了機會，使他們可以從經濟、從美中貿易的角度對習近平過去的所作所為倒行逆施提出批評。這就是為什麼在前一階段不僅是一些公共知識分子發表了多年來罕見的尖銳批評言論，而且一些經濟學家從更專業的角度對習近平提出了批評。而中共現在的所作所為已經跟開始打貿易戰時的表態已經有了很大的差別。習近平在這方面已經做了很多退讓。雖然表面上看好像依然是權力如故，但在黨內體制內已經做了很大的退讓」。
+
+胡平說，自從貿易戰開始以來，中共的招法顯示出中共對貿易戰完全沒有通盤考慮，毫無戰略戰術可言。他說，最明顯的兩個例子是，中共試圖以拒絕購買美國大豆來懲罰美國，但到頭來又不得不大批購買美國大豆，儘管美國在貿易問題上還沒有對中共當局作出任何讓步。另外，習近平當局為了跟美國進行貿易對抗，拒絕購買美國豬肉，轉而購買俄羅斯豬肉，結果從俄羅斯引進非洲豬瘟，給中國養豬業造成了大災難。造成災難之後，習近平及其當局又躲躲閃閃，拒絕承擔責任，拒絕承認從早有豬瘟新聞報道的俄羅斯引進豬瘟是愚蠢透頂。
+
+報道引述胡平說，在美國的貿易戰壓力下，中共當局宣布開放市場、保護知識產權、禁止強迫技術轉讓等舉措，並聲言這本來就是中國要採取的措施。但中共當局的這種說法成為世界的笑柄，因為世人都看到了中共早不做、晚不做，只是在美國發動的貿易戰兵臨城下之後才作出這種宣布。
+
+《美國之音》在文章最後說，儘管中國國內外許多觀察家認為，以習近平為首的中共當局，在這場美中貿易戰中接連失利，但中共當局控制的媒體仍在努力以積極的語調宣傳北京是勝利者，現在是美國方面急於跟中國結束貿易戰以擺脫困境。與此同時，中共控制的媒體又堅持聲言，北京還是不怕跟美國打貿易戰。
+
+報道引述2月10日中國新聞宣傳媒體上，署名「陶然筆記微信公號」的文章〈 [這條關於中美磋商的消息 傳遞的不止是積極信號](https://web.archive.org/web/20220808165310/http://world.huanqiu.com/article/2019-02/14276616.html) 〉稱，「就近期談判而言，美方嘴巴上總說『這也不行、那也不要』，但是身體和行動很積極。一個重要的迹像就是，自去年12月1日中美元首會晤之後，特別是去年12月下旬開始，雙方接觸頻率越來越高，美方派出的團隊陣容也越來越大」。「談得好，因為技術原因3月1日來不及達成協議，那麼不妨多暫緩兩個月，比如到5月1日也不是不可以。談得不好，時間早一點也好晚一點也罷，到時候桌子一掀，該打還得接着打」。「中國的態度，就是我們之前反覆提過無數遍的那幾條。『不願打，不怕打，必要時不得不打』的態度沒有變。『堅定維護國家尊嚴和核心利益』的態度沒有變。」

@@ -1,0 +1,51 @@
+---
+title: "何以今天就只有梁美芬一人為她致哀？"
+date: "2020-12-17"
+last_updated: "2020-12-17 22:51:38"
+author: "顧書維"
+category: "眾說"
+tags:
+  - "梁美芬"
+  - "Priscilla LEUNG"
+  - "李偲嫣"
+  - "第四波疫情"
+url: "https://web.archive.org/web/20210727214952/https://www.hkcnews.com/article/36526/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36533/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36526/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36533/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 何以今天就只有梁美芬一人為她致哀？
+
+正義聯盟召集人李偲嫣遽然瘁逝，社交媒體的反應可謂一面倒。人稱「私煙BB」的著名政治戲子，在政圈流竄多年，早期「成名」於支持國教行動及於佔領中環期間成立「撐警大聯盟」，此後魑魅魍魎不絕，陳淨心、傅振中等，行事乖張，比起「私煙BB」有過之而無不及。
+
+本來人死為大，不應過度亢奮，但甫見新聞報導，網絡一片喜慶，香檳斷市，原因為何？相信古時只有秦檜之死、魏忠賢伏法，才能引起公眾如此反應，皆因他們其大魔頭作為，害人無數，人人得而誅之。
+
+不過，此次略有不同，大家如此高興，一半苦笑，一半是因為「天理循環，報應不爽」實在太久沒有出現，不僅法律維持不了公正、抗爭飽受極權打壓，甚至是最為人所珍視的個人健康，現時也受到政府抗疫不力的嚴重威脅，而李偲嫣本人，經博愛醫院檢驗後發現對新冠肺炎呈初步陽性反應。
+
+病毒是不懂得選擇對象的，不論藍黃，只要防疫意識稍為薄弱，就讓病毒有機可乘。以早前「大台」台慶節目為例，藝員數以百計，除了少量藝員戴上外科手術口罩外，其餘一律不戴口罩，更見主持陳百祥口沫橫飛。
+
+數天以後，第四波疫情旋即爆發，該電視台更有藝員的緊密接觸者染疫，使所有藝員均須進行病毒檢測，險象橫生，試想一旦有人確診，牽連之廣，數以百計。作為長年霸佔大氣電波的電視台，公然散播錯誤信息，並且帶頭組織群眾活動，足見其無知、無恥。
+
+<figure>
+<img src="https://web.archive.org/web/20210727214952im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/李偲嫣-梁美芬-20201217205127_161b_large.jpg" alt="">
+<figcaption>2015年8月1日，正義聯盟及撐警大聯盟發起「撐警一周年勝利大遊行」，梁美芬應邀站台。照片來源：《蘋果日報》</figcaption>
+</figure>
+
+說回李偲嫣之死，她生前應該在親建制團體廣結良緣、圍爐取暖，何以今天 [就只有梁美芬一人為她致哀？](https://web.archive.org/web/20210727214952/https://www.facebook.com/Leungmeifun/posts/2179051452227041) 其餘的人為何默不作聲？她一直竭力支持的前特首暨首席狙擊蘋果日報KOL梁振英，暫時尚是一言未發，這位馬前卒，連在他臉書佔一版面也不值。狡兔死、走狗烹，相信在14天內曾接觸過她的人，現時個個人心惶惶，憂心會否緊隨其後，又豈會為她的離去，流一滴眼淚？
+
+其實要數十惡不赦之人，應該遠遠未到李偲嫣，作惡多端的港府高官、肆意破壞法治的權貴多不勝數，2020年快要過去了，期望病毒也盡快遠離香港，不論政見，都應注意防疫。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727214952/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 顧書維](https://web.archive.org/web/20210727214952im_/https://www.hkcnews.com/uploads/avatars/0d607456-0e6b-4dd4-ab56-edfb31bb36e1.png?1726761492)
+
+**博客 | 顧書維**
+
+【顧書維・左顧右盼】泛民前社區主任，現留學英倫，主修國際關係，奮力矢書，但求娛人自娛。

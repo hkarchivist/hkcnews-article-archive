@@ -1,0 +1,59 @@
+---
+title: "體育精神"
+date: "2021-08-13"
+last_updated: "2021-08-13 19:13:53"
+author: "知誅盒"
+category: "眾說"
+tags:
+  - "黃耀明"
+  - "東京奧運"
+  - "全紅嬋"
+url: "https://web.archive.org/web/20211027121917/https://hkcnews.com/article/44388/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44391/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44388/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44391/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 體育精神
+
+不經不覺東京奧運終於正式落幕，在疫情影響下仍能圓滿結束，算是不幸中之大幸，過程中要克服的困難必定不少，細心籌備的日本政府功不可沒；縱然開幕前，日本國內外有不少反對聲音，甚至想腰斬這屆奧運，大部份國民除了擔心疫情外，更擔心世界各地運動員及記者齊集後，會出現互相感染，疫情將會更不受控...... 最後總算沒有發生，讓這屆遲了一年的奧運能圓滿閉幕。
+
+奧運是體育界四年一度的盛事，被譽為是世界和平與友誼的象徵，更應是讓世人體現體育精神的最佳場地，不過經歷世代的變遷，加上各國政治及經濟角力下，當有機會競爭時，彼此都只是為了勝利而戰，完全忘卻當日的奧運精神！就像俄羅斯因運動員使用禁藥，令整個國家被禁止參與今屆奧運，只能讓沒有參與禁藥事件的運動員以俄羅斯奧委會名義參與，就算得到金牌都不能播放俄羅斯國歌，為了勝利最終將這段醜事寫進歷史中。
+
+<figure>
+<img src="https://web.archive.org/web/20211027121917im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/東京奧運-全紅嬋-跳水-20210813184817_216d_large.jpg" alt="">
+<figcaption>14歲的全紅嬋在東京奧運女子10米跳台奪金牌。美聯社</figcaption>
+</figure>
+
+另外，中國為了勝利，從小便開始讓小孩接受訓練，好讓身體未發育前，在一些比賽中得到優勢，如跳水及體操，曾有人質疑中國的體操選手年齡未達標，便代表國家參賽。這類運動員都有共同的特色，就是小小身體卻擁有高超技術，往往都會有突出的表現，但得獎運動員都是心智未成熟的小孩。從訪問只得14歲的全紅嬋時便可見一斑，如一般小孩般的純真直率，得獎只為有錢醫其病母，就算記者用普通話提問，但她都未能明白，簡單如問她的「性格」如何？但她竟連「性格」是什麼意思也不懂得，可想而知，她的日常生活除了練習之外，便沒有其他內容，連一般平常學習也沒有，難怪她賽後的心願只是去一趟遊樂場，因她從未到過遊樂場，亦未曾享受過一般孩子的快樂。為了一枚獎牌，真的值得如此對待一位小孩子嗎？
+
+說到底奧運是提倡體育精神的場合，而體育精神便是要公平競技，是體育運動中的重要價值體現；並希望賽事能在公平、尊重和符合倫理的環境下完成。所以現在多個國家為了勝利，而做出的種種手段，這樣還算是合符體育精神嗎？
+
+<figure>
+<img src="https://web.archive.org/web/20211027121917im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/東京奧運-運動員-20210813182806_1cb4_large.jpg" alt="">
+<figcaption>圖片來源：東京奧運官方Instagram</figcaption>
+</figure>
+
+數日前從東奧的官方Instagram，看到一張十項全能的選手賽後合照，這群經歷完艱苦賽事的運動員，勝負已分後沒有留下一絲爭競氣氛，高角度的拍攝下，大家躺在奧林匹克標誌的賽道上，不分膚色及國籍，大家打成一片，將體育精神完全呈現在這照片中，外界更被稱這是最精彩的照片。當然能勝出賽事必定會高興，但在比賽場上可以得到的，並不單單是勝負，當中可以比這些更多；雖然是競爭對手，往往卻是最明白自己的人，因為大家都清楚如何從艱苦訓練中，走到奧運賽場上，這份共鳴只有對手才能領略，所以賽後能成為朋友絕不希奇，這樣似乎更符合真正的體育精神。
+
+### 尊重帶出風度
+
+
+{{< video src="https://web.archive.org/web/20211027121917if_/https://www.youtube.com/embed/ACoAcqWPTXY" >}}
+
+
+體育精神不單在體育運動中呈現，其實生活中也可以運用出來。像近日被廉署控告，涉嫌在2018年立法會港島區補選中，作出舞弊行為的歌手黃耀明，指他向他人提供歌唱表演娛樂，以誘使他人投票。雖然最終獲撤銷控罪，但仍要以簽保守行為18個月，其實這樣敗訴沒有分別。縱然外界大多數都認為這是不公平的指控，因為其他建制派對手也有同樣做法，卻沒有任何指控，偏偏只控告他，但他願意接受法庭的安排，極像體育競技中，有時面對裁判不公平的判罰，亦願意接受裁判的安排，這都是一種體育精神的表現，比其他為了勝利的泱泱大國，黃耀明更能呈現風度！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027121917/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 知誅盒](https://web.archive.org/web/20211027121917im_/https://hkcnews.com/uploads/avatars/77850e0f-5556-4e56-94a2-61bbd7d5f339.png?812336844)
+
+**博客 | 知誅盒**
+
+【知誅盒・我手寫我心】因時局的轉變，不想將內心的聲音埋藏，縱已人到中年，仍嘗試用文字去表達自己心所想。網站：https://knowkbox.wordpress.com

@@ -1,0 +1,48 @@
+---
+title: "【監警會報告】國際特赦組織批「誤導無能偏頗，令公眾更憤怒」"
+date: "2020-05-16"
+last_updated: "2020-05-16 04:04:21"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國際特赦組織香港分會"
+  - "民權觀察"
+  - "監警會報告"
+url: "https://web.archive.org/web/20210726135840/https://www.hkcnews.com/article/29938/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29942/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29938/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29942/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【監警會報告】國際特赦組織批「誤導無能偏頗，令公眾更憤怒」
+
+多個人權組織回應監警會就反修例事件發表的 [報告](https://web.archive.org/web/20210726135840/https://www.ipcc.gov.hk/tc/public_communications/ipcc_thematic_study_report.html) 。國際特赦組織香港分會總幹事譚萬基表示：「這份充滿誤導的報告，沒有意圖為自去年夏天開始在街頭出現的大量警察的違規行為問責。報告亦顯示香港政府徹底拒絕查究自去年 6 月起在示威當中，廣泛而有系統地對人權的侵害。」
+
+譚萬基說：「雖然報告承認警方在處理示威和其他公眾事件有『改善空間』，但未有針對警方的 鎮壓和不專業的行動，因此不能彰顯公義。這份報告沒有公正可言，監警會沒有權力進行一個真正獨立的調查。可悲的事實是，報告連提供一個『全面的圖像』亦不成功。監警會不成比例地著眼於少部分示威者『針對警員的仇恨和暴力』。報告宣稱香港會被扯進恐怖主義令人震驚之餘，卻沒有提出充分理據。」
+
+「特首林鄭月娥全力支持這份報告和徹底拒絕成立獨立調查委員會。她繼續蔑視公民社會、聯合國和國際社會一再倡議，成立一個針對警方過份使用武力的真正獨立的調查的要求。」
+
+「針對最近新一輪和平示威的鎮壓，顯示香港政府以為利用更嚴苛的手段去打壓言論和集會自由，可以把異見消音。與其為警察在示威中的人權侵害洗白，香港政府應立刻成立一個獨立調查委員會， 以國際標準調查這些人權侵害。這份偏頗的報告只會令公眾更憤怒。重建公眾信任與打破暴力的循環，獨立調查是必要的第一步。」
+
+<figure>
+<img src="https://web.archive.org/web/20210726135840im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/梁定邦-逃犯條例-監警會-20200515183602_171c_large.jpg" alt="">
+<figcaption>監警會發表的報告，內容引起人權組織批評。美聯社圖片</figcaption>
+</figure>
+
+民權觀察批評，監警會報告提供所謂的「全貌」是蒼白無力、漏洞處處，根本無法回應公眾對警察行動侵犯人權及施行性暴力的質疑及指控。「監警會作為監察警察的法定組織，性質類同人權機構，惟監警會未有從國際人權法的角度，全面審視警方行動及政策是否符合人權，或可如何改進以符合人權標準。此報告只會予人為警方開脫的觀感，亦無助令警隊改善，令其行動及政策符合人權。」
+
+「再者，監警會的報告非透過調查方式向警員及受害人錄取證詞，向警方收集的行動指令未必全面，難以反映事件全貌；而有關傳媒清楚拍攝事發過程的事件如721及831事件，監警會單憑片面證據就作出721警方沒有與白衣人勾結的結論，亦沒有檢視警方831於太子站無差別攻擊市民，令人質疑報告立場偏頗。加上現時監警會無法為證人提供法律保障，因此公眾人士、示威者以至警員未必願意向監警會作供或提供全面的資料，令審視報告很大程度上依賴警方的資料及說法，有關報告的全面性及公正性成疑。」
+
+民權觀察指，監警會亦未有就公眾關注多項重複發生的警察侵犯人權問題作出跟進及審視，包括警察使用武力及武器的方式、在個別行動中對市民或示威者作無差別攻擊、對被捕人士施以性暴力、以及侵犯被捕人士的權利，甚至對他們施予殘忍及不人道的待遇或處罰等。其中，公眾關注警方使用武力的原則及方式，如以警棍毆打被捕人士的頭部、以水平方式或由高處向地面的人士發射催淚彈、橡膠子彈等，報告並無具體審視警方的做法是否符合相關的使用武力及武器指引，以及有關做法是否不當地使用武力，或增加武力對人體產生嚴重傷害的風險。
+
+「另外，從傳媒片段及民權觀察所收集得來的證詞反映，831事件中警察行動並無區分一般市民及拘捕目標，並且無差別地對現場人士使用武力。監警會並無就此作出詳細的審視及要求警方檢討。」
+
+民權觀察指，收集到多名被捕人士的證詞，他們指在拘留期間遭受警察濫權、暴力對待、以性暴力言語威嚇、侮辱，惡意攻擊被捕者的下體，甚至施予殘忍、不人道的待遇及處罰；個別個案的嚴重程度，更有可能已構成酷刑的行為。惟報告未有處理有關問題，亦沒有探討警方的措施應如何保障被捕人士得到應有的權利及尊嚴。
+
+「基於監警會缺乏調查權及法定權力傳召證人，而對警員的調查及搜證則依賴警方的投訴警察課進行，這種『自己人查自己人』的方式根本毫無公信力。聯合國人權事務委員會曾批評監警會缺乏調查權，並促請香港政府設立有權作出調查及調查結果具約束力的獨立投訴警察機制。民權觀察促請政府盡快成立具法定調查權力的調查委員會，檢討警方在反修例示威期間的行動及使用武力的方式。」民權觀察認為，評論示威活動並非監警會的職責，該等評論不但沒有認受性，更不會達到監警會希望增加公眾對警方信任這一目的。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726135840/https://www.hkcnews.com/aboutus/#subscribe)

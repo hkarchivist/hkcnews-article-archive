@@ -1,0 +1,42 @@
+---
+title: "教大生襲警罪成上訴　新聞片拍到疑犯戴不同顏色口罩　官質疑警認錯人"
+date: "2021-11-08"
+last_updated: "2021-11-08 14:13:39"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "襲警"
+  - "張慧玲"
+url: "https://web.archive.org/web/20220123131512/https://hkcnews.com/article/47402/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47407/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47402/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47407/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教大生襲警罪成上訴　新聞片拍到疑犯戴不同顏色口罩　官質疑警認錯人
+
+男學生前年9月2日開學日響應「超合作運動」示威，藉阻礙港鐵車門阻礙市民上班。他承認公眾妨擾罪，但否認撞傷警員，受審後襲警罪成。高院今處理男生上訴，法官張慧玲看過呈堂新聞片，指出片中受襲警員追截一名黑衣人，明顯不是隨後被制服的被告，原審裁判官卻錯指是同一人。張官指現場環境混亂，警員說不定認錯人或記錯，需考慮定罪是否穩妥，押後宣判。
+
+<figure>
+<img src="https://web.archive.org/web/20220123131512im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/襲警-被告-超合作運動-20211108130040_2e6d_large.png" alt="">
+<figcaption>被告賈雲龍在月台上被捕。(蘋果動新聞截圖)</figcaption>
+</figure>
+
+被告賈雲龍案發時18歲，今年初罪成時20歲，就讀教育大學運動科學課程。他承認在旺角及樂富站用雨傘阻礙港鐵列車關門，但否認襲警。裁判官屈麗雯裁定他兩項襲警罪中其中一項罪成，判入勞教中心。
+
+### 被追截者戴綠色口罩　被告戴黑色面巾
+
+今日聆訊庭上引述受襲警員A證供，他稱原本跟被告相距5至10米，被告衝撞他然後轉身逃走，他上前追捕，與同袍合力制服被告。呈堂新聞片沒有拍下衝撞一刻，原審裁判官信納警員A描述的襲警情節。
+
+庭上播放新聞片，警員追截一名戴綠色口罩的黑衣人，在閘門前黑衣人轉彎跑走，而警方就在閘門前方圍捕黑衣被告。上訴方指，裁判官認為被追截者就是被告，其實兩人剛好在畫面中交錯，根據記錄被告當時戴黑色面巾。法官張慧玲同意，「好明顯警員當初追、戴住戴綠色口罩嘅，就唔係同一個人啦。」
+
+<figure>
+<img src="https://web.archive.org/web/20220123131512im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/襲警-超合作運動-被告-20211108130103_130d_large.png" alt="">
+<figcaption>事發時警方追捕一名黑衣人，高院認為被告被裁判官錯認是黑衣人。(蘋果動新聞截圖)</figcaption>
+</figure>
+
+上訴方強調，被告在柱後出現，一見到手持警棍的警員，就舉起雨傘縮後，不見他向前衝撞。大律師稱「片段係唔會講大話嘅」，他不是指控警員A說謊，只是證據有很大差別。
+
+張官同謂，新聞片是獨立證據，而案發現場混亂，說不定警員記錯情況。按警員A的說法，被告從5至10米外上前衝撞他，然後轉身離開，然後再有追截，惟「5至10米都幾遠下」，衝撞動作完全拍攝不到。
+
+律政司代表同意，片中綠色口罩者不是被告，也不見被告撞警員，但指片段並非全程拍攝被告，無法交代他何時出現、警方有否追截他。張官表示，需時考慮片段會否令警員證供存疑，警員會否混亂下認錯人。
+
+案件編號：HCMA81/2021

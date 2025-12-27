@@ -1,0 +1,94 @@
+---
+title: "蘋果最終章　100萬份近沽清　林文宗：不再加印"
+date: "2021-06-24"
+last_updated: "2021-06-25 14:29:36"
+author: "實習記者方穎暉"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "撐蘋果"
+url: "https://web.archive.org/web/20211024001304/https://hkcnews.com/article/42739/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42776/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-100%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://hkcnews.com/article/42739/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42776/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-100%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 蘋果最終章　100萬份近沽清　林文宗：不再加印
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/appledaily-20210624190336_2ab1_large.jpg" alt="">
+</figure>
+
+紮根香港26年的《蘋果日報》，今日出版最後一期，頭版標題為「港人雨中送別　我哋撐《蘋果》」，配以昨夜市民到將軍澳《蘋果》大樓外亮燈支持的照片。最後一期《蘋果》印量為100萬份， 若全數售清，將創下香港報章單日銷售紀錄。 前執行總編輯林文宗表示，100萬份《蘋果》已近沽清，因程序上還有回紙，故最後數字要待兩三日後才有，但相信已接近沽清。他說100萬全售清後也不會加印。
+
+今天各區大雨滂沱，天文台分別在早上7時，以及下午1時30分發出黃色暴雨警告信號，仍無阻市民排隊購買《蘋果》，有網民留言，「天空也在哭泣」。由清晨開始，全港各區報檔均出現人龍。午膳時間，旺角、中環等商業區大部分報檔已無《蘋果》，下午部分住宅區仍有少量存貨，至傍晚，絕大部分銷售點已售罄。
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/appledaily-20210624182544_1651_large.jpg" alt="">
+<figcaption>中環港鐵站外報檔，早上9時左右已售完所有《蘋果日報》。方穎暉攝</figcaption>
+</figure>
+
+上午11時許，天空下起細雨，觀塘開源道仍有報檔出現近100人的人龍，中午雨勢加劇，但人龍仍未退減。人龍排到幾十米以外，當中有學生、中年婦女、長者，還有很多西裝革履的上班族，不少市民身穿黑衣。部分在場排隊的市民低頭瀏覽社交媒體和討論區上，有關各區《蘋果》的銷售情況。亦有市民買到《蘋果》後拍照留念，並傳送給其他人，告知現場情況。有路過市民驚嘆：「嘩！搞咩啊？咁多人排隊買《蘋果》？」
+
+### 12歲少年：《蘋果》是「捍衛真相的報紙」
+
+邱先生與12歲的兒子前來購買了兩份《蘋果》。兒子表示，平時有買《蘋果》的習慣，在街上只要見到就會買一份，他形容《蘋果》是「捍衛真相的報紙」，對於以後再無《蘋果》，他感到很可惜。
+
+邱先生認為，香港社會需要容納多元聲音，不能因為自己不喜歡，就打壓某種觀點。《蘋果》代表與其他報章不同的聲音，邱先生認為香港沒有了《蘋果》，只會繼續倒退，「一切盡在不言中。」
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/appledaily-20210624182637_dda8_large.jpg" alt="">
+<figcaption>觀塘開源道報檔外，市民冒雨排隊購買，人龍一度高達100人。方穎暉攝</figcaption>
+</figure>
+
+### 《蘋果》大受歡迎　有報檔加價1.5倍
+
+《蘋果日報》深受讀者歡迎，據中大傳播與民意調查中心2019年的調查結果，該報包括印刷版、網上版及移動版，佔市場總體54.7%，即佔讀者市場逾一半份額。
+
+《蘋果》寫到最終章，市民紛紛搶購作留念。旺角報攤老闆娘謝小姐指整日下來約5千份《蘋果日報》全售罄，中午曾加訂350份，再次開售僅15分鐘又賣完。清晨4時，逾4千份報紙已送達報攤，她形容「成咗山咁高，幾驚落雨搬唔切。」7時半正式開賣，3小時後4千份報紙已售罄，她急忙向蘋果公司加訂。
+
+儘管新增的350份報紙仍未送到報攤，許多市民卻已提前一小時排隊等候，只為了能把握最後機會搶到《蘋果》。她形容等候隊伍長到排到另一家報攤門口，「15分鐘已經賣曬！」僅15分鐘就賣完了350份報紙，不少等候市民失望而歸。
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/苹果日报-20210624193344_4204_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+記者下午再到採訪，5分鐘內已有十多人來詢問有沒有《蘋果》卻空手而歸，臉上流露出失落。熟客曾先生昨夜讓老闆娘幫她留一份，他仔細地折好這報攤的最後一份《蘋果》。老闆娘見狀戲謔道「我自己都冇啊！」 客人立刻神色緊張，立刻放入背囊，並表示會好好珍藏這來之不易的蘋果報紙。
+
+亦有報販看到商機，坐地起價。下午2時許，銅鑼灣有報檔每份《蘋果》售25元，比起原價10元加價1.5倍。記者所見該檔只售剩約5份，檔主更問記者：「你買唔買啊？係剩返呢啲㗎咋。」
+
+有市民掏出10元紙幣想購買一份《蘋果》，但檔主表示現時已售25元 ，市民指早上到同一報檔購買只需10元，質疑為何現時升至25元，檔主表示：「只能夠話你朝早好彩。」而這名市民最後沒有購買。
+
+### 應用程式報料　助市民尋報
+
+應用程式「Mee懲罰師」發起「百萬蘋果清0計劃」。應用程式內設5個報料區，分別為九龍東、九龍西、新界東、新界西及香港島，用戶可以在應用程式內「報料」，匯報各區報檔的銷售情況，以供其他用戶參考。
+
+「Mee 懲罰師」在Facebook發文，呼籲用戶到應用程式留言報料，「等大家可以通報各區報攤蘋果嘅即時銷情，協助更多同路人買到最後一份的蘋果日報。」又勉勵用戶，「就等我地一齊儲起呢份蘋果，等到再會嗰一日。」
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/Mee懲罰師-20210624183424_267f_large.png" alt="">
+<figcaption>「Mee懲罰師」Facebook專頁截圖。</figcaption>
+</figure>
+
+### 日媒頭版報道《蘋果》停刊
+
+日本《產經新聞》今天也在頭版刊出駐香港記者藤本欣也的社論，以「朋友、蘋果　等你回來！」為題，更用片假名「バンヤウ、ピングォ ダンネイウイロイ」教日本讀者用廣東話讀出標題。
+
+社論旁邊是有關《蘋果》停刊的正式報道，標題用上「休刊」而非「廢刊」。據《立場新聞》報道，藤本欣也表示用「休刊」一詞，是因為相信「在黑暗時代重光、香港復活之日，向市民宣告此事的香港報紙，除《蘋果》以外沒有其他。」他亦寫道﹕「蘋果掉落了。但我相信那不會是『終章』。」
+
+<figure>
+<img src="https://web.archive.org/web/20211024001304im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/蘋果日報-產經新聞-20210624182626_104f_large.jpg" alt="">
+<figcaption>日媒《產經新聞》頭版報道《蘋果》停刊。讀者提供</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211024001304/https://hkcnews.com/aboutus/#subscribe)

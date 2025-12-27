@@ -1,0 +1,57 @@
+---
+title: "5年後的831"
+date: "2019-08-29"
+last_updated: "2019-08-29 13:09:37"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "雨傘革命"
+  - "雨傘運動"
+  - "umbrella movement"
+  - "umbrella revolution"
+  - "旺角騷亂"
+  - "魚蛋革命"
+  - "Mong Kok civil unrest"
+  - "Fishball Revolution"
+  - "逃犯條例"
+url: "https://web.archive.org/web/20220523201308/https://hkcnews.com/article/23183/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23184/mong-kok-civil-unrest"
+original_url: "https://hkcnews.com/article/23183/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23184/mong-kok-civil-unrest"
+---
+
+# 5年後的831
+
+【撰文：陳假】
+
+唔經唔覺又到831， 五年前嘅831開始燃起咗香港第一度火， 經過兩個多月嘅佔領行動之後， 可為係第一次嘅革命失敗， 但係亦都揭露咗港共政府嘅真正邪惡面目。
+
+兩年後嘅農曆新年，有一班打破咗一向以來抗爭加鎖嘅年青人走出旺角，同黑警對戰，發動咗第二次革命，可惜革命失敗嘅後果就係當中一班年青人參選俾dq，香港嘅三權分立已經畀共產黨差不多摧毀。最慘嘅係之後呢班年青人被告以暴動罪，要含冤入獄多年。
+
+<figure>
+<img src="https://web.archive.org/web/20220523201308im_/https://hkcnews.com/news_新聞/hk-discuss/2018/03/旺角衝突-20180323142741_2741_large.jpg" alt="">
+<figcaption>梁天琦在2016年農曆新年在旺角發生的「魚蛋革命」事件中，被控以暴動罪，判刑6年。《蘋果日報》照片</figcaption>
+</figure>
+
+之後香港嘅社運進入低潮期，老實講當時進入低潮期嘅係包括我自己，因為當時我覺得香港團火係咪已經冇咗？香港係唔係會繼續沉淪落去？
+
+2019年，真係喺毫無先兆底下，唔知邊個屎忽痕搞個送中條例出嚟，呢條條例真係挑起咗埋藏喺香港人心底好耐嘅恐共陰影，積藏多年嘅恐懼同怨氣，再一次將香港人團火燃起，呢團火比以前任何一次都要大，而不幸嘅係，我哋所付出嘅代價都比以前任何一次大，我哋冇咗6條人命，三隻眼，差不多近千個義士被捕。
+
+如果今次我哋團火熄咗， 我哋唔知要等幾多年先會有下一次， 咁嗰近一千個義士咁點算？佢哋會必然受到清算！
+
+只有眼前路，沒有身後身，團火係唔可以熄，我哋冇得返轉頭，無論幾艱難都要繼續向前行落去。
+
+### #光復香港　時代革命
+
+<figure>
+<img src="https://web.archive.org/web/20220523201308im_/https://hkcnews.com/news_新聞/hk-discuss/2019/07/光復香港，時代革命-721衝擊中聯辦-上環站-20190730124846_2994_large.jpg" alt="">
+<figcaption>美聯社</figcaption>
+</figure>
+
+呢句口號，就係起始於當年參與魚蛋革命嘅梁天琦先生，係新東補選時候所用嘅口號。係度希望千祈唔好忘記，仍然受牢獄之苦嘅盧建民以及梁天琦等人。當中尤其係盧健文先生，佢名氣唔算太高，但係要受嘅牢獄之苦就最長，長達七年。而大家亦都必須要明白，如果呢近1000個義士要受到清算嘅話，佢哋嘅後果係不堪設想。
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220523201308im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

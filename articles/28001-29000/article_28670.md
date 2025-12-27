@@ -1,0 +1,9 @@
+---
+title: "眾新聞告別    感謝讀者"
+date: ""
+author: ""
+url: "https://web.archive.org/web/20230109163947/https://www.hkcnews.com/article/28670/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E4%B8%AD%E5%9C%8B%E7%A7%91%E5%AD%B8%E9%99%A2%E6%AD%A6%E6%BC%A2%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80-%E6%96%B0%E5%9E%8B%E5%86%A0%E7%8B%80%E7%97%85%E6%AF%92-28773/images/images/HKCNEWS-text-white.svg"
+original_url: "https://www.hkcnews.com/article/28670/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E4%B8%AD%E5%9C%8B%E7%A7%91%E5%AD%B8%E9%99%A2%E6%AD%A6%E6%BC%A2%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80-%E6%96%B0%E5%9E%8B%E5%86%A0%E7%8B%80%E7%97%85%E6%AF%92-28773/images/images/HKCNEWS-text-white.svg"
+---
+
+

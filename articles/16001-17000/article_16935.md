@@ -1,0 +1,53 @@
+---
+title: "白先勇：同性戀是人性一部分，平權教育愈早愈好"
+date: "2018-12-05"
+last_updated: "2018-12-05 00:50:55"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "同志平權"
+  - "白先勇"
+url: "https://web.archive.org/web/20210918132550/https://www.hkcnews.com/article/16935/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16943/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/16935/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-16943/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 白先勇：同性戀是人性一部分，平權教育愈早愈好
+
+台灣上月底就10項議案作公投，當中5項與性別平權相關。公投前夕， [「社團法人台灣伴侶權益推動聯盟」facebook](https://web.archive.org/web/20210918132550/https://www.facebook.com/tapcpr/photos/a.10150711237530965/10155788318075965/?type=3&theater) 曾貼出同志白先勇的親筆信，「同志也是人，他們有組織家庭，享受家庭溫暖的人權」，鼓勵台灣人投票。
+
+<figure>
+<img src="https://web.archive.org/web/20210918132550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/同志平權-白先勇-20181204180916_83de_large.png" alt="">
+<figcaption>台灣公投前夕，白先勇撰寫親筆信，支持婚姻平權。社團法人台灣伴侶權益推動聯盟facebook截圖</figcaption>
+</figure>
+
+然而，公投結果出爐，民法婚姻限定一男一女結合、國民教育階段不實施性別平等教育、另立專案以保障同性婚姻三項獲通過；以民法保障同性婚姻、國民教育階段實施性別平等教育兩項不獲通過。
+
+白先勇周一（3日）接受眾新聞專訪回應公投結果，對於「你是否同意，以『性別平等教育法』明定在國民教育（即國中及國小）各階段內實施性別平等教育，且內容應涵蓋情感教育、性教育、同志教育等課程？」不獲通過，他感到失望，「平權教育應該在學校裡教，愈早唸愈好，讓小學生、中學生都有一個對人性的了解。」白先勇續指，社會的改變亦非一朝一夕，得慢慢來，美國的同志運動同樣經歷多年。
+
+「台灣整個社會也很開放，但也不是一步就可以，社會慢慢、慢慢了解。不管怎麼樣，憲法規定，同志是可以婚姻，只是用民法還是用專法。民法沒有通過，第一步是用專法。大法官就說，排除同性婚姻是違憲的，我想這方面，台灣已經進了一大步。」
+
+<figure>
+<img src="https://web.archive.org/web/20210918132550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/白先勇-20181204180632_9c05_large.jpg" alt="">
+<figcaption>白先勇對同志運動感樂觀，他表示，世界潮流趨向開放，「已經有二、三十個國家承認同志婚姻，很多如香港，已經除罪化、decriminalized。」何君健攝</figcaption>
+</figure>
+
+### **「同志一樣偉大」**
+
+白先勇的文學創作，對台灣同志運動亦有貢獻，例如他筆下以男同性戀者李青為主角的長篇小說《孽子》，1977年起連載於《現代文學》，1983年出版單行本，作品不僅被視為同志文學的經典，亦喚起台灣社會對同性群體的關注。
+
+《孽子》出版翌年，台灣青年祁家威踏入書中描述的台北新公園，結交到男朋友，再過兩年，他開記者會公開出櫃，因而被關柙4個月。出獄後，祁家威持續爭取同性平權，2013年提出與同性結婚被拒，2015年向司法院提交釋憲聲請書，台灣司法院大法官去年宣布釋憲判決，指民法有關婚姻的規定排除同性，與憲法保障的人民婚姻自由及人民平等權相違背，立下台灣同志運動一個重要里程碑。
+
+《孽子》出版至今逾30年，台灣的同志運動未竟全功，社會對同性戀者仍有排斥，白先勇有何感想？他從容回應說，最重要是要承認、要認識到同志、同性戀是人性的一部分。本身是同志的白先勇坦言，他自小就能承認自己的模樣，未曾經歷心理掙扎，他勉勵同志：「你要有自己的自信，不要懷疑。從古到今，同志的、偉大的人物多得不得了，他們對人類文明有貢獻的，從亞歷山大大帝開始，米高安哲羅、達芬奇都是巨匠，19、20世紀那些大文學家多得不得了，（同志）一樣偉大，一樣有貢獻。」
+
+相關文章： [崑曲守護者白先勇　15年圓一場青春夢](https://web.archive.org/web/20210918132550/https://www.hkcnews.com/article/16929/%E7%89%A1%E4%B8%B9%E4%BA%AD-%E7%99%BD%E5%85%88%E5%8B%87-%E5%B4%91%E6%9B%B2-16929/%E5%B4%91%E6%9B%B2%E5%AE%88%E8%AD%B7%E8%80%85%E7%99%BD%E5%85%88%E5%8B%87-15%E5%B9%B4%E5%9C%93%E4%B8%80%E5%A0%B4%E9%9D%92%E6%98%A5%E5%A4%A2)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210918132550/https://www.hkcnews.com/aboutus/#subscribe)

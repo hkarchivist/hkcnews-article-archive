@@ -1,0 +1,80 @@
+---
+title: "警稱催淚彈開支敏感　申訴專員裁定毋須公開　倫敦公開槍火開支"
+date: "2020-06-09"
+last_updated: "2020-06-09 17:09:16"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "香港警務處"
+  - "警務處"
+  - "警務署"
+  - "香港警務署"
+  - "香港警务处"
+  - "催淚彈"
+  - "公開資料守則"
+url: "https://web.archive.org/web/20210925205348/https://www.hkcnews.com/article/30818/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30820/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30818/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30820/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警稱催淚彈開支敏感　申訴專員裁定毋須公開　倫敦公開槍火開支
+
+香港警方在反修例運動中發射16,138枚催淚彈應付示威，但從未公開總共涉及公帑數目。警方去年底及今年初三度以事涉敏感資料，拒絕《眾新聞》記者透過《公開資料守則》索取警隊過去五年內購買催淚彈的開支、催淚彈的來源地、生產商、安全指引等及整體槍火開支。
+
+申訴專員近日回覆投訴說，認同警方說法，認為若公開催淚彈開支及來源地等，可能會干擾到警方的執法行動。
+
+參考外國資料，英國倫敦警察廳（Metropolitan Police）雖然同樣有國家安全及執法考慮，當地警方仍在2018年根據當地《資訊自由法》申請逐年公開槍火配備及訓練開支。
+
+<figure>
+<img src="https://web.archive.org/web/20210925205348im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/催淚彈-1111全城三罷-中環-20191112012251_1ae9_large.jpg" alt="">
+<figcaption>警方去年在示威期間，多次在鬧市施放催淚彈。美聯社資料圖片</figcaption>
+</figure>
+
+立法會議員過去曾詢問警方有關催淚彈的詳情但不得要領。衛生服務界議員李國麟去年11月底詢問保安局，除了中國製催淚彈外，其他催淚彈的原產地、成分、爆發速度等。保安局局長李家超當時表示，採購細節涉及行動部署，「為避免影響警方的行動能力，不宜公開」。
+
+《眾新聞》記者去年12月初引用《公開資料守則》，向警方索取：   
+ 一、自2014年起催淚彈採購開支，包括2019年1月至6月、6月至9月、10月至11月；   
+ 二、在2019年內，由中國大陸採購催淚彈所涉開支。
+
+記者在另一項引用《公開資料守則》申請，參考議員李國麟的立法會質詢，向警方索取過去五年內:   
+ 一、催淚彈的原產地、生產商；   
+ 二、催淚彈的成分、爆發速度、最高溫度、生產商建議的健康風險、安全發射距離；   
+ 三、催淚彈採購的數量；   
+ 四、2019年內所採購催淚彈測試的數量，及不符規格退回生產商的催淚彈；   
+ 五、招標細則。
+
+記者在1月中再提出第三個申請，索取過去五年內採購的槍火的開支。
+
+警方在去年12月拒絕提供催淚彈開支，當時警方回覆說：「索取的資料性質敏感，根據《公開資料守則》第2.6（f）段，『資料如披露會令維持安寧、公眾安全或秩序、或保障財物的工作受到傷害或損害』，所以部門未能協助處理申請。」
+
+警方1月初再拒絕提供催淚彈的原產地及生產商等資料，同樣說資料「性質敏感」。至於成分、爆發速度等，警方僅重申概括地說，「經市場研究及測試後，在全球不同地區不同來源採購不同設備及彈藥，確保符合安全及運作需要」，但同樣引用《公開資料守則》第2.6（f）段，認為所涉資料令別有用心的人干擾警方行動，故拒絕提供。警方內部覆檢後仍維持原判。警方引用同樣的理由，拒絕提供第三個有關槍火開支的申請。
+
+記者同時就兩項催淚彈的申請向申訴專員投訴，提出根據《公開資料守則》詮釋引言，政府部門處理申請「取態應是正面的；即是說，部門應以所索取的資料將予公開的基礎來處理有關要求」，同時催淚彈涉及公帑開支，而《守則》從五提及何謂「敏感」資料。即使根據《守則》，亦難以想像公開採購開支對治安等造成傷害，同時公眾關注開支，公開符合公眾利益。
+
+申訴專員公署在1月及3月分別展開全面調查。警方在回覆公署說，催淚彈採購與警署的運作能力及有效性密切關係，公開資料「會拼湊成一個圖畫」（form an overall picture of the situation），令潛在的罪犯或意圖不良人士干擾警方執法行動。
+
+申訴專員公署在檢視後，裁定兩個投訴未能成立。警方所說，提供催淚彈的原產地、開支、用途細節，會提供採購催淚彈的全面圖畫，容許持有人可以干擾警方執法。公署又說，現階段未找到「壓倒性」的公眾利益，超出公開資料可能造成傷害，認為警方「拒絕提供資料並非不合理」。   
+   
+ 至於警方拒絕提供催淚彈開支，只說有關資料「性質敏感」而未有進一步解釋。《公開資料守則》的詮釋及應用指引2.1.2（a)）段提及，如果拒絕提供資料時應「適當地闡述援引《守則》……有關段落的理據」。但警方說守則要求並非絕對，「只會在有需要時解釋理據」。
+
+公署認為，警方未能解釋引用《公開資料守則》理據，認為警方聲稱示威越趨激烈、公開資料會影響執法等說法，並不涉及任何敏感資料，但有助申請人理解警方的決定。「我們促請警方日後在可行範圍內，提供更多詳述或解釋。」公署在決定中說。
+
+<figure>
+<img src="https://web.archive.org/web/20210925205348im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/英國警方-公開資料守則-20200609160125_2be2_large.png" alt="">
+<figcaption>英國倫敦警察廳披露槍火配備等資料。（網頁截圖）</figcaption>
+</figure>
+
+翻查資料，英國倫敦警察廳在2018年曾分別接納《資訊自由法》申請，公開2010年自2016年度每年的槍火配備及槍械訓練開支，當中包括2016年財政年度增加19倍至574萬英鎊（折合約5600萬港元）。當局曾表示，雖然有國家安全及執法上與罪犯「軍備競賽」等考慮，但仍選擇公開有關開支。
+
+香港大學新聞及傳媒研究中心副教授傅景華質疑，催淚彈開支本身並不涉及執法行動。「純粹是公帑使用，用幾多百萬幾多千萬，點影響前線執法？」他又表示，雖然公開生產商可能影響政府供應，但本身催淚彈供應細節及採購守則等，本身已經對生產商公開，不應該是秘密。
+
+傅景華透露，自己本身都有根據《公開資料守則》向警方索取曾經發射催淚彈的地點，但其後以執法需要拒絕。「問地理位置、在哪裏射（催淚彈），同將來部署又什麼關係？」
+
+他表示，根據《公開資料守則》，政府部門要證明公開資料可能造成實際傷害，並考慮公眾利益。「社會廣泛討論對健康的考慮，有醫生公開說過，《刺針》有文章，催淚彈的成分、有沒有過期，是很明顯的公眾利益。」他促請申訴專員進一步交代公眾利益的考慮。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925205348/https://www.hkcnews.com/aboutus/#subscribe)

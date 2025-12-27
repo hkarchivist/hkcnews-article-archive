@@ -1,0 +1,108 @@
+---
+title: "「金鐘開枝，九龍散葉」上街者告訴內地客：民主是個好東西"
+date: "2019-07-08"
+last_updated: "2019-07-08 03:08:06"
+author: "實習記者區倩怡"
+category: "眾聞"
+tags:
+  - "大陸人"
+  - "反送中"
+  - "77九龍區大遊行"
+url: "https://web.archive.org/web/20220701072143/https://www.hkcnews.com/article/21906/77%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21911/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21906/77%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21911/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「金鐘開枝，九龍散葉」上街者告訴內地客：民主是個好東西
+
+反送中抗議政府行動以不同形式持續，昨日有網民發起「九龍大遊行」，舉起「金鐘開枝，九龍散葉」等標語，下午從尖沙咀梳士巴利花園出發，前往高鐵西九龍站。由於遊行路線在尖沙咀的遊客區，不少人準備簡體字標語及傳單，希望向內地遊客解釋反送中運動及香港人爭取民主的意義。主辦單位稱有23萬人參加，警方指高峰時有5.6萬人。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-反送中-20190708010515_2ab0_large.jpg" alt="">
+<figcaption>遊行大隊由香港來到九龍。美聯社圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707234421_1154_large.jpg" alt="">
+<figcaption>遊行人士站滿梳士巴利花園準備出發，舉起「齊上齊落，不撤不散」的口號。區倩怡攝</figcaption>
+</figure>
+
+遊行原訂於下午3時半在梳士巴利花園集合，但未到­3時，參加者已經站滿整個梳士巴利花園，從香港藝術館外一直延伸到星光大道近香港文化中心。主辦方表示，活動完全是由網民自發，感謝香港人出席：「多謝咁多香港人信任連登仔，我哋好擔心呢個運動會停止落嚟，原本只係預今日有2000人出席⋯⋯」站在花園內等待出發的市民馬上回應：「你哋睇少香港人啦！」、「你哋係咪用咗毅進制呀！（諷刺警察統計遊行集會數字）」
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-反送中-20190708004645_137c_large.jpg" alt="">
+<figcaption>遊行人士站滿星光大道，平日的遊客景點成為遊行起步點。林社炳攝</figcaption>
+</figure>
+
+由於參與人數眾多，遊行提早於3時半出發，循梳士巴利道轉入九龍公園徑。期間參與人士源源不絕地從彌敦道倒灌進梳士巴利道，加入遊行隊伍。不少人自備揚聲器，高呼「香港人加油」、「釋放義士」。有人帶來被捕的中國維權人士照片，包括因聲援雨傘運動而被囚兩年的甄江華、因顛覆國家罪被判刑七年的維權律師周世鋒等。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707234435_1818_large.jpg" alt="">
+<figcaption>有人高舉中國維權人士照片。區倩怡攝</figcaption>
+</figure>
+
+民陣主辦的遊行多數在港島區舉行，今次在尖沙咀這個購物心臟上街，不少外地旅客感到好奇。遊行隊伍途徑半島酒店時，不少遊客站在酒店外觀察，有遊行人士向內地遊客派發簡體字傳單，希望讓他們了解香港現在發生什麼事。
+
+有收到傳單的內地遊客表示，從沒見過這種場面：「不知道發生了什麼，也完全聽不懂。」不過，她仍表示會嘗試看完單張了解一下。有內地遊客則說：「我比較好奇，但還是有事不關己的心態，看看就行了，以前也沒見過。」
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-反送中-20190708004826_1c97_large.jpg" alt="">
+<figcaption>向內地遊客派發的其中一款單張。資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707234526_1462_large.jpg" alt="">
+<figcaption>遊行人士從彌敦道倒灌進梳士巴利道。區倩怡攝</figcaption>
+</figure>
+
+由於今次遊行的其中一個目的是向內地遊客宣傳反送中，不少橫額都與中國社會事件有關，有人舉起「拒入新疆營，不要香港營」、「內地新聞，欺騙國人」、「中港群眾，團結鬥爭」、「今日武漢，明日香港」的標語，希望吸引路過的大陸遊客注意。
+
+沿途有人派發「親 民主是個好東西」的標語，並將其貼在燈柱上。遊行隊伍途徑九龍公園徑及海防道交界時，有遊行人士站在天橋上，向海防道方向展示「民命在此」、「撤回暴動定性，還我真普選」、「支持警察，支持獨立調查」等標語，引起海防道的遊客注意。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707235627_2b99_large.jpg" alt="">
+<figcaption>橋上是要求政府回應五大訴求的市民，橋下則是兩名守住海防道的警員。區倩怡攝</figcaption>
+</figure>
+
+下午約5時，警方在廣東道築起防線，不少遊行人士經過時向警方高叫「香港警察 知法犯法」、「黑警落地獄」。主辦方的糾察一直嘗試呼籲遊行人士繼續向柯士甸道方向前進，現場氣氛不算緊張。
+
+傍晚約6時，有部分遊行人士在中港城門外反覆高唱同一段國歌：「我們萬眾一心，冒著敵人的炮火前進！冒著敵人的炮火前進！前進！」，又以普通話叫口號：「看！香港的自由行多麼的自由！」、「我們要購物！」，其中更有人舉起文革時期的：「革命無罪，造反有理」。有遊行人士嘗試以普通話與路過的內地旅客對話：「建設民主中國！」、「反送中走這一邊啊！」根據記者現場觀察，內地旅客傾向對遊行人士感到好奇，部分駐足觀察現場情況，並拍下照片和影片。
+
+
+{{< video src="https://web.archive.org/web/20220701072143if_/https://www.youtube.com/embed/9GQ6ClXaZ2s" >}}
+
+
+另一邊廂，有遊行人士越過糾察防線，要求追究警暴，在場人士不斷高叫口號責罵警察，呼籲他們「回頭是岸」、「記住自己係宣誓守護香港市民」。晚上7時半，廣東道防線氣氛轉趨緊張，有一人站在行人路上者被一名警員指以雨傘「襲警」，雙方一度爭執，最後該人沒有被拘捕。警方要求遊行人士返回行人路，引來大片「噓」聲。
+
+晚上7時45分，警方再次嘗試重開行車線，有警車試圖駛進廣東道，車上有警員以廣播表示：「你哋話係和平、理性、非暴力嘅遊行，唔好阻住條路。」但遊行人士未有放行，之後警車往柯士甸道方向離開。
+
+之後，有遊行者發現6.12金鐘衝突的其中一名英籍指揮官陶輝（Rupert Dover）在場，大批遊行人士及記者瞬間包圍陶輝，並追問他當天為何決定開槍，亦有示威者不停大叫「Shame on you！」但陶輝只顧傾電話，期間更向身旁警員露出微笑。警方圍成圓陣保護陶輝，並試圖往天星碼頭方向撤退，遊行人士繼續向前推進。警方防線推至海港地連卡佛外的時候，雙方一度發生衝突，一名中年男子被警方帶走，遊行人士以傘陣企圖擋住警方攝錄鏡頭。期間有警員與記者發生推撞，場面混亂。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707235305_1307_large.jpg" alt="">
+<figcaption>圖中戴「紅雞繩」者為陶輝。區倩怡攝</figcaption>
+</figure>
+
+由於遊行人士眾多，大批警員保護陶輝退到香港文化中心近鐘樓位置，現場可見天星碼頭巴士站附近有大量警車停泊，有持圓盾便衣警員戒備。遊行人士後來停止追擊陶輝，決定先守住廣東道。與此同時，香港眾志黃之鋒現身天星碼頭，並衝近警方防線，大聲質問陶輝為何6.12要開槍：「你的國家有民主，你為什麼要阻礙香港人爭取民主？」警員護送陶輝到香港太空館外，陶輝先登上一輛靠近行人路的警車，再從另一邊門登上另一輛警車離開。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707235613_1071_large.jpg" alt="">
+<figcaption>遊行人士站滿廣東道。區倩怡攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707235319_2012_large.jpg" alt="">
+<figcaption>黃之鋒一度與警方推撞。區倩怡攝</figcaption>
+</figure>
+
+入夜後，遊行人士進入彌敦道，並一直向旺角方向移動。有九巴職員在現場指揮巴士離開，獲遊行者歡呼，而他也舉起「手指公」示意，沿路亦有司機向車路上的遊行人士揮手，他們一度佔據彌敦道整條南行線，沿路有遊客駐足觀望。
+
+示威者其後於旺角聚集，警方晚上10時左右於彌敦道銀行中心設防，多次警告示威者須離開否則使用武力，至晚上11時警方清場，有示威者被制服及受傷，警方將防線向油麻地方向推進。
+
+<figure>
+<img src="https://web.archive.org/web/20220701072143im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/77九龍區大遊行-20190707235702_2638_large.jpg" alt="">
+<figcaption>遊行人士站在彌敦道行車線上。區倩怡攝</figcaption>
+</figure>
+
+
+{{< video src="https://web.archive.org/web/20220701072143if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Ficablenews%2Fvideos%2F473462566530899%2F&show_text=0&width=560" >}}
+

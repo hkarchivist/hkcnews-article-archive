@@ -1,0 +1,48 @@
+---
+title: "馬來族群為主單一政府上台　慕尤丁任大馬首相"
+date: "2020-03-01"
+last_updated: "2020-03-01 16:22:31"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "馬哈蒂爾"
+  - "馬來西亞首相慕尤丁"
+url: "https://web.archive.org/web/20210925000356/https://www.hkcnews.com/article/27419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/27419/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27423/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 馬來族群為主單一政府上台　慕尤丁任大馬首相
+
+<figure>
+<img src="https://web.archive.org/web/20210925000356im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/馬來西亞-馬來西亞首相慕尤丁-20200301121148_1015_large.jpg" alt="">
+<figcaption>慕尤丁宣誓成為大馬首相。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210925000356im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/03/馬哈蒂爾-馬來西亞-20200301121209_ff3c_large.jpg" alt="">
+<figcaption>馬哈蒂爾周日舉行記者會。美聯社</figcaption>
+</figure>
+
+馬來西亞土著團結黨主席慕尤丁（Muhyiddin Yassin）周日宣誓就任首相，大馬學者潘永強接受中央社專訪時指出，這個結果對馬來西亞的民主鞏固造成傷害，屆時將形成一個以馬來族群為主的單一政府。而前首相馬哈蒂爾則在周日上午舉行記者會，直言「慕尤丁更讓我感覺自己遭到背叛，他策劃了很久，而如今他成功了」。
+
+相關新聞： [曾公開稱「馬來人優先」　慕尤丁或致馬來傳統主義重返政壇](https://web.archive.org/web/20210925000356/https://bit.ly/32Iq74G)
+
+馬來西亞南方大學通識教育中心主任潘永強表示，從民主化過程觀察，這對馬來西亞民主鞏固過程有所傷害。希望聯盟政府上台執政近兩年，其間推動各種體制或政策改革，如今卻透過政治上變化，讓慕尤丁出任首相。他指出，目前取得政權的是過去比較保守、威權的黨派，這對馬來西亞民主鞏固成果造成傷害。
+
+根據潘永強分析，新的政府組成是以馬來族群為主的政府，並沒有含括代表華人、印度族群的主流政黨。過去馬來西亞60多年來的政治發展，不論是由誰主政，都需要納入不同族群並分享權力。即使是昔日巫統（UMNO）或馬哈蒂爾權力最顛峰時代，均未放棄這種族群共享執政模式，但如今這個政府如只是一個以馬來族群為主的單一政府，將失去代表性。
+
+2018年5月大選，當時92歲的馬哈蒂爾與昔日政敵安華共同帶領希望聯盟，終結國民陣線的統治。這是馬來西亞從1957年獨立以來的首度改朝換代，人民在這一波民主海嘯中透過選票扳倒巫統主導的國民陣線，捲入貪腐醜聞的首相納吉下台，接受司法調查。
+
+但是，馬哈蒂爾2月24日突然宣布辭去首相，所屬政黨土著團結黨隨後發表聲明退出希望聯盟。大馬元首蘇丹阿布都拉當日委任馬哈蒂爾出任代首相，以作為希望聯盟政府的短期領導人。不過，如今卻是慕尤丁任首相，事情可謂峰迴路轉。馬哈蒂爾周日上午召開記者會表示，自己從來沒有支持慕尤丁代表土著團結黨出任首相，反倒是慕尤丁借用他的名字，獲取土團內部信任，自薦成為首相人選。
+
+現為土著團結黨名譽主席的馬哈蒂爾說，慕尤丁曾向他獻議，土著團結黨要與馬來西亞前執政黨巫統組成新聯盟。但當時馬哈蒂爾並不同意，一來是他已經說過，自從退出巫統後就不想再與巫統合作；二來若與巫統合作，將會影響目前巫統黨員正在進行的司法程序，例如前首相納吉牽涉的案件。
+
+有報道指，慕尤丁向黨員稱獲馬哈蒂爾支持成為任首相人選，馬哈蒂爾鄭重否認這項傳聞，並指慕尤丁假借他名譽傳話，又說此舉已經違反黨章。另外，馬哈蒂爾也質疑慕尤丁聲稱獲得114名國會議員支持，他表示，包括自己與兒子在內的6名土著團結黨議員都不支持慕尤丁擔任首相，但慕尤丁聲稱擁有所有土著團結黨36個國會議員支持。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925000356/https://www.hkcnews.com/aboutus/#subscribe)

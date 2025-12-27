@@ -1,0 +1,58 @@
+---
+title: "特首選舉提名前兩個半月　林鄭年結記者會上大篇幅談房屋　指記者提方敏生被捕「問得不適合」"
+date: "2021-12-30"
+last_updated: "2021-12-30 18:52:05"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "立場新聞"
+  - "立場"
+  - "stand news"
+  - "the stand news"
+  - "方敏生"
+url: "https://web.archive.org/web/20220518025644/https://hkcnews.com/article/49779/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49793/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49779/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49793/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 特首選舉提名前兩個半月　林鄭年結記者會上大篇幅談房屋　指記者提方敏生被捕「問得不適合」
+
+警方國安處昨日拘捕《立場新聞》高層及前任董事等共7人，當中包括今年6月27日辭任《立場》董事的社聯前行政總裁方敏生。特首林鄭月娥今日沒正面回應與她在港大同年畢業、在社福議題長期交手的方敏生被捕，強調不會評論警方行動或被捕人士的看法，反指記者問題「問得不適合」。林鄭又辯稱，今次拘捕行動並非針對傳媒，並聲稱完全無寒蟬效應的感覺，更指政府尊重新聞工作者對政府政策的看法，「每日打開報紙都是批評多，特別對本人。」
+
+另外，明年特首換班仍未明朗。一直未表態是否爭取連任的林鄭月娥在年結記者會上，同時公布多個房屋措施，例如延長居屋及綠置居轉售期限，並聲稱鋪排十大工作計劃可以「徹底解決」香港的深層次問題，儼如小型造勢，但她無正面回應會否爭取連任，僅說：「關於我個人的問題，照我所知，第六任行政長官的選舉是明年3月27日，提名期是2月15日，仍然有一段距離。」
+
+<figure>
+<img src="https://web.archive.org/web/20220518025644im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/林鄭-20211230145310_1a96_large.jpg" alt="">
+<figcaption>林鄭月娥在記者會上以30分鐘總結政策，並大篇幅提及房屋措施，惟簡報中未有直接提及兩間傳媒：《蘋果》及《立場》在其任內停運。林勵攝</figcaption>
+</figure>
+
+林鄭月娥與方敏生曾在社福議題交手。方敏生在2019年在 [眾新聞專訪](https://web.archive.org/web/20220518025644/https://bit.ly/3sYFu8j) 中，未有評論林鄭，但批評政府在修訂《逃犯條例》直上大會是破壞制度，「數夠票就夾硬來，任意妄為」。對年輕示威者破壞立法會，方也反問：「我們這一代人，唔會接受暴力，但制度暴力造成的破壞，不是更恐怖嗎？」
+
+林鄭在記者上沒正面回應方敏生在《立場》案中被捕一事，直至記者會尾聲，被記者追問「Christine（方敏生）被捕，你唔難過？你無感覺嘅？」之後再有記者問：「Christine 係你同學喎。」林鄭並無回應，只是繼續離開現場。
+
+對於警方搜查《立場新聞》，林鄭繼續支持警方，堅稱警方行動並非針對媒體，並指如果媒體犯法就要採取行動，她亦說不評論個別案案。期間，她指責《香港01》記者問題有引導性，聲稱不是「整頓反對派媒體，這純粹是一個執法工作，與新聞媒體工作沒有直接關係」。
+
+被問及怎樣分辨批評政府言論是否引起憎恨，例如今年較早前禁止午市堂食引起廣泛批評，有關內容是屬於哪一類？林鄭說煽動是法律語言，自己不能詳細分析什麼是或不是煽動，相信法庭會有裁決。她重申，政府尊重新聞工作，「有些人認為過去一年多有寒蟬效應，大家唔敢出聲，唔敢批評政府，我完全無呢個感覺，每日打開報紙都是批評多，特別對本人。」
+
+<figure>
+<img src="https://web.archive.org/web/20220518025644im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/Carrie%20Lam-連任-20211230145229_1fbd_large.jpg" alt="">
+<figcaption>港隊在奧運及國際賽項目被林鄭列入今年回顧簡報中。</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220518025644im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/特首-20211230145326_9176_large.jpg" alt="">
+<figcaption>林鄭明年的十大工作，包括做好政府換屆工作。</figcaption>
+</figure>
+
+以「回顧與展望」為主題的記者會上，林鄭花了超過30分鐘總結過去一年政府政策及大篇幅談及房屋政策，其餘篇幅連張家朗在奧運劍擊奪金、何詩蓓在世界賽破紀錄都列入簡報。
+
+林鄭明年的十大重點工作包括：爭取早日通關及嚴厲提升疫苗接種率、推進新界北發展、展開23條本地立法諮詢工作、3月底前制定政策局改組方案。林鄭表示，在立法會明年1月12日復會就會公布政策局改組方案細節。
+
+她同時宣佈多個新房屋政策，包括在2021年度第四季賣地計劃引入最低單位面積規定、開放綠置居單位給輪候公屋一年以上人士申請，並調高居屋及綠置居轉售期限，在第二市場轉售期限由兩年延長至五年，公開市場由十年延長至十五年。林鄭又推銷，在2022年預計出售的資助房屋單位數量比預期高，並說本屆政府任內推出資助房屋單位「比上屆政府多約4倍」。
+
+林鄭回應提問時說，香港作為資本主義社會，經濟發展同時會產生財富不均、貧富懸殊，相信日後又更好基礎解決民生問題，尤其是房屋問題。林鄭自詡說：「我現在鋪排出來的計劃，可以徹底解決這些（深層次）問題。」
+
+被問及評估香港如今狀態及她在2017年上任時的情況，林鄭月娥說：「如果你問我，我覺得香港在2021年的狀態，比我2017年剛上任的狀態好得多（in a much better state）。」她解釋，香港在一國兩制正確軌道上，而在立法會由「愛國者」組成，香港變成安全得多的地方。

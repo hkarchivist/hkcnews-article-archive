@@ -1,0 +1,52 @@
+---
+title: "教大生襲警罪上訴得直　高院指原審裁判官沒適當分析影片　錯判上訴人是疑犯"
+date: "2021-11-15"
+last_updated: "2021-11-15 14:30:54"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "旺角站"
+  - "港鐵站破壞"
+  - "92罷工罷課"
+url: "https://web.archive.org/web/20220819071923/https://hkcnews.com/article/47686/92%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47695/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47686/92%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47695/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 教大生襲警罪上訴得直　高院指原審裁判官沒適當分析影片　錯判上訴人是疑犯
+
+男學生前年9月2日響應「超合作運動」，藉阻礙港鐵車門妨礙市民上班。他早前承認公眾妨擾罪，但否認撞傷警員，受審後襲警罪成。他不服定罪上訴，高等法院法官張慧玲早前聆訊時看過涉案新聞片，指出受襲警員原本在追截一名黑衣人，明顯不是隨後被制服的上訴人，原審裁判官卻錯指是同一人。張官今(15日)裁定上訴得直，指沒有片段拍到上訴人衝撞警員，亦看不到他襲警後逃走，基於他出現的時間與警員原本追截的黑‍衣‍人‍異‍常接近，不能排除警員是被該名黑‍衣‍人‍襲擊，而非上訴人。
+
+<figure>
+<img src="https://web.archive.org/web/20220819071923im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/92罷工罷課-港鐵站破壞-20211115114309_33c0_large.png" alt="賈雲龍">
+<figcaption>上訴人賈雲龍當日在月台上被捕（蘋果動新聞截圖）</figcaption>
+</figure>
+
+### 新聞片不見警員所謂上訴人襲警後「U-turn」逃走
+
+已服刑完畢的上訴人賈雲龍今獨自到庭應訊，聞判後表現冷靜。他案發時18歲，今年初罪成時20歲，就讀教育大學運動科學課程。他早前承認在旺角及樂富站用雨傘阻礙港鐵列車關門，但否認兩項襲警罪。原審裁判官屈麗雯裁定他其中一項襲警罪成，判入勞教中心。
+
+張官指涉案新聞片顯示，疑襲警的戴綠色口罩黑衣人Y被警員A追截期間，在閘門前轉彎跑走，未幾警方在閘門前方圍捕上訴人。有關片段看不到警員A所說的上‍訴‍人「從5至10米外衝過去撞他」的情形，也看不到他指上訴人施襲後「U-turn」轉身逃跑的情況。
+
+<figure>
+<img src="https://web.archive.org/web/20220819071923im_/https://hkcnews.com/news_新聞/hk-discuss/2018/09/張慧玲-20180927155302_33cc_large.jpg" alt="">
+<figcaption>法官張慧玲</figcaption>
+</figure>
+
+### 原審錯誤裁定警員證供與片段沒矛盾
+
+張官亦不認同原審裁判官所指，涉案片段一開始便顯示警員A正在追截上訴人，因畫面顯示警員A及同袍原本追截黑衣人Y，當Y逃脫後，其同袍才轉移目標，向迎‍面而來的上訴人揮棍，然後警員A亦一同用警棍制服上訴人。
+
+相反，張官認同上訴方的陳詞，即原審裁‍判‍官確是錯認上訴人是黑衣人Y，據此誤以為片段拍攝到上訴人襲警後的情況。張官認為原審裁判官錯誤斷定上訴人便是黑衣人Y，沒有適當考慮或分析涉案片段，錯誤裁‍定警員A的證供與片段沒有矛盾，對上訴人不公。
+
+<figure>
+<img src="https://web.archive.org/web/20220819071923im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/襲警-超合作運動-被告-20211108130103_130d_large.png" alt="">
+<figcaption>警方案發時正追截另一黑衣人Y。(資料圖片)</figcaption>
+</figure>
+
+### 須多番重覆看片才察覺非同一人　官：原審錯誤裁斷可理解
+
+惟張官表示可以理解原審裁判官的錯誤裁斷，因為必須多番重覆觀看片段，才可察覺被警員追截、戴了綠色口‍罩的黑衣人Y，並非其後被警員制伏、戴了黑色面巾的上‍訴‍人。
+
+基於上訴人出現的時間，與原本被警員追截的黑‍衣‍人‍Y是異‍常接近，張官認為不能排除警員A是被黑‍衣‍人‍Y襲‍擊，而並非被上訴人襲擊。因此，控方未能在毫無合理疑點下證實上訴人襲擊警員A，裁定上訴得直，撤銷定罪。
+
+案件編號：HCMA81/2021

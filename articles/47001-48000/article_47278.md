@@ -1,0 +1,45 @@
+---
+title: "福布斯中國富豪榜大執位　馬雲馬化騰三甲不入　許家印排名由去年第10跌到44"
+date: "2021-11-04"
+last_updated: "2021-11-05 16:05:21"
+author: "中國組記者曾海琪"
+category: "眾聞"
+tags:
+  - "馬雲"
+  - "Jack Ma"
+  - "马云"
+  - "福布斯"
+  - "眾新聞中國組"
+  - "許家印"
+url: "https://web.archive.org/web/20221209032114/https://hkcnews.com/article/47278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD44"
+original_url: "https://hkcnews.com/article/47278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47285/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD10%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD44"
+---
+
+# 福布斯中國富豪榜大執位　馬雲馬化騰三甲不入　許家印排名由去年第10跌到44
+
+一年一度福布斯中國內地富豪榜今日揭曉，農夫山泉董事長、今年66歲鍾睒睒首次登上榜首，身家達4244億元人民幣。緊隨其後是「抖音」母公司字節跳動創辦人張一鳴及電動車電池生產商、寧德時代創辦人曾毓群，分別以3825億元人民幣及3272億元人民幣位居第二和第三。
+
+<figure>
+<img src="https://web.archive.org/web/20221209032114im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/福布斯-20211104174426_19f8_large.jpg" alt="">
+<figcaption>鍾睒睒</figcaption>
+</figure>
+
+值得留意是張一鳴本周剛宣佈從字節跳動全退，卸任公司董事長一職，被指是內地官方近日連番出手整頓科網企業下，又一位重量級人物退下火線。
+
+而這股整頓潮影響不止這麼少，細心留意與往年相比，今年富豪榜很多大家熟悉的名字排位都有轉變。包括有「雙馬」之稱的阿里巴巴創辦人馬雲及騰訊主席馬化騰，由去年分別排頭兩名到今年三甲不入。
+
+因為受互聯網平台反壟斷監管等因素影響，過去一年阿里巴巴股價跌幅超過四成，馬雲身家亦按年縮水近四成，以2千6百多億元今年排第5。在監管風暴下馬化騰身家亦按年倒跌5百多億，今年排第四。
+
+<figure>
+<img src="https://web.archive.org/web/20221209032114im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/福布斯-20211104174412_b653_large.jpg" alt="">
+<figcaption>騰訊主席馬化騰(左)及阿里巴巴創辦人馬雲(右)</figcaption>
+</figure>
+
+不過他們的跌幅絕對比不上恒大集團主席許家印，今年爆出恒大債務風波，不止觸發各地上訪潮，更令內地房地產市場一片低氣壓。事件至今懸而未決，許家印身家就由去年以1千8百多億元排第十，足足蒸發超過一半，只有764億元排名44。
+
+不過低處未算低，所指的是李永新家族。大家未必聽過，但他們的中公教育以公務員考試培訓起家，是內地成人職業教育龍頭企業。受近日官方雙減政策對校外培訓的規範整頓，雖然政策對象針對在學小朋友、想幫他們減輕負擔，而不是中公教育主打的成人培訓，但企業仍然受衝擊。李永新家族由去年身家約1千2百多億，跌至今年426億，足足少近3分之二，在富豪榜排名亦由23位跌至91位。
+
+<figure>
+<img src="https://web.archive.org/web/20221209032114im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/福布斯-20211104174432_e7bb_large.png" alt="">
+<figcaption>李永新</figcaption>
+</figure>

@@ -1,0 +1,54 @@
+---
+title: "楊潤雄：《基本法》測試或推展至直資、幼稚園教師　處理投訴會考慮教師過往網上言論"
+date: "2021-10-15"
+last_updated: "2021-10-15 19:29:39"
+author: "記者趙婉婷"
+category: "眾聞"
+tags:
+  - "基本法"
+  - "基本法 45 條"
+  - "基本法 考試"
+  - "基本法 遊戲"
+  - "基本法 測試"
+  - "基本法 題目"
+  - "香港 基本法"
+  - "基本法 考試 題目"
+  - "楊潤雄"
+  - "投訴教師"
+url: "https://web.archive.org/web/20211204042659/https://www.hkcnews.com/article/46515/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46543/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46515/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46543/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 楊潤雄：《基本法》測試或推展至直資、幼稚園教師　處理投訴會考慮教師過往網上言論
+
+下學年官津學校新聘教師都須通過《基本法》考試。教育局局長楊潤雄表明，津貼學校老師是第一步，不排除會推展至直資學校及幼稚園教師，未來將納入更多教師。同時又會考慮跟公務員事務局標準，將來加入《港區國安法》考核內容。他又指政府將會為教師操守提供清晰指引和守則，處理投訴個案時，亦會考慮教師過往在網站及社交媒體上發佈過的言論。
+
+<figure>
+<img src="https://web.archive.org/web/20211204042659im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/教師-楊潤雄-20211015122727_2a34_large.jpg" alt="">
+<figcaption>教育局局長楊潤雄表示，《基本法》考試先做津貼學校老師，不排除會推展至直資學校及幼稚園教師，未來將納入更多教師。趙婉婷攝</figcaption>
+</figure>
+
+公務員事務局明年入職試，除了要有基本法測試，還會加入國安法考核內容。公務員事務局局長聶德權表明，有志加入做公務員，必須對一國兩制，對基本法有認識，同樣要對國家安全意識，自覺維護國家安全都是重要，「需要任何投考政府崗位，中學畢業以上，有基本法測試、國安法測試，是正常不過，順理成章」。聶德權又指，不擔心增加國安法測試會令公務員的申請人數下跌，強調招聘適當的人更重要。他未有回應國安法測試的時間表，及現職公務員是否需要接受測試。
+
+<figure>
+<img src="https://web.archive.org/web/20211204042659im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/聶德權-20211015141132_2c9a_large.jpg" alt="">
+<figcaption>公務員事務局局長聶德權指加入國安法考核公務員，是正常不過，順理成章的事。陳暋柟攝</figcaption>
+</figure>
+
+公務員有關的測試，同時會影響到入職教師基本法測試。楊潤雄出席電台節目時，被問及下學年入職教師需要經過基本法測試，會否跟公務員一樣，將來考核國安法內容，楊潤雄表明在學校中推行國家安全教育是必須做的事，所以老師對《香港國安法》和國家安全的認識非常重要。他指出公務員事務局可能會於來年六月的考試才會加入國安法內容，而今年為教師而做的一些測試仍然會主要依據《基本法》，但就不排除明年年尾，或者過了六月之後安排給教師的考試，可能都會加插國安法內容，並指教育局會再作檢視。
+
+楊潤雄又表示，一直有與公務員事務局討論，長遠會考慮兩個考試能否互通。他續指，由於現職教師一直有很多培訓，所以不需要考《基本法》測試。
+
+反修例運動下，教育局收到大約200多宗有關教師的投訴個案，當中有100宗個案不成立及有3名老師被取消註冊，其餘已發警告信、勸喻信等。教育局亦將制訂教師專業操守指引及示例，為教師的責任提供清晰、有系統的指引。楊潤雄指，從以往投訴中得到一個看法，就是教師的一言一行都在影響學生，社會及政府對教師言論有一定期望。
+
+被問到會否限制教師私人言論或社交網站的言論自由？楊潤雄明確表示，「現在很多所謂私人空間，大家要接受，會在網絡上會廣泛流傳，在自己網站，社交媒體表達言論都會考慮」。當再被追問到處理教師專業操守行為時，會否考慮以往在社交媒體言論，他直言每個個案獨立去考慮，「教師在今日之前的言論會否予以考慮，就要了解投訴的性質是甚麼，以及投訴的內容是甚麼，很難一概而論。可能有人投訴他三日前的說話，我們也要去看他三日前的說話內容，所以很難界定甚麼是以前，但凡投訴，代表已經發生，理論上都是以前的事」。
+
+就教師須通過《基本法》測試的要求，經民聯立法會議員梁美芬傍晚在其個人社交媒體專頁表示，教育局應該將通過《基本法》測試列為教師註冊條件，不分學校類別，現職教師亦應在指定時限內通過測試才可繼續任教。她又建議，其他專業的持續專業發展計劃，包括法律、醫護、會計、社工，亦應該加入憲法、基本法和國安法內容，認為社會對專業人士特別尊重，他們也要對法律有準確認識。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204042659/https://www.hkcnews.com/aboutus/#subscribe)

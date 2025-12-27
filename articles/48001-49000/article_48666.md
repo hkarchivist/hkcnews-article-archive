@@ -1,0 +1,56 @@
+---
+title: "美國正式宣布杯葛北京冬奧　新西蘭稱早已決定不派官員出席　外交部：將堅決反制"
+date: "2021-12-07"
+last_updated: "2021-12-07 17:43:26"
+author: "中國組記者翁維愷"
+category: "眾聞"
+tags:
+  - "美國"
+  - "美利堅合眾國"
+  - "北京冬奧"
+  - "杯葛冬奧"
+url: "https://web.archive.org/web/20220119223038/https://hkcnews.com/article/48666/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48695/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48666/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48695/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 美國正式宣布杯葛北京冬奧　新西蘭稱早已決定不派官員出席　外交部：將堅決反制
+
+**美國白宮於當地時間周一（6日）正式宣布，將外交杯葛北京冬奧，不派任何官員出席，但運動員則繼續得到拜登政府的全力支持。新西蘭副總理羅伯森今天（7日）接受媒體訪問時，亦表示不會派外交官員出席冬奧。**
+
+在北京，外交部表示，美方在未收到邀請的情況下，把是否派官員出席與新疆人權問題掛鉤，「這完全是顛倒黑白、錯上加錯、自欺欺人。」發言人趙立堅指，已提出嚴正交涉，中方將堅決反制。
+
+<figure>
+<img src="https://web.archive.org/web/20220119223038im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/美國-杯葛冬奧-北京冬奧-20211207111226_fb07_large.jpg" alt="">
+<figcaption>北京冬奧將於明年2月開幕，美國、新西蘭等國已宣布將不派官員出席。美聯社圖片</figcaption>
+</figure>
+
+美國白宮發言人普薩基（Jen Psaki）指，拜登政府不派官員出席明年2月在北京舉行的冬奧，是為了發出明確信息，美方不能一切如常，「基於中國持續針對新疆的種族滅絕和人道罪行和其他侵犯人權行為。」
+
+普薩基指，美國政府將繼續全力支持運動員參賽，但不會為比賽宣傳。
+
+根據彭博報道，新西蘭副總理羅伯森（Grant Robertson）周二接受當地電視台訪問時，亦指當局早於10月就已向中方明確表示，不會有部長級官員出席冬奧，「這是我們早已決定的事」。
+
+羅伯森表示，他們不派外交官的決定出於「眾多因素」，「主要與新冠病毒有關」，「但我們已在多個場合向中國表達對人權問題的關切」。
+
+<figure>
+<img src="https://web.archive.org/web/20220119223038im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/白宮發言人-杯葛冬奧-Jen%20Psaki-20211207111341_15ba_large.jpg" alt="">
+<figcaption>美國白宮發言人普薩基（Jen Psaki）指，拜登政府不派官員出席明年2月在北京舉行的冬奧，是為了發出明確信息，美方不能一切如常。美聯社圖片</figcaption>
+</figure>
+
+另外，倫敦廣播公司上周日（5日）亦報道指，英國副首相、司法大臣藍韜文（Dominic Raab）將以個人名義抵制北京冬奧。報道指，他是出於對中國的人權問題，而決定不出席冬奧。
+
+不過當藍韜文被問到，他所在的保守黨會否一起抵制時，他只說自己不能代表所有人，「但我可以告訴你，我不會。」英國下議院議長早前曾透露，部長們尚未訂機票出席北京冬奧，被外界理解為委婉地表態，英國將實施外交杯葛。
+
+### 外交部：未獲邀請炒作屬顛倒黑白
+
+在西方傳出杯葛冬奧的消息後，在北京，外交部表示中方對美方表態強烈不滿，堅決反對，已向美方提出嚴正交涉，將作出堅決反制。
+
+外交部發言人趙立堅今天（7日）在例行記者會上指，根據奧運規則，各國官員出席奧運會，應由本國奧委會邀請。趙指，美國官員是否出席為運動員加油，是美方自己的事，「在未收到邀請情況下，美方把是否派政府官員出席同所謂新疆人權問題掛鉤，這完全是顛倒黑白、錯上加錯、自欺欺人。」
+
+他表示，美方應停止將體育運動政治化，停止干擾破壞北京冬奧會的言行，否則將損害兩國在一系列重要領域和國際地區問題上的對話合作。
+
+當有記者追問，中方會有何反制措施，趙立堅只表示，美方會為其錯誤行徑付出代價，要大家拭目以待。
+
+至於被問到，中方會否外交抵制美國2028年洛杉磯奧運會？趙立堅回應指，美方錯誤行徑已經破壞了中美體育交流和奧運合作的基礎和氛圍，是搬起石頭砸自己的腳，美方應認清這一錯誤行徑的後果。
+
+根據路透社報道，中國駐美國大使館發言人劉鵬宇昨日亦表示，美方此舉是政治操弄，有違奧林匹克憲章精神。他指，從來沒有向美國政客發出邀請，美國政客來或不來，對北京冬奧會的成功舉辦不會有任何影響。

@@ -1,0 +1,38 @@
+---
+title: "黃之鋒佔旺案上訴　辯方：非領導角色　控方：曾用大聲公發言"
+date: "2019-04-03"
+last_updated: "2019-04-03 17:02:50"
+author: "記者鄭靖而"
+category: "眾聞"
+tags:
+  - "黃之鋒"
+  - "Joshua Wong"
+  - "上訴"
+  - "佔旺藐視法庭案"
+url: "https://web.archive.org/web/20220125231113/https://www.hkcnews.com/article/19567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 黃之鋒佔旺案上訴　辯方：非領導角色　控方：曾用大聲公發言
+
+香港眾志秘書長黃之鋒，因2014年佔旺清場期間違反禁制令，阻礙執達主任清場，被控刑事藐視法庭，去年1月被判入獄三個月，他其後就刑期提出上訴，在服刊一周後獲批准保釋外出等候上訴。事隔一年多，高等法院上訴庭今早處理其上訴，上訴庭副庭長林文瀚、法官潘兆初和彭偉昌聽取雙方陳詞後，押後裁決，黃之鋒獲准繼續保釋。
+
+<figure>
+<img src="https://web.archive.org/web/20220125231113im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/佔旺藐視法庭案-香港眾志-黃之鋒-20190403144909_862d_large.jpg" alt="">
+<figcaption>香港眾志羅冠聰（左一）、林朗彥（左二）、社民連黃浩銘（右一）、大和細黃伯（右二及三）及約20多名市民，在開庭前到高等法院聲援黃之鋒。何君健攝</figcaption>
+</figure>
+
+香港眾志成員羅冠聰、周庭、林朗彥等；社民連吳文遠、黃浩銘；以及20多名市民，今早開庭前於高等法院門外聲援黃之鋒。黃之鋒在開庭前，呼籲公眾關注《逃犯條例》修訂及其他政治檢控的案件。黃說，如上訴失敗，須重返監獄繼續完成餘下刑期，將會是他第三度入獄，但指他所面對的刑期，比起旺角暴動案及佔中九子案的被告來說，是微不足道。黃之鋒說，會以平常心面對裁判結果。早前因同案被判入獄、已服刑完畢的黃浩銘則指，即使黃之鋒承認控罪，他在歷史上都是無罪的，帶頭高呼「我要真普選」及「黃之鋒無罪」等口號。
+
+代表黃之鋒的資深大律師駱應淦表示，原審法官在判刑時，沒有考慮到黃之鋒在案發時只有18歲，認為法庭應考慮其年紀輕的因素。另外，黃之鋒在事件中亦非擔任領導角色，要求法庭改判緩刑。駱應淦指出，黃之鋒在案中並非領導角色，與早前被判囚4個半月的黃浩銘不同，黃之鋒當時只是持咪向執達主任發問，確認他們的身份。對於原審法官指，黃之鋒「挑戰」執達主任，駱應淦認為「挑戰」一詞有廣泛定義，不同語氣有不同意思，強調黃之鋒當時的態度並非最惡劣的一種，而當時黃之鋒亦只是為其他示威者提出疑問。駱應淦強調，法庭不應基於黃之鋒是知名社運人士的身分考慮刑罰，應取決於黃實際所做的事。
+
+<figure>
+<img src="https://web.archive.org/web/20220125231113im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/04/Joshua%20Wong-佔旺藐視法庭案-香港眾志-20190403144817_e793_large.jpg" alt="">
+<figcaption>黃之鋒說，如上訴失敗，須重返監獄繼續服刑，將會是他第三度入獄。何君健攝</figcaption>
+</figure>
+
+代表律政司的資深大律師陳政龍反駁，指黃之鋒在阻止執達主任清場行動中擔任領導的角色，強調黃之鋒當時與黃浩銘站在一起，同樣有使用「大聲公」向其他人發言，有份鼓動示威者情緒，令示威者及負責清場人士之間的緊張局面升級，因此黃之鋒與黃浩銘的刑罰應是同樣。陳政龍提出，在刑事藐視法庭案件中，法官會權衡被告人年齡的比重，又指年齡只是其中一個判刑考慮。
+
+律政司一方指出，黃之鋒在保釋期間，沒有準時到警署報到，有時甚至會遲到數天，要求法官提醒黃之鋒報到的重要性，遵守保釋條件。
+
+相關文章： [黃之鋒佔旺囚3月　岑敖暉緩刑　官嘆：政爭損基層生計須介入](https://web.archive.org/web/20220125231113/https://www.hkcnews.com/article/9513/%E4%BD%94%E6%97%BA%E8%97%90%E8%A6%96%E6%B3%95%E5%BA%AD%E6%A1%88-%E9%BB%83%E4%B9%8B%E9%8B%92-%E9%BB%83%E6%B5%A9%E9%8A%98-9513/%E9%BB%83%E4%B9%8B%E9%8B%92%E4%BD%94%E6%97%BA%E5%9B%9A3%E6%9C%88-%E5%B2%91%E6%95%96%E6%9A%89%E7%B7%A9%E5%88%91-%E5%AE%98%E5%98%86%EF%BC%9A%E6%94%BF%E7%88%AD%E6%90%8D%E5%9F%BA%E5%B1%A4%E7%94%9F%E8%A8%88%E9%A0%88%E4%BB%8B%E5%85%A5)

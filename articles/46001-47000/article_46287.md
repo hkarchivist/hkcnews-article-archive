@@ -1,0 +1,62 @@
+---
+title: "Too Big to Talk　林鄭願景看不見的未來"
+date: "2021-10-07"
+last_updated: "2021-10-08 02:29:17"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "中大學生會"
+  - "中大學生會解散"
+url: "https://web.archive.org/web/20211128175843/https://www.hkcnews.com/article/46287/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46290/too-big-to-talk-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46287/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46290/too-big-to-talk-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# Too Big to Talk　林鄭願景看不見的未來
+
+
+{{< video src="https://web.archive.org/web/20211128175843if_/https://www.youtube.com/embed/xgatgmZcPCA" >}}
+
+
+### 【香港這一天】結集
+
+特首林鄭月娥昨日（6日）舉行任內最後一場施政報告大騷，早上在立法會上演，繼去年在施政報告推出「明日大嶼」願景，再拋出一個「北部都會區」發展概念，涉及橫跨元朗及北區300公頃土地，可容納250萬人口。假如概念實行，可說是香港開埠以來最大型的單一發展項目。
+
+去年的「明日大嶼」成本至少6,000億元，未能令港人振奮，帶來希望，只有疑惑；「北部都會」願景更宏大，官方未公佈估計總成本，相信超過6,000億元，昨日公佈，亦未出現「嘩」的即時驚喜反應。
+
+林鄭任內last show再打超級大型基建牌，效果有限，另一張在結語時打的「感性」牌，只能感動到立法會內「忠誠」愛國者。新民黨容海恩在答問會上形容林鄭報告「有血有肉有感情」， 不少市民觀看林鄭「哽咽」一幕，想到早前保安局局長鄧炳強的另一場「哽咽」表演，感覺恐怕是欲哭無淚、嘔心瀝血。
+
+香港民意研究所昨晚發表即時民意調查初步結果，施政報告平均評分為34.2分，較去年稍微回升7分，但仍有逾半受訪者不滿意今年的施政報告，當中有36% 受訪者的選項為「好不滿」，為回歸以來第3低分的施政報告。
+
+民意研究所今日（7日）發表特首及官員最新評分，林鄭民望再跌。林鄭民望之前稍升再落，施政報告評分比去年上升，反映2019反修例風暴後，中央出手，對港使出「港區國安法」加上新選舉制度的「組合拳」，令民主派近乎瓦解，公民社會重創等事件，對她民望帶來的負面影響，公眾已逐漸消化，但將持續處於低位。公眾已沒有感覺，她個人亦不在乎，繼續自我感覺良好。
+
+林鄭過去兩日的施政報告騷，更明顯地「番哂來」。昨日早上出席立法會、下午記者會、晚上電視論壇，3個活動，3套服裝，銳意製造煥然一新感覺，「博好感」，公眾是否受落並不重要，重要是向中央顯示精神面貌，自信爆棚。她在不少政策問題上，亦不避忌、不客氣，衝著以往特首及官員，質疑他們的決定和策略。
+
+她不點名指曾蔭權及梁振英迴避23條立法是一個清楚例子。她又說 ，一直倡導運輸基建先行，認為以往用人口流量、經濟回報考慮交通基建，她有所保留。林鄭在梁振英政府年代是政務司司長，23條立法、地區發展策略等彷彿與她無關，一切將由2021年施政報告開始，公眾感到混亂，對「願景」失去興趣，對林鄭口中一切的「撥亂反正」失去感覺，只有煩厭。
+
+剛發表的施政報告，從「北部都會區」至馬料水填海，公務員選拔制度至強積金轉為年金，都屬重要公共政策、發展策略，觸及不同價值觀，社會上會有不同意見。一個健康、正常的社會，政府會透過具民意授權的議會、不同渠道與民共議，讓不同持份者及專家討論不同方案，達致最大的共識，逐步實現共同願景。
+
+今日是施政報告發表後的第一天，林鄭出席電台節目和立法會會議，分別回應提問，兩個環節同樣內容零碎，缺乏焦點，對普羅大眾來說，「北部都會區」是too big to talk，願景太大、太遠，不知從何說起。「愛國者」的提問成為「亮點」。
+
+新民黨容海恩未問先讚林鄭演辭「有血有肉有感情」，令人想到前國家主席江澤民訓斥香港記者的一句話「too simple, sometimes naive」，「太簡單、偶爾天真」。財委會主席、保險界陳健波提問，批評政府的中文水平低，似乎令林鄭措手不及，明顯在沒有準備下「爆肚」，說改善中文應多看書，需要各自努力云云。
+
+特首與建制派同心同行，多讀書，學寫中文，重新出發，由零開始，未嘗不是好事。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128175843/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211128175843im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

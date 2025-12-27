@@ -1,0 +1,67 @@
+---
+title: "百萬圓桌會籍流向商品化"
+date: "2021-06-03"
+last_updated: "2021-06-04 05:11:38"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "保險界"
+  - "保險代理"
+  - "百萬圓桌協會"
+url: "https://web.archive.org/web/20210724200525/https://www.hkcnews.com/article/41880/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42014/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41880/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42014/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 百萬圓桌會籍流向商品化
+
+<figure>
+<img src="https://web.archive.org/web/20210724200525im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/專業和你傾-百萬圓桌協會-保險界-20210602231059_272b_large.png" alt="">
+</figure>
+
+【撰文：保險從業員一枝梅】
+
+人壽保險（長期保險業務）過往二、三十年發展蓬勃，即使在金融風暴仍有個位數增長。 筆者目睹過去十多年從業人數倍增，競爭日趨激烈，自己的生意有不少在同業手中溜走，感覺當然不是味兒。但從整體社會利益來看，更多競爭對業界質素及客戶選擇都有所提升，所以筆者樂見這個現象，亦預計更多人加入這個行業。
+
+保險相比其他專業入行門檻較低，入職前的培訓都只是兩至三個月，給市民的感覺不夠專業。業界為了提升市民對保險從業員的形象，做了不少功夫，其中之一就是鼓勵從業員成為百萬圓桌會會員（Million Dollar Round Table）簡稱是 MDRT。
+
+根據 [百萬圓桌協會](https://web.archive.org/web/20210724200525/https://www.mdrt.org/membership/) 網頁，該會成立於1927 年，是一個獨立的國際協會。 組織遍佈世界72 個國家的 500 多家公司，超過 66,500 名會員均是世界一流的壽險與金融服務專業人士。MDRT 會員展現了卓越的專業知識、嚴格的道德操守和傑出的客戶服務。
+
+### 未能有效監察是否認真奉行
+
+成為合資格基本會員的業績要求，需於年度內收取指定的佣金或首年保費。除此之外，亦需遵守與奉行《百萬圓桌倫理綱領 》。訂立倫理綱領當然是好事，好譲業內人士依循，但只是一些原則，沒有客觀可量度的標準，會員是否認真奉行，未能有效監察。
+
+筆者入行之時，百萬圓桌會的業績要求十分嚴格，只是每年業界中不多於10%的精英可以符合資格。筆者只是偶爾達到這個標準，所以能達到這個目標自然十分興奮。百萬圓桌會籍亦被認為是成功保險人的標誌。
+
+為使更多從業員符合資格，協會亦降低了業績要求。最近幾年，業界（保險公司）興起一股風氣，十分吹捧百萬圓桌會籍這個資格，紛紛標榜公司有多少人成為會員，有些公司宣稱名下的會員人數是業內最高，總之越多越好。
+
+保險公司這種宣傳手法可以達至兩個目的：更多代理人符合資格，意味公司銷售額再創高峰；另一方面，公司的培訓可以幫助代理人成功達至百萬圓桌會員，亦有助招募新人入行。
+
+基於這個緣故，百萬圓桌會會籍有價有巿，一個保險代理如果連續幾年保持會籍，將成為各大保險公司羅致對象，可以取得可觀的「握手費」。但百萬圓桌會員資格是否就代表該名保險從業員真的稱職？真的處處為客戶着想？行內沒有什麼秘密，有百萬圓桌會員銷售的保單中三分之一是自己和家人，亦有一些會員連公司的最低業績要求也未能達到，實在是十分諷刺。
+
+### 為求做到生意挖盡客戶荷包
+
+一件貨品因為物有所值，在市場賣得好價錢是合理，但其價值在扭曲的情況下抬高了就淪為商品。希望得到的人就會費盡心思，挖盡客戶荷包，為求做到生意。最誇張的是建議客戶將已經供滿的住宅單位重按，貸款購買理財產品。這樣做真的是顧及客戶利益？一旦市場逆轉，客戶有能力承擔損失？
+
+業內有少數自利又精於計算的從業員，刻意營造幾年百萬圓桌會的成績，之後投向別間公司，收取可觀的「握手費」，對客戶的承諾已經拋諸腦後。客戶以為自己選對了保險顧問，又怎會料到成為孤兒單苦主。
+
+筆者本人對百萬圓桌會沒有貶意，也不時鼓勵未達至目標的同事繼續努力，一生中至少做一次，但對於這個會籍日趨商品化感覺憂慮。當市場上充斥着多如繁星的會員，合資格者就會淪為「路人甲」，不再顯得其可貴之處。
+
+百萬圓桌會籍是一個國際業績指標，符合資格者生意應該不錯吧。除此之外，你不會知道這位會員是用什麼心態來做保險，是否一切都以客戶利益為先。筆者認識不少從業員朋友，作風低調平實、具專業知識，又忠於公司及客戶，他們都不曾是百萬圓桌會員，同樣值得信任。百萬圓桌會籍已經流於商品化，建議有心投保或加入保險業的讀者，在選擇顧問或上線時，不要倚賴單一指標，應該見多幾位代理或經理才作出決定，免得後悔莫及。
+
+**作者簡介：** 一枝梅，加入保險業十多年，特立獨行，率性敢言，大膽評論業界生態。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210724200525/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20210724200525im_/https://www.hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

@@ -1,0 +1,40 @@
+---
+title: "黎智英悼六四案前　警派員搜觀塘辦公室　黎︰不等律師便搜，這不是法治"
+date: "2020-10-15"
+last_updated: "2020-10-15 18:01:10"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "黎智英"
+  - "六四31周年"
+  - "駐港國安公署"
+url: "https://web.archive.org/web/20210804194303/https://www.hkcnews.com/article/34778/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD31%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34783/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/34778/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD31%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-34783/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 黎智英悼六四案前　警派員搜觀塘辦公室　黎︰不等律師便搜，這不是法治
+
+壹傳媒集團創辦人黎智英等人周四（15日）下午就六四集會案，再到西九龍裁判法院應訊，但警方在開庭前夕，突然到黎智英位於觀塘的辦公室取走一批文件。黎智英助手Mark Simon接受查詢時證實，警員以國安法為由作搜查，他認為警方是嘗試切斷黎智英支持《蘋果日報》的資金。
+
+黎智英在開庭前接受訪問時，批評警方在取走證物前，沒有律師在場，直言這已不是法治。
+
+<figure>
+<img src="https://web.archive.org/web/20210804194303im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/六四31周年-黎智英-20201015143716_181a_large.jpg" alt="">
+<figcaption>兩案26名被告包括黎智英，今天下午再於西九龍裁判法院提堂。邢穎琦攝</figcaption>
+</figure>
+
+今年六四集會首次被警方發出不反對通知書，26名民主派人士包括支聯會主席李卓人及多名常委、壹傳媒集團創辦人黎智英等到銅鑼灣維園舉起燭光焯念，事後被警方拘捕及控以煽惑他人參與未經批准集結罪，或涉嫌明知而參與未經批准集結罪。兩案26名被告包括黎智英，今天下午再於西九龍裁判法院提堂。
+
+警方在開庭前夕的早上，有多名探員突然手持搜查令，到黎智英位於觀塘的辦公室，取走一批文件。黎智英助手Mark Simon接受查詢時證實，來自商業罪案調查科的警員，取走大約三箱文件，但該處本身是黎智英的其他私人公司，與《蘋果日報》完全無關。
+
+Mark Simon在Twitter又表示，警方一度表示會等律師來到，但最終警方在律師到達前，直接取走文件然後離開，未有拘捕任何人。他批評，警方嘗試切斷黎智英支持《蘋果日報》的資金。據報道，有關公司名為「力高顧問有限公司」，被指為其他公司提供「公司秘書」服務。
+
+下午二時許，黎智英就六四集會案到達西九龍裁判法院應訊，在法院外有記者問到警方今次行動是否政治打壓，黎直言不清楚，只稱：「我真係唔知，佢乜嘢都盡量搵來告我。」有外國記者問及香港是否還有法治，黎智英帶點激動回應，不知還有甚麼可說，因警方並沒等待律師到場便進行搜查，直言「這不是法治」（What can I say. The police didn’t even wait for the lawyers to come. That’s not rule of law）。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210804194303/https://www.hkcnews.com/aboutus/#subscribe)

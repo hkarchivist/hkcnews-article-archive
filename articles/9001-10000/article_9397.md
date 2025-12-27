@@ -1,0 +1,75 @@
+---
+title: "魚菜共生初探——一種從遠古而來的耕種新技術"
+date: "2018-01-11"
+last_updated: "2018-01-11 11:14:56"
+author: "孫樹坤"
+category: "眾說"
+tags:
+  - "食物安全"
+  - "魚菜共生"
+url: "https://web.archive.org/web/20211206174924/https://hkcnews.com/article/9397/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-9399/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/9397/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-9399/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 魚菜共生初探——一種從遠古而來的耕種新技術
+
+「魚菜共生」（Aquaponics）對許多香港人來說都是個新鮮的課題，但其實在公元1000年的馬雅文化中便見到它的蹤影。
+
+<figure>
+<img src="https://web.archive.org/web/20211206174924im_/https://hkcnews.com/news_新聞/hk-discuss/2018/01/魚菜共生-食物安全-20180111095544_1f4f_large.png" alt="">
+<figcaption>馬雅人在湖中以浮筏來種植農作物便是魚菜共生的雛型。</figcaption>
+</figure>
+
+打從70年代開始，美國學者便開始研究魚菜共生在農業上的應用，到了1997年大型的商業魚菜共生系統才正式面世，從這個角度來看它還可以算是一件新生事物。簡單地說，魚菜共生就是將養魚的水拿來種菜。大家可以從以下在我家後院的錄像中更具體地認識魚菜共生約莫是甚麼模樣。
+
+
+{{< video src="https://web.archive.org/web/20211206174924if_/https://www.youtube.com/embed/GFo0VY1zpfM" >}}
+
+
+### 魚菜共生和你有甚麼關係
+
+無論你是甚麼人總得要吃東西，但可惜的是食物安全今天已經成為了我們的夢魘，而魚菜共生可能就是我們重奪食物安全的一個契機。魚菜共生就是在一個閉環（Close-loop）的環境中養魚和種菜，透過水泵和管道在魚池和種植槽之間形成一個水循環來，利用益新菌來將魚水降解成植物可吸收的養分，它便能為人類提供魚和蔬果，即蛋白質和炭水化合物，毋須施加任何化肥、農藥，只需要傳統農業和養殖業約十分之一的用水，而且又不會向環境排放任何污水或廢料。簡而言之，利用魚菜共生技術，食物安全和環境保護都同時兼得。
+
+### 魚菜共生適合誰
+
+香港目前缺乏可耕的農地，但魚菜共生不需要肥沃的泥土，可以在任何空間進行，家中的陽台、後院、天台，以至社區中的一些閒置土地或建築物，通通可以拿來進行魚菜共生。我家後院一個四平方米的系統在冬季已可生產出足夠我俩口子食用的沙律菜，即摘即食既新鮮又低炭，因此魚菜共生適合每一個愛護自己和環境的人。
+
+<figure>
+<img src="https://web.archive.org/web/20211206174924im_/https://hkcnews.com/news_新聞/hk-discuss/2018/01/魚菜共生-食物安全-20180111095519_d5f6_large.png" alt="">
+<figcaption>後院的水耕槽在冬天盛產沙律菜，長割長有。</figcaption>
+</figure>
+
+### 食物安全－誰成了犧牲品
+
+相信許多人都忘記了，香港曾經是一個漁業重鎮，漁穫多到可以出口到鄰近國家，但今天我們所吃的海鮮不少都是從外國入口。我在美國威斯康辛州學習魚菜共生技術時，看見到處都是大片棄耕的農田，當地人告訴我這就是一直濫用化肥農藥來催谷產能而種下的惡果，結果就連地下水源都被染污了。無論是漁業、農業或其它的食物生產方法，我們都是在竭水而漁，它們的可持續性基本上是零，對環境的傷害卻是難以逆轉的。而整個食物工業為了提高產能、為了延長保質期、為了節省成本、為了方便運輸、為了增強食品的賣相、為了提升可口度⋯ 最終我們的食物安全都成為了犧牲品，但更準確地來說：「你便是犧牲品」。
+
+### 魚菜共生可行嗎？
+
+要解決食物安全問題，魚菜共生的產能是否足夠地高便成了一個關鍵性的因素。我在美國學習時對它的產能也是將信將疑，但後來一名和我在班上比較投契的同學Richard Tyler回到家鄉俄克拉何馬州，開設了一個名為 [NOAH的魚菜共生農場](https://web.archive.org/web/20211206174924/https://www.facebook.com/pg/Native-Oklahoma-Aquaponic-Harvest-NOAH-413028925553631/photos/?ref=page_internal) ，就讓我透過面書對魚菜共生的產能有更深入的認識。
+
+<figure>
+<img src="https://web.archive.org/web/20211206174924im_/https://hkcnews.com/news_新聞/hk-discuss/2018/01/魚菜共生-食物安全-美國-20180111102225_229c_large.jpg" alt="">
+<figcaption>照片來源：NOAH魚菜共生農場Facebook</figcaption>
+</figure>
+
+### 九十多歲的魚菜農夫
+
+到今天我已不再懷疑魚菜共生的可行性，但令我感到興奮倒是原來它很適合長者參與，目前我設在大澳的魚菜共生實驗農場，便是由八名年齡介乎八、九十歲的婆婆義工負責打理，這個有趣的社區實驗，我會另文和大家詳細交待。
+
+***筆者歡迎各位讀者電郵聯絡，電郵見文末專欄簡介***
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211206174924/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 孫樹坤](https://web.archive.org/web/20211206174924im_/https://hkcnews.com/uploads/avatars/5eb448a0-9daf-4890-bfef-85606a93c141.png?126752584)
+
+**博客 | 孫樹坤**
+
+【孫樹坤・木又寸】「木又寸」！？這是簡體字中的「樹」字，這種寫法早出自唐朝醉僧懷素之手，字形既生動活潑又包含了樹的本質，而且還有點「寸」。我的名字當中便有一個樹字，我的專欄便以它為名。我有二十多年攝影記者的工作經驗，2006年退下火線，目前在香港浸會大學碩士課程兼職教新聞攝影，和在香港科技大學兼職教攝影創作，另外我是香港國際攝影節的執委，和一個魚菜共生(Aquaponics)農場的場主，因此，這個專欄會以攝影和魚菜共生作為主打。歡迎聯絡：[email protected]

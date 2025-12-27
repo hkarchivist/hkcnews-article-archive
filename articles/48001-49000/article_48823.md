@@ -1,0 +1,43 @@
+---
+title: "【煽動六四集結案】辯方違憲挑戰遭駁回　官指公共衞生屬公眾安全因素　法庭毋須考慮警方禁集會理據"
+date: "2021-12-09"
+last_updated: "2021-12-09 20:03:55"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "煽惑六四集會"
+url: "https://web.archive.org/web/20220516175353/https://www.hkcnews.com/article/48823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48823/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48862/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽動六四集結案】辯方違憲挑戰遭駁回　官指公共衞生屬公眾安全因素　法庭毋須考慮警方禁集會理據
+
+警方去年以疫情為由禁止維園六四集會，黎智英、鄒幸彤及何桂藍被控當日組織及參與未經批准集結受審，今（9日）被裁定全數罪名成立。三人挑戰警方禁止集會的合憲性，法官胡雅文指終院已裁定條例合憲，法庭毋須考慮警方的決定理據，被告亦無權藉審訊提出挑戰。法官不同意警方審批集會時不可考慮「公共衛生」，認為公共衛生亦屬「公共安全」因素，裁定三人挑戰失敗。
+
+三名被告黎智英、鄒幸彤及何桂藍於審訊中提出憲制挑戰，指《公安條例》第17A（3）條在系統及執行層面不相稱地（systemic and operational disproportionate）限制他們享有的集會言論等自由。
+
+相關文章   
+ **[法官指黎智英現身記者會召集支持](https://web.archive.org/web/20220516175353/https://bit.ly/3pItILM)**   
+ [**法官斥鄒幸彤何桂藍一派胡言**](https://web.archive.org/web/20220516175353/https://bit.ly/3yb08T5)
+
+<figure>
+<img src="https://web.archive.org/web/20220516175353im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/胡雅文-六四集會案-20211209200056_1237_large.png" alt="">
+</figure>
+
+### 受制終院梁國雄案　直接裁定控罪本身合憲
+
+所有被告均認為，對參與未經授權的和平集會施加刑責，會不合比例地限制集會自由的權利。黎智英一方指，條例最高判處5年監禁，刑罰過重，會對行使集會權利的人產生寒蟬效應。不過法官指出，法庭受制於終審法院在2005年梁國雄案的裁決，本案無權再就控罪是否違憲作裁定，故直接裁定控罪本身合憲。
+
+鄒幸彤質疑，公共衛生不屬《公安條例》提及的「公眾安全」，警務處處長以公共衛生為由禁止當日集會活動，既不符合法律規定，亦不合乎比例，屬越權及違憲。
+
+法官駁回鄒的說法，指疫情雖然有別於暴力破壞之類，但也是對公共安全和公共秩序的一種威脅；警務處處長考慮疫情下市民享有的權利和自由的同時，亦要考慮公眾安全，警方諮詢衛生部門意見做法明智，若處長忽視衛生部門建議則屬疏忽。
+
+### 欲挑戰警方禁集會理據　可訴諸上訴委員會或提司法覆核
+
+就執行層面，辯方認為警方不必要地禁止公眾集會，是不合比例地蠶食集會自由及權利，因案發時疫情並不嚴重，確診個案減少，警方應提出建議，使被告能行使憲法權利，舉行和平集會。鄒更質疑，警方禁止集會及其後的拘捕和起訴，均帶有政治動機，目的為消除反對聲音和反對派領袖，打壓六四記憶。
+
+法官認為衞生署的意見非常明確，她同意衞生署感染控制處主任說法，指自2020年4月起，新冠肺炎病例數量有所減少，但代表港人可以遠離疫情，若在維園舉行5萬至10萬人的公眾集會，即使採取所有可能的預防措施，仍會對公共健康構成威脅。
+
+法官另同意控方指，警方禁止公眾集會的理由是否成立，及疫情是否能作為禁止集會理據，不論在控罪本身或執行層面上，辯方均無權提出合憲挑戰，因為根據《公安條例》第17A(3)條，這些均非控罪的基本要素，法庭不用考慮。被告如要挑戰警方禁止集會的決定理據，應分別訴諸處理集會申請的「上訴委員會」或申請司法覆核，而非本審訊可處理。
+
+案件編號：DCCC857-875、877-884、886-889、891、893/2020

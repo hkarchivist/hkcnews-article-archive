@@ -1,0 +1,78 @@
+---
+title: "空少無打針即被炒　患蠶豆症無醫生證明不宜打針"
+date: "2021-09-10"
+last_updated: "2021-09-11 12:17:56"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "快運航空"
+  - "hongkongexpress"
+  - "express airlines"
+  - "hong kong express airline"
+  - "hong kong express airways"
+  - "香港 快運 航空"
+  - "香港快運"
+  - "香港快運航空"
+  - "疫苗"
+  - "谷針"
+url: "https://web.archive.org/web/20211203015830/https://www.hkcnews.com/article/45308/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45308/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 空少無打針即被炒　患蠶豆症無醫生證明不宜打針
+
+政府屢次變招「谷針」，一些私人企業亦都緊隨。 [據報](https://web.archive.org/web/20211203015830/https://www.scmp.com/news/hong-kong/transport/article/3147249/coronavirus-hong-kongs-cathay-pacific-initiates) ，國泰於本月初因未有接種疫苗而解僱60至80名職員。眾新聞接觸到其中一位被解僱的陳先生，他在國泰子公司香港快運（Hong Kong Express）任職空中服務員3年多，因為自己有蠶豆症，加上身邊都有兩位朋友接種疫苗後兩個月死亡、一位親人入院。他因而不願接種，但又未能取得醫療豁免證明，結果於9月3日遭到即時解僱。
+
+他憶述昨天執拾制服交還公司時流露不捨：「我媽咪都問我係咪好唔捨得，其實都真係會唔捨得嘅，始終我大大話話差唔多做咗呢行8年。……我覺得唔合理嗰樣嘢，我有俾counter offer，我有諗你立場，不如no pay，你不但無接納都算，你係ignore咗。」
+
+
+{{< video src="https://web.archive.org/web/20211203015830if_/https://www.youtube.com/embed/woWTUwbFi-Q" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20211203015830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/空少-香港%20快運%20航空-空中服務員-20210910191351_1739_large.png" alt="">
+<figcaption>在香港快運任職空少3年多的陳先生，但因未有接種疫苗及沒有醫生紙證明，今個月初被解僱。陳暋柟攝</figcaption>
+</figure>
+
+現年30多歲的陳先生，先後任職兩間航空公司，在香港快運工作了3年多。今年6月下旬接獲公司通知，要求於8月31日或之前完成接種兩劑疫苗，否則須提供醫療證明不適合接種。「公司之前都好客氣，就optional形式，但最後佢就話因為政府規定，在禁區嘅員工都要打齊兩針。」
+
+陳先生患有蠶豆症，不能接觸金銀花、蠶豆、樟腦等，會有機會出現溶血的危險。他於7月向家庭醫生查詢，希望可以提供醫學豁免證明書，但醫生指無數據證實蠶豆症患者，接種疫苗後會有副作用，「佢話其實在藥廠嘅副作用名單都無特別強調呢樣嘢，但係我又覺得奇怪， [政府叫人打針嘅網list出來](https://web.archive.org/web/20211203015830/https://www.covidvaccine.gov.hk/zh-HK/faq) 話蠶豆症呢樣嘢無數據（證明安全性及有效性數據）。咁我就好confused，你既然無數據，你個decision係點樣make？我會有質疑。」
+
+陳先生未能取得醫學豁免證明書，於是向公司解釋情況，查詢有甚麼可做。公司稱明白他的憂慮，建議他找公司保險名單內的醫生再諮詢。陳先生最後決定不這樣做，認為家庭醫生了解他的病歷、為他診症已10年，都不願發出證明書，更不要說是公司保險網絡的醫生。
+
+8月初，陳先生提出替代方案。他建議，參照國泰無薪假的計劃，放無薪假至明年3月，又或是繼續以底薪做後勤工作，減少與人接觸的機會，惟不獲公司回覆。直至9月3日，陳先生收到公司電郵，即時解僱。
+
+<figure>
+<img src="https://web.archive.org/web/20211203015830im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/快運航空-疫苗-20210910190726_139a_large.jpg" alt="">
+<figcaption>在接種限期過後三日，陳先生收到即時解僱信。受訪者提供</figcaption>
+</figure>
+
+現時沒有數據證明蠶豆症患者接種疫苗與副作用有關，但並不代表不能接種？陳先生回應說，蠶豆症不是唯一考量。他指， [眾新聞早前報導](https://web.archive.org/web/20211203015830/https://www.hkcnews.com/article/44455/%E7%96%AB%E8%8B%97-%E5%BE%A9%E5%BF%85%E6%B3%B0-%E6%AD%BB%E4%BA%A1-44459/%E3%80%90%E5%AE%B6%E5%B1%AC%E7%94%B3%E8%A8%B4%E3%80%9135%E6%AD%B2%E7%94%B7%E5%AD%90%E7%96%AB%E8%8B%97%E6%B3%A8%E5%B0%84%E5%BE%8C%E5%85%A9%E5%80%8B%E6%9C%88%E4%BA%A1-%E9%86%AB%E8%AD%B7%E6%8C%87%E5%B7%B2%E9%81%8E14%E6%97%A5-%E4%B8%8D%E9%80%9A%E5%A0%B1%E3%80%81%E6%8B%92%E7%99%BC%E5%9A%B4%E9%87%8D%E4%BA%8B%E6%95%85%E8%AD%89%E6%98%8E) 的35歲男子在針後兩個月死亡，死者妹妹是他的朋友；他的一個親人亦都在接種兩日後突然血壓飈升入院，上壓達到190；還有一個醫護朋友的同事，年僅41歲，接種疫苗約兩個月後去世。
+
+他直言：「一個正常人，有親人有咁嘅情況發生，你都唔會冒呢個風險。始終因為你無數據證明係安全，而我有啲親戚血統好相似嘅時候，會唔會我嘅風險仲大過其他人呢？」
+
+他又認為接種疫苗與否是個人選擇。他引用香港人權法案說：「有啲學者都講過，而家因為疫苗都係臨時性質，如果有啲唔confirm安全又逼人去做試驗嘅，係有違人權。澳洲都有人反對強制打疫苗。」法案條例第三條指：「非經本人自願同意，尤不得對任何人作醫學或科學試驗」，陳先生認為疫苗只不過是緊急使用，屬試驗性質。
+
+「咁多種種原因之下，我決定唔打針，我都覺得非常之人之常情。當然係personal will，你睇到數據令到你好放心去打，呢個係你嘅取向，而我睇完之後，包括打完之後都會傳播、打嘅風險同我本身自己周遭發生嘅事，我最後make呢個decision，我都應該唔會後悔，遺憾地公司做咗咁嘅抉擇，合情嘅，不過我覺得唔合理。」陳先生說。
+
+他表示會到平機會投訴，「正如譽宴嗰單都有落到，多一個人頭可能多少少壓力，我都會去做埋。但在體制內有無用呢？我就不存寄望。」他今早還到了勞工處查詢，職員解釋指「不當解僱」應該不易成立，但由於疫情期間工資維持只有底薪，而公司的代通知金為過去12個月的平均月薪，他會嘗試爭取正常水平的工資。
+
+譽宴集團早前發通知，要求員工於6月下旬前接種疫苗，否則「停工」。平機會主席朱敏健指有機會違反《殘疾歧視條例》；平機會稱，要求所有員工接種疫苗，否則將被解僱，對不適合接種疫苗的人士或構成較大的負面影響，構成間接歧視。
+
+香港快運回覆眾新聞查詢時表示，正個別跟進處理少數個案，又指未能符合疫苗接種要求的機組人員個案，大部分提供了醫療理據，或正在長期休假。國泰則重申「我們決定解僱少數機組人員。他們選擇不接種任何一種新冠疫苗，亦沒有提交因醫療原因的豁免證明。」未有提供具體解僱人數。
+
+醫學會副主席、家庭醫生鄭志文表示，「蠶豆症未有醫生數據證明（與副作用）有關，一般唔會因而寫醫生證明。」他又透露，隨著政府收緊接種要求，多了市民要求寫醫生證明，「基本上日日都有」，但近半年來他只簽發的證明不超過10張。
+
+鄭志文指，兩類情況下會簽發醫生證明：一、對疫苗成份有敏感，例如對PEG（聚乙二醇）敏感的不能接種復必泰，又或過往接種疫苗後有嚴重反應的；二、病情不穩的，例如糖尿「高到爆燈」、心臟三條血管閉塞正等候通波仔的，他指這類情況發出的醫生證明應列明時限，譬如說三個月後再評估。
+
+政府在疫苗接種專頁提供的資訊指，目前並無關於蠶豆症人士接種的安全性及有效性數據，藥廠方面亦無提及蠶豆症為禁忌症或相關注意事項，建議患者如對是否適合接種疫苗有疑問，應向醫護人員查詢。
+
+政府帶頭「谷針」，要求公務員接種疫苗或自費在工餘時間定期檢測。公務員事務局長聶德權昨天稱「政策本身係應該推行嘅」，並形容是有需要的、合情合理。勞工處則回覆指，僱主應顧及不適合接種新冠疫苗者的需要，考慮為他們作出其他合適的工作安排，呼籲僱主與僱員坦誠溝通。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203015830/https://www.hkcnews.com/aboutus/#subscribe)

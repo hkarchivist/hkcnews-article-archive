@@ -1,0 +1,80 @@
+---
+title: "寫在餐飲業仍可呼喊的年代"
+date: "2021-05-27"
+last_updated: "2021-05-28 14:26:39"
+author: "專業和你傾"
+category: "眾說"
+tags:
+  - "黃色經濟圈"
+  - "飲食業"
+  - "新冠肺炎"
+url: "https://web.archive.org/web/20210801171246/https://www.hkcnews.com/article/41692/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41692/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 寫在餐飲業仍可呼喊的年代
+
+<figure>
+<img src="https://web.archive.org/web/20210801171246im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/專業和你傾-飲食業-20210527113754_cdf6_large.png" alt="">
+</figure>
+
+【撰文：飲食業公司負責人Mansfield】
+
+好食是良知──看似是餐飲業的基本法則，惟在香港又不是那回事，成本、效益於香港餐飲業經營者的盤算更為重要，至於食物出品，能吃得落肚、正正常常、不太差的就是了；用最好的食材加上廚師的心神，製作出的食物有足夠的客人願意支付相應的高價嗎？這是很多老闆的心聲。食店的經營和成本等逸事，筆者日後有機會才與大家分享，今首執筆抒發身為餐飲業負責人從2019年至今的體會和感受。
+
+反修例引發社會運動的前幾年，本港各式餐飲店百花齊放，業界不但爭着吸引食客，還要搶聘員工，競爭相當激烈。 **7.21元朗事件是觸發普羅市民對於社會運動情感的轉捩點，牽動社會各界的立場分歧甚至對壘，引伸為消費表態** ；新冠肺炎大流行也結構性改變了市民的消費行為，不但掀起餐飲業汰弱留強的風潮，亦因緣際會讓業界老闆們認知「消費者行為」（Customer Behaviour）的重要，相當高比例的香港市民將社會立場投射於消費，就是所謂的「黃藍經濟圈」。
+
+<figure>
+<img src="https://web.archive.org/web/20210801171246im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/藍瓶咖啡Blue%20Bottle%20Coffee-排隊-20200507165542_2248_large.jpg" alt="">
+<figcaption>市民消費形成「黃藍經濟圈」，不少顧客因政治立場到店舖消費。</figcaption>
+</figure>
+
+### 市民將社會立場投射於消費
+
+跟大部分「港豬」一樣，筆者於2019年社會運動浪潮中被感動、覺醒、啟發，認同沈旭暉在元朗事件翌日撰文所說，大概意思是「7.21之後，香港再沒有中間派」，很多人「出櫃」表達了自己對社會事件的立場或看法。生意人多數對社會的非經濟議題不聞不問，本着事不關己己不勞心的心態，惟經歷過香港多場波瀾壯闊的合法遊行，以及個別具爭議性的重要事件，抱持普世價值（universal value）的我們都出櫃了，怎會不動容？怎不擔憂我們成長的家？
+
+覺醒之後，我們公司開始更多關心社區，盡綿力支援有需要的香港人，透過捐錢捐物資予一些慈善機構或非政府組織，幫助基層市民和向一些因社會運動受影響的香港人提供法律支援，因為我們相信這是每位公民應獲得的社會保障。
+
+<figure>
+<img src="https://web.archive.org/web/20210801171246im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/第三波疫情爆發-禁堂食-食肆-20200730022357_28fe_large.jpg" alt="">
+<figcaption>新冠肺炎對飲食業有重大的影響。</figcaption>
+</figure>
+
+2020年1月底，新冠肺炎開始在香港社區爆發，未等政府公佈措施，我們公司已主動在各店開始加強員工防疫衛生工作，食客也理解和配合。同事建議煲潤肺茶湯送給街坊和食客飲用，其後更贈予奮力抗疫的醫護人員；2月份市面開始出現非理性搶購物資潮，公司辦公室同事利用自己工餘時間將各店恆常採購的白米、廁紙、衛生手套、消毒酒精等等物資，分成小包以成本價轉讓給街坊應急，並主動聯絡一些社福機構和學校，將所需物資贈給他們使用。身為老闆之一的我，為這班同事感到非常自豪，也一直支持着他們──每當公司虧損不夠營運資金時注資、課金支援他們的善行、親自參與大夥兒的義務工作，最重要是給予同事一定程度的自主權，包括予「小編」在社交平台發佈帖子的編輯自主。
+
+### 「消費者行為」力量強大
+
+筆者公司的食店曾被人在Facebook傳為藍店，其後被「黃色經濟圈」認證為黃店，我們沒有在店內張貼文宣，也未曾呼喊任何激烈口號，只讓大眾知悉我們的理念、立場，以及做了甚麼實事，黃或藍只是表面的字，公司從沒自己界定，卻衷心感謝一群認同 **我們抱持普世價值的香港人對小店的消費支持，使我們公司捱過這兩年的經營困境，就算須關閉部份店，全公司也毋須裁減一名員工，全部留任的同事都未曾需要減薪，足見「消費者行為」力量的強大** ，還有餘力授權小店幫助香港人，感恩。
+
+<figure>
+<img src="https://web.archive.org/web/20210801171246im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/食肆-新冠肺炎-防疫衛生工作-20210526184941_1b18_large.jpg" alt="">
+<figcaption>作者經營的食店加強員工防疫衛生工作。</figcaption>
+</figure>
+
+偶爾遭受親建制人士透過電話和網絡言語攻擊的同時，部分「深黃」人士覺得我們店不夠黃，甚至常以我們店曾接受某大電視台專訪來質疑我們。筆者公司內的員工抱持不同政見和社會立場，公司管理層從不干涉或嘗試改變他們的想法，更不會因政見而在工作上有親疏之別，因為公司是社會的縮影，我們崇尚自由和人權，更要懂得包容和共融；客人來自十方各眾，我們從不拒絕議員、公務員、警察及其家屬到店惠顧，至於進不進來是客人的自由。至今仍來惠顧我們的熟客還保持着廣闊的政治光譜，大部分是黃人，也有淺藍至極紅的食客，政見明顯不同的他們偶爾在小店內相遇，也未曾擦出昔日在立法會內的火花。
+
+過往兩年店內同事多了機會與「泛黃」客人傾談和互動，令大家多了互相了解，一些「黃客」漸漸包容小店的保守派職員，店內部分員工也逐漸「改藍歸黃」，這是公司和我樂見的正面改變，亦證明了良知和普世價值能駕馭政見分歧。經歷過這兩年的風風雨雨，社區多了互助，鄰里關係比以前緊密，我們確定自己不是只顧賺錢、人情冷寞、互不關心的香港人。
+
+### 一如既往做尋常事
+
+近月我們看見社會上的種種事情，無不唏噓，似乎須重新適應管治、規條、溝通方式，甚至是陌生而嶄新的價值觀，不禁問「這兒還是和而不同的香港嗎？」筆者敢講自己愛國愛港，從未改變也不會改變，但是處於近來批鬥、上綱上線、扣帽子的社會氣候當中，怎不會窒息和氣餒。雖然到目前為止公司各店未曾遭受過政府特別招待，但是在現今的香港，筆者與大部份香港人一樣，怎會不懼怕！？很佩服湯家驊說得出「行得正、企得正、都應該無所畏懼」，如果這是他的由衷心底話。我們一如既往做尋常的事，以前不覺有何特別，現在做平常事卻會感動旁人，卻也可能是「法律不容許的」，將來會演變成怎樣，實在不敢想像。如果華人社會的傳統觀念──改過自新、浪子回頭金不換的觀念仍在，我們去憐憫和幫助自己社會上有需要的人，還可以嗎？
+
+前路未明朗，筆者公司的食店只能營營役役，保着幾十名員工及其家人的生計、為食客繼續提供合理美味的餸菜、公司能賺些少利潤、還有能力回饋社區，祈求不誤墮法網，於願足矣。既然姜濤仍可公開呼喊，但願我也可繼續說香港加油！
+
+**作者簡介：** Mansfield，資深地產人、投資者、半途出家嘅餐飲人，現為飲食業公司負責人，不愛按傳統方法行事，支持創新，不求大富大貴，望能暢所欲言守住良知。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210801171246/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 專業和你傾](https://web.archive.org/web/20210801171246im_/https://www.hkcnews.com/uploads/avatars/88429582-e9f9-4fb6-aa3a-a559ac157714.png?1364096645)
+
+**博客 | 專業和你傾**
+
+【專業和你傾】十二個專業團體輪流執筆

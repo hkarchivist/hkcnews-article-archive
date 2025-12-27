@@ -1,0 +1,60 @@
+---
+title: "論愛國心"
+date: "2019-09-14"
+last_updated: "2019-09-17 00:33:28"
+author: "關祥文"
+category: "眾說"
+tags:
+  - "愛國愛港"
+  - "逃犯條例"
+  - "願榮光歸香港"
+url: "https://web.archive.org/web/20210919143407/https://www.hkcnews.com/article/23496/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23561/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/23496/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-23561/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 論愛國心
+
+**有人說：「最近漸漸發現，在海外尤其北美洲，極度愛國的華人不限於新移民，連香港人亦都係咁愛國！其實真係一種世紀怪病，祇限於華人圈流傳。」**
+
+有人回應是五毛製造的假象，不要信。
+
+我就認為愛國愛民族好普通之嘛，人之常情，但支持不義的政府，愛殘待國民的官，就未盡愛國者之責，支持之，更是背叛人民。愛國者的責任是不讓政府遺害國家人民。
+
+<figure>
+<img src="https://web.archive.org/web/20210919143407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/09/時代廣場-願榮光歸香港-五大訴求-20190914114801_29a9_large.jpg" alt="">
+<figcaption>9.12數百市民齊集銅鑼灣時代廣場，高唱香港之歌《願榮光歸香港》，爭取落實五大訴求，缺一不可。美聯社</figcaption>
+</figure>
+
+**有人說：「這麼愛國，應該留在中國。」**
+
+話不是這樣說，要用同理心來理解，故鄉情是正常的，故鄉無啖好食，外出發展也正常，人望高處嘛。
+
+愛故鄉、愛國、念舊、感恩是好情操，但得情理兼顧，做人需講理。香港幾十年來流傳很廣的話 : 幫理不幫親。文明社會崇尚道理、公道，但中國普遍偏幫親，不大理會是否合道理，幫親不幫理，用人又是唯親。形成互相維護利益，蜕變成功利主義，不再是單純的崇高的理念了。
+
+較高一個層面看，政府管理影響廣大，國民不看全面，只顧維護一國穩固，保護到一己小圈子安穩就好了，中國人民族性代代相傳自私的基因。
+
+難明？舉例：水質污染；樹木過度砍伐，河流兩岸沙土流失，河床淤塞，導致洪水氾濫；毒霧霾；各級官員貪污等，都跟政府是否有心管治有關，要理性看。如愛國便不理，實際上害國害民。
+
+當然，在極權統治下，人民難以發揮力量，在台灣、香港法治之地就不同，人民愛國愛地方，也可提出理據，反對政府施政，這正是愛國愛地方的具體落實，因為國家的主體是人民，國家建構是為人民，不是人民為管治階層。
+
+愛國，體現在愛人民。案例，所以台灣法院判太陽花學運中佔領立法院者無罪釋放，套句聖經說法：國家是為人民而設的，而不是人民為國家而設的。以愛國來轄制人，不講道理，不理崇高原則，是不足取的，如此的國度，永不能與文明世界接軌。
+
+本人原是左派，老愛國（PRC），從來深願中華大地富强、文明，人民幸福愉快。誠心所願。
+
+P.S.：生於台灣長於台灣的台灣人愛台灣，香港人愛香港，就跟中國人愛中國一樣合理正常。香港人極力抗爭維護香港制度，正正體現著「愛國」精神，因為香港是香港人的故鄉。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919143407/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 關祥文](https://web.archive.org/web/20210919143407im_/https://www.hkcnews.com/uploads/avatars/d0d93de4-0cae-4566-8f1e-693071346dc8.jpg?600543823)
+
+**博客 | 關祥文**
+
+【關祥文・八千里路雲和月】音樂老師，保安員。筆者學的是雜家；秉持忠，義，愛，恕，行義，盡性，助人；理性與感性並重 ; 敢愛敢恨，敢想敢做，從來是革新者、思想者。Passion Music關祥文音樂天地https://www.facebook.com/passionmusic82/

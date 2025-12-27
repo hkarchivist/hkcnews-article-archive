@@ -1,0 +1,75 @@
+---
+title: "賢學思政兩男一女涉串謀煽動顛覆國家政權　李桂華：開舖讓追隨者聚腳　輸送想法招攬團夥"
+date: "2021-09-20"
+last_updated: "2021-09-20 23:41:10"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "煽動顛覆國家政權罪"
+  - "王逸戰"
+  - "賢學思政"
+url: "https://web.archive.org/web/20211023021057/https://hkcnews.com/article/45629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45629/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45646/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 賢學思政兩男一女涉串謀煽動顛覆國家政權　李桂華：開舖讓追隨者聚腳　輸送想法招攬團夥
+
+**警方國安處以串謀煽動顛覆國家政權罪，拘捕賢學思政兩男一女，包括召集人王逸戰、秘書長陳枳森、前發言人朱慧盈，年齡介乎18至20歲，為中學生及大專生。**
+
+**國安處高級警司李桂華列舉三個例子，指賢學思政在疫情初期，呼籲市民不要用安心出行，填寫假訊息；形容「光復香港 時代革命」是民族信念，要有裝備心態，全民抗爭；又說要對準港共政權和中共政權。李指，賢學思政最近「變本加厲」，在旺角開設小買賣的地方，讓追隨者有聚腳點，提供機會輸送想法，亦有系統地為在囚人士提供物資，表明會全力調查資金來源。**
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-20210920171032_e07c_large.jpg" alt="">
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-20210920171053_7015_large.jpg" alt="">
+<figcaption>旺角好景商業中心賢學思政開設的「不二」店舖，被警方爆門而入，門口被鑿開一個大窿。張凱傑攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-20210920171112_2af1_large.jpg" alt="">
+<figcaption>「不二」店舖被警方爆門後，門鎖跌在地上。張凱傑攝</figcaption>
+</figure>
+
+### 檢走支援在囚者物資　爆門搜旺角店舖
+
+賢學思政召集人王逸戰今早被捕後，被警方押返葵涌貨倉及旺角商廈蒐證，再返回東涌住所搜屋。警方先在葵涌華星工業大廈的貨倉檢走40多箱物品，大部分為支援在囚人士的物資，如M&M's朱古力、魷魚絲等；其後再在旺角好景商業中心「不二」店舖，爆門而入檢走iPad和明信片等。「不二」為賢學思政開業僅僅一個星期多的社區空間，設有漂書、在囚人士寄賣物品等，被警方爆門而入後，門口被鑿開一個大窿，門鎖跌在地上。
+
+國安處高級警司李桂華下午在記者會交代案情，確認拘捕賢學思政兩男一女，年齡介乎18至20歲的中學生及大專生，涉嫌違反國安法23條串謀煽動顛覆國家政權罪，檢走街站物資、刊物、電腦、可輸入懲教的物品等。他指，賢學思政在去年5月成立，曾發起擺設41次街站，涉嫌發放煽動仇恨政府的內容。
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/王逸戰-賢學思政-20210920222727_167f_large.jpg" alt="">
+<figcaption>賢學思政召集人王逸戰今早被捕後，被警方押返葵涌貨倉及旺角商廈蒐證。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-李桂華-20210920171023_1b74_large.jpg" alt="">
+<figcaption>國安處高級警司李桂華下午在記者會交代案情。伍銘熙攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-20210920171036_6958_large.jpg" alt="">
+<figcaption>警方在搜查賢學思政期間，檢走M&M's朱古力、魷魚絲等物品。伍銘熙攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211023021057im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/賢學思政-20210920171041_bbd7_large.jpg" alt="">
+<figcaption>被檢走的物品亦包括潤膚膏、沐浴露及爽身粉等。伍銘熙攝</figcaption>
+</figure>
+
+### 稱開設商舖是「策略」　提供機會輸送想法招攬團夥
+
+他舉例指，賢學思政在疫情初期，呼籲市民不要用安心出行，填寫假訊息破壞制度；形容光復香港時代革命是民族信念、不只口號，下一次可能是戰爭和革命，要有裝備心態，並呼籲習武準備全民抗爭；又說要對準港共和中共政權，涉嫌顛覆政權。李桂華說，這三次都是在國安法之後發生，「所以更加覺得是故意違反國安法」。
+
+他指，賢學思政最近「變本加厲」、有實質行動，包括在旺角開設有小買賣的地方，讓追隨者有個聚腳點，亦有系統地為在囚人士提供物資。他稱保安局局長及懲教署署長說過，物資對在囚人士很有用，可招攬獄中追隨者。
+
+被問到協助在囚人士有何問題？李桂華說協助沒有問題，但如果意圖是招攬追隨者就有問題。至於在旺角開設商舖，他就形容為是一個「策略」，提供機會輸送想法，招攬志同道合的人，再加入團夥。他強調上到法庭只要證明有煽動成分已足夠，不用證明有人被煽惑，並會全力調查資金來源。至於市民協助籌集相關物資是否犯法，李桂華稱，「香港的法律包括國安法，有兩個最容易見到的，第一是行為，第二是意圖，若意圖是危害國家安全的，當然有問題，若不是的話，大家亦不需要過份擔心」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211023021057/https://hkcnews.com/aboutus/#subscribe)

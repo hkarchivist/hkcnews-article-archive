@@ -1,0 +1,52 @@
+---
+title: "【方仲賢買雷射筆案】拒批控方將學生會FB帖文呈堂　官：「因反政府故想買雷射筆傷害警察」是危險立論"
+date: "2021-12-13"
+last_updated: "2021-12-13 21:31:58"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "浸大學生會"
+  - "方仲賢"
+  - "公眾地方管有攻擊性武器"
+  - "雷射筆"
+url: "https://web.archive.org/web/20220519053403/https://hkcnews.com/article/49004/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49016/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDfb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49004/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49016/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDfb%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【方仲賢買雷射筆案】拒批控方將學生會FB帖文呈堂　官：「因反政府故想買雷射筆傷害警察」是危險立論
+
+時任香港浸會大學學生會會長方仲賢前年在深水埗購買10支雷射筆被捕，他否認藏武、拒捕及妨礙司法公正三罪，案件今午（13日）在區域法院續審。控方欲以浸大學生會資助示威者等Facebook帖文，推論方仲賢意圖將雷射筆用作攻擊性武器。惟法官游德康反駁指，帖文從未提及雷射筆，若控方指被告「因為反政府，所以反警察，所以必然想買雷射筆意圖傷害警察，呢個係好危險嘅（舉證）途徑」。法官認為允許呈堂對方仲賢造成的偏頗及風險，遠高於舉證價值，「必須拒諸門外」。
+
+<figure>
+<img src="https://web.archive.org/web/20220519053403im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/雷射筆-方仲賢-20211213184523_24ab_large.jpg" alt="">
+<figcaption>被告方仲賢。邢穎琦攝</figcaption>
+</figure>
+
+控方今申請 **[呈遞無綫電視的數段反修例示威片段](https://web.archive.org/web/20220519053403/https://bit.ly/3pKFGV6)** 、浸大學生會及方仲賢個人Facebook的帖文、方在事後記者會的發言，以及其手機通話記錄等作證據，供法庭推論方管有雷射筆的意圖是用作攻擊性武器。法官游德康今早拒批無綫新聞片呈堂，認為片段無助證明方的意圖，下午繼續處理其他證據的爭議。
+
+### 帖文造成的偏頗及風險遠高於舉證價值
+
+就浸大學生會的Facebook帖文，控方指內容大多圍繞2019年反修例示威，案發前數天更有帖文提及可透過學生會資助購買示威物資，可見方仲賢意圖將雷射筆用作攻擊，並因知悉帖文或會成為證供而重設手機，妨礙司法公正。
+
+辯方聽畢陳詞回應「我真係唔明」，重申學生會只發佈政治帖文，內容就連雷射筆也沒提及，遑論用雷射筆攻擊警員。
+
+游官細閱帖文後拒絕控方呈堂，指控方自己也同意不能以此證明被告有不良品格或犯罪傾向，而學生會雖有其政治立場，較同情示威者，甚至提供財政支援，但帖文從未提及使用雷射筆的資訊；若控方藉帖文指方仲賢「因為反政府，所以反警察，所以必然想買雷射筆意圖傷害警察，呢個係好危險嘅（舉證）途徑」。游官認為帖文對方造成的偏頗及風險，遠高於舉證價值，因此「必須拒諸門外」。
+
+<figure>
+<img src="https://web.archive.org/web/20220519053403im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/游德康-法官大人-20210915174007_62e9_large.jpg" alt="">
+<figcaption>法官游德康</figcaption>
+</figure>
+
+### 辯方：不是觀星也不等於藏武器
+
+此外，控方以方仲賢的個人Facebook帖文，推論他管有雷射筆並非用以觀星，而重設電話是為刪除相關資訊。游官聞言表示不解，指若不同裝置都能瀏覽該些帖文，即使方重設手機，亦無法銷毀內容。控方補充，帖文能證明方本來有Facebook，但手機卻沒有該應用程式，繼而推論他重設電話是意圖刪除與案相關資料。
+
+辯方同樣反對呈堂，強調法庭根本無從得知手機已流失的資料是甚麼，即使控方不同意雷射筆用作觀星，亦不等於方是管有攻擊性武器，「唔係觀星咪唔係觀星囉」。游官聽畢陳詞後，同樣以偏頗價值大於舉證價值為由拒絕呈堂。
+
+### 方仲賢受訪作部份招認　片段准呈堂
+
+另外，方仲賢在事後數天曾舉行的記者會及受訪，控方欲呈上相關片段作證，指方仲賢自願作出「混合性陳述」，即承認控罪部份內容，包括沒後悔購買雷射筆、向檔主要求購買藍光雷射筆、不知筆身輸出功率等。辯方同樣以與案無關為由反對，認為內容大多關於方的理念，呈堂只會對他造成很大偏見。
+
+游官翻看片段後，接納呈堂作證據，因為被告的確曾作與案相關的混合性陳述，包括並非模稜兩可的招認，以及有助開脫罪責的內容，即從來沒反抗警員、幫朋友買雷射筆觀星等。控辯雙方尚有數項有關證據的爭議留待明天處理。
+
+【案件編號：DCCC1119/2020】

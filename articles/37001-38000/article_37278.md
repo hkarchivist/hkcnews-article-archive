@@ -1,0 +1,48 @@
+---
+title: "14港人年約19至30歲　獲加拿大批出庇護　「先解決生活有餘力再為港爭民主」"
+date: "2021-01-15"
+last_updated: "2021-01-15 18:15:22"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "加拿大"
+  - "政治庇護"
+  - "流亡港人"
+url: "https://web.archive.org/web/20211027124720/https://hkcnews.com/article/37278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37280/14%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD19%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37280/14%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD19%EF%BF%BD%EF%BF%BD%EF%BF%BD30%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 14港人年約19至30歲　獲加拿大批出庇護　「先解決生活有餘力再為港爭民主」
+
+**支援流亡抗爭者、重心位於加拿大的「新香港文化協會」公布，加拿大難民公署批出14名流亡港人的難民身份，為至今因為2019年反送中運動，批出最多政治庇護給港人的國家。**
+
+**該協會回覆眾新聞時透露，獲批政治庇護的14名港人，年齡約19至30歲，大部分都是抗爭者，亦有警暴受害人。他們部分已在當地就業，亦有繼續升學，目前希望申請居民身份，融入加拿大社會，「先解決生活，有餘力必會為香港繼續爭取民主」。**
+
+<figure>
+<img src="https://web.archive.org/web/20211027124720im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/政治庇護-20210115173944_d9cc_large.png" alt="">
+<figcaption>14名港人獲加拿大批出政治庇護。</figcaption>
+</figure>
+
+由加國移民組成的「新香港文化協會」在2019年7月成立，提倡民主自治，維護港人身份，跟進香港局勢發展，在海外發起集會遊行聲援，亦支援流亡的前線抗爭者。協會指出，自2019年起協助超過40名流亡海外的手足，當中近30人選擇尋求加拿大協助，目前大部分人已獲得庇護申請人證明，即俗稱的「行街紙」及工作許可。
+
+其中14名經協會申請的手足，在2020年底開始，陸續獲得加拿大當局批出政治難民身份，目前正申請永久居留權。協會回覆眾新聞時透露，14人年齡約19至30歲，大部分都是抗爭者，亦有警暴受害人。
+
+自2019年反送中運動爆發後，加拿大為目前批出最多政治庇護給港人的國家。該14人由申請到獲批，整個過程需時約10個月至15個月，部分個案已在加國就業，自力更生，亦有人繼續升學完成因流亡而中斷的學位。他們希望申請居民身份，融入加拿大社會，先解決生活，有餘力再為香港繼續爭取民主。
+
+協會引述加拿大難民公署公佈，截至2019年底有12名港人在加拿大申請政治庇護，2020年1月至6月則有37人，共49人。協會估計，如果不是因為疫情，加國自2020年4月起實施旅遊限制，或會有過百人選擇流亡加拿大。
+
+### 料一兩個月內公佈　加國「年輕人才計劃」
+
+協會透露，因應香港政治環境日趨惡劣，加拿大政府將推出專為香港青年而設的「年輕人才計劃」（Canada Young Talent Scheme，YTS），申請詳情將於一兩個月內公佈。計劃亦是「香港監察」（Hong Kong Watch）倡議的救生艇項目之一。
+
+翻查加拿大移民、難民及公民部去年11月公布， [支援香港居民及在港加國人的移民計劃](https://web.archive.org/web/20211027124720/https://www.canada.ca/en/immigration-refugees-citizenship/news/2020/11/canada-announces-immigration-measures-supporting-hong-kong-residents-and-canadians-in-hong-kong.html) 時，提及推出2021至2023年移民等級計劃（Immigration Levels Plan），鼓勵香港畢業生及有工作經驗的人，選擇在加拿大升學、工作和安居。此項目是為了回應中國政府在香港實施國安法。
+
+針對青年而設的措施上，當局容許最近完成專上教育的香港居民，在加拿大申請開放工作簽證，有效期為三年。開放工作簽證讓香港居民，尤其是青少年能夠居住在加拿大累積工作經驗。當局亦會新設渠道，讓身在加拿大的香港居民符合資格後，申請永久居留加拿大。條件為基本語言能力、教育程度和一年在加拿大的工作經驗，有關申請將於2021年展開。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027124720/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,47 @@
+---
+title: "元旦放「釋放政治犯」氣球遭票控　曾健成認罪罰2,500元　李卓人不認罪9月再訊"
+date: "2021-08-03"
+last_updated: "2021-08-03 13:19:51"
+author: "實習記者陳綺琳"
+category: "眾聞"
+tags:
+  - "社民連"
+  - "李卓人"
+  - "曾健成"
+url: "https://web.archive.org/web/20211026014600/https://www.hkcnews.com/article/43947/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43950/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2500%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43947/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43950/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2500%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 元旦放「釋放政治犯」氣球遭票控　曾健成認罪罰2,500元　李卓人不認罪9月再訊
+
+支聯會主席、工黨副主席李卓人，和社民連成員曾健成（阿牛），被指於今年元旦在民陣舉行的汽車巡遊中，於添馬公園放飛氣球，氣球尾端掛上寫有「釋放政治犯」的橫額，涉嫌「在受管制空域放飛超過兩米的氣球」，違反《1995年飛航﹝香港﹞令》，李卓人另同時被控「阻差辦公」。兩人均被票控，案件今日在東區裁判法院提堂。李卓人不認罪，主任裁判官林希維將案押後至9月9日進行審前覆核；曾健成認罪，罰款港幣2500元。
+
+<figure>
+<img src="https://web.archive.org/web/20211026014600im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/李卓人-20210803123610_2100_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+今早9時，社民連和工黨成員到法院聲援2人，舉起橫額。逾25人到庭旁聽，開庭前有人揮手並呼叫「加油」。李卓人上庭時雖一直微微低頭，但說出「不認罪」三字仍鏗鏘有力。曾健成則身穿印有「公民革命」黑色上衣，開庭前於旁人聊天。離庭前旁聽公眾向李卓人高呼「撐到底」、「人哥我愛你」，李卓人舉起雙手揮手，並回應「掛住大家」，其後被懲教人員拉走。李卓人目前另因8.18、8.31及10.1未經批准集結案正在服刑。
+
+曾健成認罪後，辯方律師代表其求情，指曾熱心服務街坊超過30 年，當日是誤以為警方取走氣球「情急之下，一時衝動」才放走氣球。他亦指，氣球自身直徑約1米，橫額用宣紙構造，認為氣球破壞力有限。而根據民航處，氣球是在「Island Zone」（港島區）釋放，而非「Aerodrome Traffic Zone」（機場交通區），距離釋放氣球構成危險的地方有一段距離。法官考慮到犯案情況及被告認罪，把罰款港幣減至港幣2,500元。
+
+2名被告依次為曾健成（社民連成員、65歲）和李卓人（支聯會主席、工黨副主席，64歲）。2人在本年1月1日，於民陣在舉行的汽車巡遊期間，在金鐘立法會道添馬公園釋放直徑約1米的白氣球，氣球尾端掛上寫有「釋放政治犯」的橫額，警方前後4次警告2人，擔心釋放氣球會影響附近飛行航道，惟警告不果。
+
+2人當日釋放氣球後並否認有意圖釋放氣球，認為是警察令他們把氣球釋放了。2人其後在6月24日收到法庭傳票，指控他們在受管制空域放飛超過兩米的氣球。李卓人另外被指阻礙高級督察鍾廷森執行公務，被控告阻差辦公。
+
+曾健成離庭後發言，當中提及「雷動計劃」和藝人黃耀明被捕，批評特首林鄭月娥容不下任何反對聲音，指她「趕盡殺絕」。曾健成亦指，限聚令並不能永遠地阻礙香港人和平表達 ，「避得一時，避唔得一世」，認為特首「掩耳盜鈴」，解決不了警民關係惡劣的問題。
+
+案件編號：ESS 20477/2021、ESS 20478/2021、ESS 20479/2021
+
+<figure>
+<img src="https://web.archive.org/web/20211026014600im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/曾健成-20210803120206_191d_large.jpg" alt="">
+<figcaption>曾健成（阿牛）離庭後批評特首林鄭月娥「趕盡殺絕」，容不下任何反對聲音。陳綺琳攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026014600/https://www.hkcnews.com/aboutus/#subscribe)

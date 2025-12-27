@@ -1,0 +1,51 @@
+---
+title: "襲警罪成教師楊博文上訴　辯方稱原審官判詞偏幫警員　押後9月裁決"
+date: "2021-08-27"
+last_updated: "2021-08-27 16:43:44"
+author: "實習記者黃麗莎"
+category: "眾聞"
+tags:
+  - "上訴庭"
+  - "楊博文"
+url: "https://web.archive.org/web/20211027173344/https://hkcnews.com/article/44797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44803/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44797/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44803/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 襲警罪成教師楊博文上訴　辯方稱原審官判詞偏幫警員　押後9月裁決
+
+小學體育教師兼沙灘排球港隊代表楊博文，被指前年11月「大三罷」在上水迴旋處慢駛時遭警方截查，涉腳踢警長，早前被裁定襲警罪成，判囚九星期，裁判官吳重儀並稱楊作供時直呼警員編號乃仇警。楊博文不服定罪裁決向高院申請上訴，案件今（27日）在上訴庭處理。
+
+上訴方代表律師駱應淦指，原審裁判官吳重儀判詞偏頗控方，對被告存有偏見。高等法院原訟庭法官陳慶偉將案件押至下月10日裁決。
+
+<figure>
+<img src="https://web.archive.org/web/20211027173344im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/楊博文-20210827144540_2397_large.jpg" alt="">
+<figcaption>小學體育教師楊博文就襲警罪成提上訴，期間獲批保釋。 黃麗莎攝</figcaption>
+</figure>
+
+上訴方代表律師駱應淦指，原審裁判官吳重儀判詞偏頗控方，對被告存有偏見，包括斥被告「阻塞交通自私自利、衝動狂妄、犯錯不遵指示，大話連篇、以為警察會扔佢落橋如此荒唐」等。
+
+上訴方續稱，原審裁判官過份信納警員證供，對警員較信任，但對被告的供詞不予以相同比重的信任，指稱被告謊話連篇，並呈上案例稱，法官不應過度干預審訊，法官陳慶偉則回應指，「呢度（法庭）係一個執行公義嘅地方，公義唔係一方面，係兩方面。」
+
+楊博文等候判刑期間，一度遭還押精神病院，隨後高院批准他保釋等候上訴。上訴方指，原審裁判官質疑被告患有反社會人格或精神病，要求索取被告精神科報告，此舉欠缺客觀事實支持。
+
+### 官︰以「差佬」稱呼作供警「係有啲貶義」
+
+上訴方引述原審裁判官稱，被告作供時不選擇稱警員為「阿sir」或「差佬」，選擇直呼警員編號，加上被告望向作供警員的眼神充滿憤恨，顯示他對警方懷有敵意。上訴方質疑，以「阿sir」或「差佬」或警員編號稱呼警員，何者更欠尊重。
+
+法官陳慶偉則表示「差佬」一詞「係有啲貶義」，而用警員編號稱呼則需視乎相關語境，判斷被告是否對警方存有敵意。
+
+答辯方律政司代表則表示，原審裁判官裁決並無不妥，將以書面陳詞作依據。
+
+案件暫定在下月10日下午3時裁決，上訴人在等候裁決期間獲准繼續保釋。
+
+楊博文另亦牽涉一宗涉洗黑錢案，早前他因眾籌50萬元支援生活及醫療開支，最終籌得超額10倍的587萬元，於去年11月被警方以涉嫌洗黑錢罪名拘捕，被扣查兩日後獲准保釋候查。
+
+案件編號：HCMA283/2020
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027173344/https://hkcnews.com/aboutus/#subscribe)

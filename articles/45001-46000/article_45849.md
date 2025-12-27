@@ -1,0 +1,67 @@
+---
+title: "線上談：離港沉澱構思喜鬧劇　忠於自己做想做的事"
+date: "2021-09-27"
+last_updated: "2021-09-27 03:49:57"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "莊梅岩"
+  - "線上談"
+url: "https://web.archive.org/web/20211027074756/https://www.hkcnews.com/article/45849/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45850/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45849/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45850/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 線上談：離港沉澱構思喜鬧劇　忠於自己做想做的事
+
+
+{{< video src="https://web.archive.org/web/20211027074756if_/https://www.youtube.com/embed/YR0pAmLj_0Q" >}}
+
+
+### [【《線上談》結集】](https://web.archive.org/web/20211027074756/https://bit.ly/3lWpDBw)
+
+**本集嘉賓：香港著名劇作家莊梅岩**
+
+但願人長久，千里共蟬娟。剛過去的中秋節，對不少香港人來說，感覺不一樣，過去的一年，以萬計家庭告別自己長大、愛護的地方，很多人難捨仍決定離開。香港著名劇作家莊梅岩亦有不少朋友、家人、同事離開，「已去到一個沒有感覺的地步」，但今年很多已離開的親友，月到中秋，在當地思念在香港的家人，她說，以前在香港渡過中秋節，不覺得有甚麼特別，今年發覺，「中秋仍有特別意義：團圓，一些人只可以在網上（團圓）」。
+
+莊梅岩即將離港赴美國愛荷華市，參與愛荷華大學的國際寫作計劃。她日前在社交平台上提到，只是去參加寫作計劃，進修、沉澱、寫下一部作品。愛荷華大學國際寫作計劃在社交平台發文指，莊梅岩將參與今年的國際寫作計劃，介紹她憑不同劇作六度獲得香港舞台劇獎最佳劇本，包括《 聖荷西謀殺案》、《 5月35日》。她出席眾新聞《線上談》時形容此行是「有歸期的離開」，自己仍有很多很親的家人、朋友，「仍有很多事想做、仍有想寫的劇本、合作的人，想知去到甚麼位時自己再不能繼續做。 」「無論作為市民、或創作人，很想一齊經歷。」
+
+她從事創作20多年，認為創作有兩種情況，一種是透過親自經歷、探索和觀察，以增加創作力。她說過去一段時間，常到法院旁聽佔中、反修例運動的案件，很多案件都很深刻，案中被告人「有消防、醫護、學生、各式各樣的人，議員也來自不同背景、年齡層，為何香港會經歷一場大審判？香港發生了甚麼事？」另一種創作來自沉澱， 她說訪美期間希望可以沉澱思考，寫一個喜鬧劇，「喜鬧劇與香港近年狀況不吻合，但可能人去到最悲的盡處，好想用相反的力量抗衡。」喜鬧劇是她的新嘗試。
+
+莊梅岩坦言對創作自由過去想法較天真，近兩個月情況急速惡化、倒退，令她修正看法，「他們從來不會說你不可以做甚麼，但會搞你，很多藝術團體面對恐慌和壓力。」她說自己已一直很小心，但假如將來講事實也被拉，自己無話可說。外在環境變得險惡，生存很重要。
+
+> **（今日香港）有很多狗在等咬你，其實你沒有做甚麼（對別人）有害的事，但你輕輕一動，佢先咬你，令你驚；我們一方面不應該因為有狗咬而驚、不敢動，另方面不亂動，思考如何聰明地做自己想做的事，亦能忠於自己。**
+
+
+情況再轉壞，她說自己大可閉門創作，不發表作品，「創作人可能要先勒住一段時間，但不要改變自己，不要適應被勒著的感覺，覺得被勒著和在紅線下跳舞是正常， 甚至引以自豪。」莊梅岩認為最差的時候，亦是鍛煉自己是否很愛這行業的時候。
+
+> **我希望自己在這段時間對自己誠實面對社會，不要為想創作合乎政府要求的作品，扭曲自己對社會的視角的感受，仍會願意在最醜惡、最危險的地方探索、尋找養份， 等待將來有機會展現作品的時侯。**
+
+
+莊梅岩2012年作品《野豬》，探討新聞自由，真相與妥協。她說，中央去年提出訂立港區國安法時，文化界已表示擔心，今日香港情況，並非沒有預計到，只是沒料到影響「咁快咁廣」，「 Day one都知道當國安法提出，跳100步就會是今日香港，再跳100步就連最無害的人也變有罪」，包括創作人和報道真相的記者。她說， 擔心及理解他們面對妥協的壓力，妥協也有很多「level」（程度），但要有底線，不扭曲真相，堅持普世價值，她表示仍有人在堅持報道、繼續寫、創作、講真話，「香港人好勁！ 」
+
+89六四時，莊梅岩未到三歲， 但清楚記者解放軍在北京開槍後的早上，在家中暗黑的廳收看電視新聞，父母哭了，「大人很少在小朋友面前喊」，回到學校，老師站在台上，久久未能說話，哭了，「老師在學生面前哭」，很深刻。2019年六四30周年，她把六四搬到舞台剛，《5月35日》舞台劇的海報上寫：「香港加油！」講「天安門母親」故事， 講述一對老夫婦在新一年來臨的時候，回首往事，只希望光明正大地拜祭三十年前死去的獨子。宣傳簡介中其中一句如是寫道：「我們就來個光明正大的紀念，衝擊這條不正常的底線。」
+
+莊梅岩在當日表演謝幕時提及曾遭到「提醒」不要再寫有關六四的作品。她說，兩年前沒有想過將來可能無法再做而要盡快做，六四是發生過的事情、是歷史，要認識。香港可以紀念六四，像飲水，是很自然的事，也是重要的事，沒有想過現在連很基本的權利，對香港很重要的事也不能做。
+
+莊梅岩說自己並非每年都出席維園燭光晚會。
+
+> **沒有去的，我會點上蠟燭，放在窗台，很想睇到，到某年六四，我擺燭台也被拉，是否要顛倒到像內地，網上紀念六四也不能做，現在已有粉身碎骨的感覺，但只要仍剩下一隻手指，也想舉起。**
+
+
+**假如在家悼念六四也不容，「可能真是顯示，真的要走了！」**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027074756/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211027074756im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

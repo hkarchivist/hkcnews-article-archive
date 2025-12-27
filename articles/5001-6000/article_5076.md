@@ -1,0 +1,69 @@
+---
+title: "香港主權移交20周年，我一家完成移民落地之旅"
+date: "2017-07-04"
+last_updated: "2017-07-04 12:00:44"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "澳洲移民"
+  - "移民澳洲"
+  - "移民 澳大利亚"
+  - "澳大利亚 移民"
+  - "一國兩制"
+  - "回歸"
+  - "回歸20周年"
+url: "https://web.archive.org/web/20220811104746/https://hkcnews.com/article/5076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5077/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/5076/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-5077/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD20%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港主權移交20周年，我一家完成移民落地之旅
+
+【撰文：眩人】
+
+2017年7月2日香港主權移交20周年典禮大龍鳳結束之際，一家剛好完成首次移民落地之旅，回港正式為移居澳洲作最後安排。作為一個成長於七、八十年代的典型香港家庭，這一步，本就是有感於香港近年在各個領域高速崩壞，趁著還有迴旋空間之時，為下一代尋找一片較安心的成長空間。詭異的是，此番短暫化作境外客，通過網絡遙看習總訪港前後的一番光景，更覺香港已變得面目糢糊不清，無法辨識。仿佛曾經以香港為傲的自己，頃刻變作異鄉人。
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/眩人-澳洲移民-20170704051722_1139_large.jpg" alt="">
+</figure>
+
+踏上這次旅程之前，心情本來還有一番忐忑，盤算著一走了之是否對家庭是一個最佳選項，始終已經有了下一代，整個移民大計主要就是為她們的將來盤算，正所謂大嘅唔食，細嘅都要食，始終夫婦兩在香港成長、生活幾十年，人際網絡，職場地位都在香港建立，計劃對整個家庭而言，一切重新開始，本來就是一個非同小可的決定，心情反覆，自所難免。
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/眩人-移民澳洲-20170704052450_3b74_large.jpg" alt="">
+</figure>
+
+但左算右計，今日香港的各個範疇，已經令人無法想像到一個確切將來，論教育，本來事事好奇的大女兒，雖然成績尚可，但剛諗完三年班，已被學校的教學方式搞得對知識興趣缺缺，小女兒只讀了一年幼兒班，已被訓練得每見五星旗、區旗，便自動高唱國慶歌，現在新任特首還說要從幼兒開始，教導孩子『我是中國人』的觀念，這不是洗腦計劃，又是什麼?而社會對教育問題說了一千遍、一萬遍，最後你仍然只能眼巴巴看著負責教育的那位高官，幾年任期之內豪花公帑暢遊世界60次，對自身職責，卻可以不聞不問，一無建樹，簡直可以稱之為人間奇聞。最後中、小學生仍然日夜操練，無法從學校生活中學會欣賞天地萬物，建立健全人格與生活解難能力，大學就日益變成疑似職業訓練所，所教課程，學術內容稍多，就會被批評為未夠實用，即使不算近年政治不斷介入教育這因素，大學也越來越像一個只講經濟效益的商業機構，最近港大因收生不足而將基礎殺系就是一個明證，從小沉迷智力開發，在今天急促轉變的世界中，最終卻又只滿足於淪為迎合短期經濟生產的訓練所。為人父母，如何會願意讓自己的子女將來只能成一個無法不愛國的經濟生產動物呢？
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/移民澳洲-眩人-20170704040401_23bb_large.jpg" alt="">
+</figure>
+
+至於生活的其他領域，就更不必多言了，西環幕後治港，政府強力打壓異見，施政堅離地，紅色資本大舉進駐，政商同流合污，大白象超支工程無日無之，民生日困，從前的社會流動性凝固成既得利益者與弱勢新生代的兩個平衡宇宙，二十年間，只見變本加厲，無止境的淪落，生活在這裏，只要你對這個城市稍有感情，難有暢懷的一天。
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/眩人-澳洲移民-20170704040328_12dd_large.jpg" alt="">
+</figure>
+
+每每想到這一大串令人窒息的變化，就會令自己更下定決心為自己的孩子尋找一個更合理的成長空間，免得她們每天在外面的世界見識不斷的指鹿為馬，變得對不公不義習以為常。
+
+而身在國外冷眼見諸這幾天的一連串事件，劉晚曉波病危、警方水馬圍城、草木皆兵、肆意打壓民間聲音、踢示威者下體，藍絲圍罵外國記者、外交部宣稱聯合聲明再無現實意義，仿佛在幾天之內，香港又下沉成為一個更黑暗的孤城，習總說香港要行成年禮的同時，香港卻更像一個將被鎖在暗室的歷史棄嬰，自己已經很難找到理由放棄移民這念頭。
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/眩人-澳洲移民-20170704051757_2a4a_large.jpg" alt="">
+</figure>
+
+我相信很多港人，對一國兩制徹底心死，都源於8.31那道閘。此刻，我只能想像，香港在一個兩制沒法理性調和的政經狀態之下，將極可能以一個無法預知的方式抵達2047。
+
+<figure>
+<img src="https://web.archive.org/web/20220811104746im_/https://hkcnews.com/news_新聞/hk-discuss/2017/07/眩人-移民澳洲-20170704040344_2957_large.jpg" alt="">
+</figure>
+
+這兩天，移居加拿大不到一年的朋友傳來慶祝楓葉國國慶的照片，畢竟，經過20年的蛻變，很多香港人已真的累了，而那道自由的空氣，才是那個讓我們這一群人願意真正去愛的國度。
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220811104746im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

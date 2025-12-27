@@ -1,0 +1,41 @@
+---
+title: "專家委員會建議將科興接種年齡降至3歲　有家長擔心數據不足暫不考慮"
+date: "2021-11-16"
+last_updated: "2021-11-16 18:51:24"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "兒童"
+  - "小孩"
+  - "疫苗"
+  - "科興"
+url: "https://web.archive.org/web/20220117033037/https://www.hkcnews.com/article/47771/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47778/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47771/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47778/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 專家委員會建議將科興接種年齡降至3歲　有家長擔心數據不足暫不考慮
+
+政府顧問專家委員會昨日開會後，建議批准科興疫苗接種年齡，由現時最低18歲降至3歲。委員會之一劉宇隆建議香港可分階段推行，最初可先讓中學生接種，下一步再擴展到小學及幼稚園學生。有家長表示，會考慮讓小朋友接種，但仍希望政府公布更多相關資訊，以增加家長信心；有家長則認為，科興目前數據不足，擔心小朋友接種後有不良反應，暫不考慮讓小朋友接種。
+
+<figure>
+<img src="https://web.archive.org/web/20220117033037im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/科興-兒童-疫苗-20211116184937_1069_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+政府顧問專家委員會昨日開會後，未有如往常一樣召開記者會交代理據，僅於晚上10時許發 [新聞稿](https://web.archive.org/web/20220117033037/https://www.info.gov.hk/gia/general/202111/15/P2021111500754.htm) 交代。新聞稿指，委員會就科興提出將疫苗接種年齡降至3歲的申請，審視了科興提交的資料，包括醫學期刊第一及第二期臨床研究數據、內地收集的現實安全數據、南非和智利等地的第三期臨床研究的初步數據等，指科興在3至17歲的兒童具良好的安全性，而且比成年人產生較高的免疫原性反應，建議批准科興疫苗的適用年齡由現時最低18歲降至3歲。劉宇隆建議香港可分階段推行，最初可先讓中學生接種，下一步約在明年初再擴展到小學及幼稚園學生。
+
+至於復必泰疫苗，委員會指已得悉已公布的5至11歲兒童的相關臨床數據，建議政府與復星醫藥跟進降低接種年齡的事宜。
+
+若科興接種年齡可涵蓋3至17歲兒童及青少年，家長們怎看？楊先生表示，會考慮讓小朋友接種，因為對小朋友來說是好事，「係保護咗佢哋身體，對社會都係好。」他說也擔心會否有不良反應，「但我相信政府會話畀你聽，打咗之後小朋友有咩反應，你哋需要注意乜嘢，我相信政府會話畀我哋聽。」但他亦認為，政府應公布更多有關疫苗的資訊，家長的信心才會更大。
+
+廖先生則認為，要待疫苗有更多研究才會考慮讓小朋友接種，認為目前數據不足，擔心小朋友接種後有不良反應。王先生亦表示暫時不會讓小朋友接種，擔心小朋友未必適應到疫苗，會「睇定啲先」：「3歲太細喇，始終仲係小朋友，太早打了。」
+
+家長關心的數據，新聞稿未有交代。委員會成員之一劉宇隆今早接受電台訪問，解釋內地現實安全數據，是指內地已經為青少年接種超過一億劑科興疫苗，涉及約5千萬名中學生，按不良事故呈報的數字來看，見不到風險，認為安全系數十分高。不過，就3至12歲小童的接種，劉宇隆指國內小學生開始接種約一、兩個月，目前約有三、四百萬人接種，估計到年底才完成全國接種，相信屆時科興會再提交小學生年齡群組的數據。
+
+科興目前尚未在醫學期刊刊登就青少年及兒童注射的第三期臨床數據，劉宇隆指，就疫苗有效性而言，據美國FDA指引，並非每個群組都需要第三期臨床數據，免疫調節可代替第三期數據。他又指，南非及智利正收集第三期初步數據，目前已招募二千多人，初步安全數據結果良好。
+
+不過，另一名委員、港大內科學系臨床教授孔繁毅早前曾指，要決定是否將科興接種年齡降低，第三期臨床數據是最低要求。劉宇隆被問到，委員會內部是否一致通過是次建議時指：「大家有好多討論，反對我又唔覺得係反對，只係提出意見，尊重每個人，數據還數據，見解還見解，互相尊重。」
+
+委員會的建議將交由衞生署轄下的聯合科學委員會審視。科學委員會9月曾討論是否將科興接種年齡降至12歲，身兼疫苗可預防疾病科學委員會主席劉宇隆當時指，委員均同意建議索取數據後就可將科興疫苗的接種門檻降至12歲，不過眾新聞得悉，委員在會上同意的只是索取數據，有關降低年齡則未有定論，其後政府遲遲未批准將科興接種年齡降至12歲，而政府早在今年6月已批准將復必泰疫苗接種年齡降至12歲。
+
+政府對科興疫苗並非首次破例。今年2月，科興尚未在醫學期刊發表第三期數據，世衛並未審批，但港府已批准科興搶先在港接種，三個多月後世衛才宣布緊急批准使用科興疫苗。

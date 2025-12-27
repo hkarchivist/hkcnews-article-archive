@@ -1,0 +1,63 @@
+---
+title: "【李銳逝世】女兒：不能接受中共黨旗蓋父身上「那是對他的最後的侮辱」"
+date: "2019-02-17"
+last_updated: "2019-02-17 11:40:03"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "喪禮"
+  - "李銳"
+url: "https://web.archive.org/web/20220625162017/https://www.hkcnews.com/article/18528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18531/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/18528/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-18531/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【李銳逝世】女兒：不能接受中共黨旗蓋父身上「那是對他的最後的侮辱」
+
+
+{{< video src="https://web.archive.org/web/20220625162017if_/https://www.youtube.com/embed/OILcu6pV-JA" >}}
+
+
+中共自由派代表人物李銳（1917¬2019）2月16日在北京去世，李銳女兒李南央發表聲明，表示得悉中共組織部將於周三在北京八寶山按正部級規格為李銳舉行告別式。目前旅居美國的李南央接受《美國之音》訪問時說，她不能接受把她父親作為共產黨幹部，那不是真正的李銳，「我不能接受那沾滿了人民鮮血的旗蓋在我父親的遺體上。那是對他的最後的侮辱」。
+
+<figure>
+<img src="https://web.archive.org/web/20220625162017im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/02/喪禮-李銳-20190217093606_deee_large.png" alt="">
+<figcaption>李銳女兒李南央發表聲明。</figcaption>
+</figure>
+
+李南央在美國西岸時間周六發表 [聲明](https://web.archive.org/web/20220625162017/file:///Users/keung/Downloads/5fa7ff01-50c0-4b78-a526-b7bdeebba414.pdf) 說，「我不需要顧及世人怎樣看我，但是我需要能夠面對父親，面對自己。我知道父親絕對不能接受將他定位於一個共產黨的正部級幹部進行追悼，我相信父親在天有靈，一定會對那面蓋着染滿人的鮮血的腥紅的黨旗下的李銳慟哭長嘯」。
+
+李南央在聲明中並說，「 作為女兒，我要保護他的人格尊嚴，我不參加中組部安排的李銳追悼儀式，以此告訴世人父親的真實意願：『不開追悼會，不進八寶山，不蓋黨旗！』因為他的摯友黎澍說過：『那些躺在八寶山裏的人不喜歡我，我也不喜歡他們。』父親說：『我跟黎澍一樣。』因為父親跟我說過：『如果追悼會上說李銳是一位馬克思主義者，那不是一件很滑稽的事情嗎！』因為李銳自詡為獨立思考的知識份子，那面鐮刀、斧頭的黨旗上沒有他的位置。謹此聲明，告知於世李銳的自詡、李銳的遺願！」。
+
+《美國之音》報道，李南央說父親在1989年「六四」時，曾在北京木樨地的一座樓房裏，親眼目睹共產黨對人民的屠殺。她說，父親生前就曾表示身後不去八寶山，他說八寶山的人不喜歡他，他也不喜歡八寶山的人。李南央說，如果父親在天有靈，他一定會揭去蓋在他身上的那面旗。
+
+李銳曾任毛澤東的秘書，是中共自由派人物的代表人物。他曾在幾十年當中經歷中共內部整肅，特別是延安整風，使李銳受到政治和家庭的雙重打擊。李南央表示，父親生前將自己的手稿、日記等等很多珍貴的資料交給她，這十多年來，她一直在做這些資料的整理工作，將在今年由史丹福大學胡佛研究所公布於世。
+
+<figure>
+<img src="https://web.archive.org/web/20220625162017im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/02/李銳-英國廣播公司-20190217090001_92ae_large.png" alt="">
+<figcaption>李銳前年百歲壽辰接受BBC訪問：中國還缺乏民主，這是最大的問題。BBC影片截圖</figcaption>
+</figure>
+
+李銳去世，北京知識界的敢言者感到悲痛惋惜，認為李銳等中共自由派人物，對其後的一代人影響深遠。北京近代史學家章立凡說：「早年應該說，就是像『一二・九』那一代的知識分子，在抗戰爆發前跟中共走到一起的知識分子，應該是中國黨內平均素質最高的一批人。」章立凡接受《美國之音》訪問時表示，李銳當時參加中共，是因為中共在抗戰時期一直宣揚要走美國式的憲政道路，「這種說法也很吸引人。所以我想李銳先生參加革命的這一段，他可能還是比較左傾的理想主義者」。
+
+李銳後來經歷了中共內部的整肅，特別是延安整風使李銳受到政治和家庭的雙重打擊。章立凡說，李銳對中共內部殘酷鬥爭的傳統可能也有比較深刻的體會。這也可能也是後來李銳對中共領導的這場革命反思的起點。
+
+中共建政後，李銳曾著書講述毛澤東的青年時代，那或可視作他研究毛澤東的開端。李銳是因為三峽問題受到毛澤東的賞識，進入毛澤東的秘書圈子，後來很快遇上廬山會議。章立凡說：「其實他和毛澤東的秘書圈子裏的人，當時已經對毛的做法不以為然，包括他和田家英的私下的溝通，也包括陳伯達、胡喬木，可能都對毛的做法不以為然。但是他是受到打擊最重的，開除出黨改造。」
+
+這樣的經歷，使他能夠認識共產黨的制度。從1959年到文革結束這段漫長的歷程以及秦城監獄，李銳經受了很大的磨難。章立凡說：「這些共產黨能給予的迫害他都經受過了，只是他又是個倖存者，活過來了。」
+
+文革後，中共內部有很多人開始對毛澤東進行反思。一些人的反思就到「毛澤東破壞了黨內民主」為止，李銳後來走得更遠，他寫的《廬山會議實錄》，是對中共黨史的巨大貢獻。章立凡說：「過去人們看中共都是從表面上看，從來沒有一個人從高層的政治鬥爭，從內部把這個事情披露出來。即使像李志綏大夫所寫的回憶錄也到不了這個層面。李志綏寫的是毛的生活層面。但他和李志綏從不同的層面解析了毛澤東。」
+
+章立凡並提到，李銳曾向他提過的往事。李銳當年負責中組部青年幹部的考核，也就是「第三梯隊」，曾考核過習近平。李銳2018年4月接受《美國之音》專訪時，直言不諱批判毛澤東的錯誤，正面評價習仲勛，並對習仲勛次子習近平執掌大權以來所表現的文化知識水平表示失望。
+
+章立凡說，一個中共老幹部敢於公開表明自己對中共現任領導人的批評，這是前所未有的。他說，接下來要看的就是，現任領導人會不會給李銳送花或輓聯，或者出席他的遺體告別。這個觀察氣量和態度的時候就到了。
+
+<figure>
+<img src="https://web.archive.org/web/20220625162017im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/02/習近平-毛澤東-李銳-20190217055916_c84e_large.png" alt="">
+<figcaption>李銳去年101歲，在醫院接受《美國之音》訪問。美國之音影片截圖</figcaption>
+</figure>
+
+獨立傳媒人高瑜去年8月和杜光等，一起到醫院看望李銳，她說當時他們用寫字板和李銳交流，因為他的聽力已經衰退，但不願意戴助聽器。高瑜說：「老人家當時想把他所有的話都告訴我們。」
+
+高瑜也談到李銳的長期經受的種種磨難。她說：「從延安整風到廬山會議，還有改革開放，『六四』之後一直遭到到黨內殘酷打擊。像他這樣的一個人，有憲政自由思想，為自由而奮鬥的知識分子，共產黨是不容他的。」
+
+她說，若沒有李銳這一代人，可能中國就更悲催了。那一代人所接受的自由民主思想，不是從西方得到的，而是李銳等中共黨內的民主派老人，「就是黨內民主派的這些老人，有他，有李樸，還有謝濤、胡績偉。很多很多這樣的民主派。我們是從他們那裏接到自由化的傳承」。她說，中共黨內現在像李銳這樣的人越來越少，李銳的去世，是中國的一大損失。

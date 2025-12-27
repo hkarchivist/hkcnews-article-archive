@@ -1,0 +1,64 @@
+---
+title: "【再有死亡個案】五旬婦接種科興疫苗3日急性中風亡　袁國勇今接種復星/BioNTech"
+date: "2021-03-06"
+last_updated: "2021-03-06 21:01:44"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "袁國勇"
+  - "疫苗"
+  - "科興"
+url: "https://web.archive.org/web/20211028164451/https://www.hkcnews.com/article/38939/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38941/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDbiontech"
+original_url: "https://www.hkcnews.com/article/38939/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38941/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDbiontech"
+---
+
+# 【再有死亡個案】五旬婦接種科興疫苗3日急性中風亡　袁國勇今接種復星/BioNTech
+
+一名有高血壓、高血脂的55歲女士在接種科興疫苗3天後急性中風死亡，是一周內第二度錄得疑似接種疫苗後死亡個案。新冠疫苗臨床事件評估專家委員會將於下周一（8日）開會，評估疫苗接種與死亡事件的因果關係。至今為止的兩位死者，年齡都不算非常高，但都有長期病患。
+
+疫苗接種計劃自上周五（26日）開展，目前已錄得兩宗疑與疫苗有關的死亡個案，令部分市民卻步。過去兩日的疫苗接種「甩底率」均逾一成，達到14%，當局拒透露取消預約的人數。今下，港大微生物學系講座教授袁國勇「自己幫自己」接種了復星/BioNTech疫苗，袁是政府專家顧問委員會四人之中，最先公開表示已接種疫苗。
+
+<figure>
+<img src="https://web.archive.org/web/20211028164451im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/科興疫苗-科興-疫苗-20210306192957_2a8c_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+新冠疫苗臨床事件評估專家委員會共同召集人孔繁毅今日表示，在疫苗開打的首一個星期（2月26日至3月4日），約有61,500人接種了第一劑科興疫苗，非預期不良事故共17宗，大部份人是頭暈、心悸並已經康復。而衞生署助理署長（藥物）陳凌峯今午出席430記者會時透露，全球而言已接種科興的數字是4,400萬劑，錄得56宗死亡個案，但個案詳情、國家分佈有待藥廠提供。
+
+本港方面，2月28日錄得首宗疑與疫苗相關的個案，死者是63歲患有三高、慢性支氣管炎、缺血性心臟病等的伯伯，接種疫苗兩天後死亡。新冠疫苗臨床事件評估專家委員會一致認為死因與疫苗接種無直接關係。
+
+今日死亡的55歲女士，於3月2日陪同70歲或以上優先接種組別長者接種疫苗，獲准同時接種。但該名陪同五旬女士在接種後三日（5日）急性中風，今日凌晨搶救後不治。醫院管理局總行政經理（質素及標準）劉家獻交代詳情：女士有長期病患、高血壓、高血脂、蛋白尿，昨天7時許感覺左邊身體無力，經救護車送明愛醫院接受治療，臨床診斷為腦血管栓塞，其後送廣華醫院神經外科加護病房，清晨4時許已經入了深切治療部，4時51分離世。院方得悉女士曾經接種疫苗，遂即時通報。
+
+目前未能斷定55歲女士的死因與疫苗接種是否有關。科興給予的疫苗接種指引，指未控制的嚴重慢性病患者不應接種，但劉家獻未能交代女士的慢性病病情是否受控，並稱無紀錄指她在接種時有任何異樣。劉續指，由於目前難斷定死因，已轉介死因裁判官，希望在家人同意下盡快解剖找出死因。
+
+<figure>
+<img src="https://web.archive.org/web/20211028164451im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/疫苗接種-科興疫苗-20210306161805_1daf_large.jpg" alt="">
+<figcaption>兩宗死亡個案接種者，均在佐敦官涌體育館的社區接種中心接種疫苗。EYEPRESS圖片</figcaption>
+</figure>
+
+女死者於3月2日在官涌體育館接種疫苗，與另一名接種後兩日死亡的63歲伯伯屬同一接種場所。被問到是否需要檢視官涌體育館的打針流程，衞生防護中心總監林文健表示設有中央指揮中心（Central Command Centre）留意各社區接種中心的情況，以及品質管理監控小組，培訓接種中心人員之外，亦會定期巡查。
+
+劉家獻與林文健均未能回應，疫苗接種可有機會誘發中風，要留待新冠疫苗臨床事件評估專家委員會下周一開會討論，委員會的召集人之一孔繁毅今日亦與袁國勇見記者，孔被問到同一問題時表示：「應該係無嘅，無呢個數據。」至於會否暫緩為長期病患者接種科興疫苗，林文健無正面回應；孔繁毅則重申長期病患者的病情控制得好，仍然是可以接種的；控制得不好，就應先諮詢家庭醫生。
+
+自首宗疑接種後死亡個案的消息在3月2日曝光，3月3日的科興疫苗接種「甩底率」為8%，其後兩天均是14%（3月4日、5日）。而截至昨晚，共有72,300人接種了第一劑科興疫苗。疫苗接種預約人數連續幾日下跌，昨日只有4,900人預約了科興；預約復星/BioNTech的亦只有6,000人。
+
+<figure>
+<img src="https://web.archive.org/web/20211028164451im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/袁國勇-BioNTech-20210306205907_2d8f_large.png" alt="">
+<figcaption>港大微生物學系講座教授袁國勇今天接種復星/BioNTech疫苗，並且由自己打針。港台圖片</figcaption>
+</figure>
+
+### 袁國勇: 年邁長者應選科興   自己因工作選較猛BioNTech
+
+港大微生物學系講座教授袁國勇今日率先接種復星/BioNTech疫苗，他表示：「原本我今日無諗住接受訪問，但因為我知道疫苗接種嘅booking真係少咗好多，所以我專登出嚟同大家講，我之前一向好少講疫苗，但我都覺得咁樣係對香港唔好，所以我好希望親自打俾大家睇，真係有圖（已接種證明）為證。」
+
+**雖然為了鼓勵市民接種疫苗，但為何沒有選擇接種科興？袁國勇解釋自己64歲，但沒有心臟或腦血管閉塞的情況，亦都沒有控制得好差的長期病患，同時，因工作需要見病人、處理病毒、巡視疫區，「我覺得我係應該考慮用一隻『猛』一啲，副作用可能多啲但保護可能強一啲，所以我揀BioNTech，呢個就係我個原因。」他又指，如果是七老八十，心血管差，當然就會選擇副作用較少的科興。他形容，選擇接種哪一款疫苗完全是科學的。**
+
+優先接種組別的市民現時可預約接種復星/BioNTech，最快於3月10日可接種。今日至3月9日是「優先場」，讓小部份優先接種組別市民及醫護人員接種，小規模運作社區疫苗接種中心。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028164451/https://www.hkcnews.com/aboutus/#subscribe)

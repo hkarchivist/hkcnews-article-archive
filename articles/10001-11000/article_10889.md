@@ -1,0 +1,73 @@
+---
+title: "誰焚燒了南生圍？"
+date: "2018-03-21"
+last_updated: "2018-03-22 01:09:02"
+author: "黃牛山人"
+category: "眾說"
+tags:
+  - "保育"
+  - "南生圍"
+  - "南生圍大火"
+url: "https://web.archive.org/web/20210802223227/https://hkcnews.com/article/10889/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-10940/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/10889/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-10940/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 誰焚燒了南生圍？
+
+<figure>
+<img src="https://web.archive.org/web/20210802223227im_/https://hkcnews.com/news_新聞/hk-discuss/2018/03/南生圍大火-保育-南生圍-20180321112741_29a5_large.jpg" alt="">
+<figcaption>《Picnic》，2018 ，Milo，原圖刋於作者臉書專頁，蒙作者允許刋出。地點正是被焚後的南生圍。</figcaption>
+</figure>
+
+南生圍被焚，相信有不少人像我的心情一般，難過、悲憤、詛咒縱火者；還有極大的無奈。無奈，是因為打從有人提起要 [發展南生圍](https://web.archive.org/web/20210802223227/https://www.hk01.com/社區/49220/申起酒店商場200幢獨立屋-南生圍將變富人遊客樂園-) 開始，我便知道這個地方無法倖免於難。自那天起，樹本無故被砍伐，塘水突然被乾涸，到今天的大片草地離奇自燃；有人大呼要揪出真兇，我卻想就算真的把肇事者遞住了，南生圍的前途仍是灰暗的，我看事情還得繼續惡化下去。
+
+元兇其實是社會大眾愈來愈受落的一套價值觀：經濟發展飛黃騰達超英趕美頂呱呱，卻忽略人類自由平等博愛等精神層面的幸福。如果這種氛圍一直存在，縱使抓住了一個縱火狂徒，還會有千千萬萬個這些敗類，為了延續那「發展」的美夢而把香港美好的事物逐一毁掉──那簡直就像 [索倫之眼](https://web.archive.org/web/20210802223227/https://zh.wikipedia.org/wiki/索倫之眼) 的魔力般無從逃避。
+
+<figure>
+<img src="https://web.archive.org/web/20210802223227im_/https://hkcnews.com/news_新聞/hk-discuss/2018/03/保育-南生圍-南生圍大火-20180322005458_1b0b_large.jpg" alt="">
+<figcaption>Wink Au 區頴儀，蒙允許授權轉載畫作。原圖刋於臉書速寫香港群組。</figcaption>
+</figure>
+
+這讓我想起 [羅伯特・甘迺迪](https://web.archive.org/web/20210802223227/https://zh.wikipedia.org/wiki/羅伯特·弗朗西斯·甘迺迪) 剛剛在五十年前的一段名言。
+
+> **我們的國民生產總(GNP¹)值確實驚人，但⋯⋯這還得把空氣污染、煙草廣告、救護員在血肉橫飛的戰場上工作的費用計算進去⋯⋯還要計及把紅樹林毁滅，摧毁自然而建立污濁混沌的境況所產生的勞動⋯⋯它(GNP¹)既不能保障我們孩子的健康，也不能保障他們所受的教育的質量⋯⋯也不計及美妙的詩歌、婚姻的堅強、智慧的公民辯論、及剛正不阿的政府官員⋯⋯（Robert F. Kennedy, 18th Mar 1968)**
+
+
+有些人，開口經濟發展，閉口國家機遇，其實 GDP 的重要大家都懂，只是真正令愛這片土地的人遺憾的是，我們的 GDP 雖然上升了， [我的香港好像厲害了](https://web.archive.org/web/20210802223227/https://www.imdb.com/title/tt8081062/) ，但人文的素質卻是下降了。眼前的例子比比皆是，多元的聲音被滅掉了，政府腐敗了，議會中充滿了只會阿諛奉承卻出賣基層利益之輩。以甘迺迪之言代入香港之境：這經濟價值還得把派給 [霞姨的飯盒錢](https://web.archive.org/web/20210802223227/http://evchk.wikia.com/wiki/霞姨) ，在農地 [非法堆泥](https://web.archive.org/web/20210802223227/https://landjusticehk.org/fly-tipping/) 所花的工程錢，官商鄉黑間的利益輸送（oops 這應該是不計進 GDP的，因為都是檯底交易）等等計算進去呢。另外就算香港的 GDP 怎麼高，反映貧富懸殊狀況的堅尼系數卻同樣地名列前矛。
+
+> **我們考察一個社會的狀況，不是看一部份人甚至少數人是否幸福，而是看所有的人是否幸福⋯⋯少數人花天酒地，多數人難以維生；即使這個社會⋯⋯人均GDP高，也不能算是一個幸福的社會。（中國大陸經濟學者，梁小民 －2001）**
+
+
+就是這種視經濟發展為一切的價值觀，焚燒了南生圍，縱容領展趕絕小商舖，及把物種豐饒的龍尾灘改建成人工泳灘；逼走橫洲的村民，卻保留同樣是非法霸佔賺錢的土豪工場；產出如某富商之流的言論，理直氣壯地寧願保留高球場，卻把旁邊紮根幾十年的幾百個家庭的原址拆毁。這些每一個例子都是為了發展，GDP 都會因此上升，提供經濟發展信徒們堅實的理由；但幸福絕不僅來自 GDP，還有更多 GDP 無法量化計算的很多價值，例如環境和閒暇，文化歷史的傳承，體制的廉潔和人民的快樂等。這些可貴的質素，正慢慢地殞落中，怎不教人唏噓？
+
+<figure>
+<img src="https://web.archive.org/web/20210802223227im_/https://hkcnews.com/news_新聞/hk-discuss/2018/03/保育-南生圍-南生圍大火-20180322005535_398a_large.jpg" alt="">
+<figcaption>畫家朱嘉明老師筆下，火災後的南生圍，獲授權允許刋於本文。作者臉書專頁</figcaption>
+</figure>
+
+我也很愛南生圍，可惜總是分身不暇前往探望。心中既有預感它難逃厄運，每次到訪我也會拍些照片留念，每次離開總會有種莫名的傷感，好像要跟一個垂死的老人道別的心情一樣。雖然是老生常談，但我們所能做的事最直接的便是把我珍視的東西盡力保留下來備份存檔，彷彿像 [《冬蟬》](https://web.archive.org/web/20210802223227/https://zh.wikipedia.org/wiki/十年_%28電影%29) 戲中的主角一般。我鼓勵大家把所拍的南生圍的照片和畫作等等，上傳到開源的照片網站（例如 [pixabay](https://web.archive.org/web/20210802223227/https://pixabay.com/) )並標示「香港」，讓世界上更多人能了解到香港曾經的美好，不止於紙醉金迷的䌓華。積極一點的話，不妨充實自己，擴闊眼界，保持清醒，滋養靈魂，以抗拒那朽壞之風的侵蝕。
+
+後記：還有更積極的。在台灣因為發展而出現「古蹟自燃」事件，便有人做了一隻 [遊戲](https://web.archive.org/web/20210802223227/https://shaohui.simpleinfo.cc/) 去向民眾推廣文化遺產之可貴。這是每個人在自己力所能及之範圍內貢獻一分力的實例。
+
+<figure>
+<img src="https://web.archive.org/web/20210802223227im_/https://hkcnews.com/news_新聞/hk-discuss/2018/03/南生圍-保育-南生圍大火-20180321112713_1172_large.jpg" alt="">
+<figcaption>黃牛山人，2018 南生圍留影</figcaption>
+</figure>
+
+註：¹GNP（國民生產總值）和 GDP（國內生產總值）的分別在於GNP 計算的是一國公民的生產總值，而GDP指的是在一國國土之內的生總值。1993年聯合國統計師要求各國一律使用 GDP的計法。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802223227/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 黃牛山人](https://web.archive.org/web/20210802223227im_/https://hkcnews.com/uploads/avatars/43dbd638-5ea5-4a1d-88d2-1b9a09fe6f9b.png?87451308)
+
+**博客 | 黃牛山人**
+
+【黃牛山人專欄】父親，創業者，《讚賞公民》團隊成員，oice 聯合創始人。企圖貢獻微小的力量改變社會上的荒謬事。 網誌：bchai.cc

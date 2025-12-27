@@ -1,0 +1,83 @@
+---
+title: "【831灣仔暴動】表證裁決在即　控方稱違反程序不代表插贓嫁禍　官：靠衣著和地點足以推斷暴動？"
+date: "2020-09-28"
+last_updated: "2021-02-01 17:23:37"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "暴動罪"
+  - "831衝突灣仔"
+  - "陳虹秀"
+url: "https://web.archive.org/web/20210926200029/https://hkcnews.com/article/34316/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37695/%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/34316/831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37695/%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【831灣仔暴動】表證裁決在即　控方稱違反程序不代表插贓嫁禍　官：靠衣著和地點足以推斷暴動？
+
+**長達13日的審訊，控方完成去年8.31灣仔暴動案的舉證程序，意味表證裁決在即。區域法院法官沈小民主動問主控官張錦榮：「證供得衣著、鞋、裝束，是否一定是暴動罪？由軒尼詩道一號至馬師道，是否現場所有人都是暴動？靠裝束、衣著和出現地方，是否就足夠推斷是暴動？」** **張認為衣著反映是示威者，如果已經是暴動現場，根據裝束、裝備、拘捕地點，就已經足夠定罪。沈官問完後補充：「我純粹了解，沒有特別意思。」**
+
+**另外，就「插贓嫁禍」指控，辯方質疑證據錯漏百出，不應被考慮，控方堅稱警員的個人失誤更不代表插贓嫁禍。就「社工公義」爭論，辯方強調沒有證據顯示，被告有意圖破壞社會安寧，控方則指被告沒有叫「不要集結、不要掟石、不要拆欄杆」。就「辨認證供」是否可採納，辯方找到案發時，有人穿著與被告同一款色的Adidas黑色長褲。**
+
+<figure>
+<img src="https://web.archive.org/web/20210926200029im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200928205518_1bea_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 【插贓嫁禍】   
+ 辯：舉證錯漏百出   
+ 控：違反程序不代表沒發生
+
+控方完成傳召所有證人後，代表第四被告龔梓舜的辯方大律師石書銘提出中段陳辭。就涉嫌管有攻擊性武器罪，石認為控方提出的證供薄弱，不足予事實裁斷者裁斷。石指出，案中背包曾被作供警員以外另一人拿起，根據控方呈堂的證據，也見不到作供警員何時、何地拿上車，控方舉證有漏洞，不應被考慮。即使被指是汽油彈的玻璃樽，作供警員也沒有在庭上確認就是當日檢取的玻璃樽，最初更是控方提出的臨時證物，認為證據錯漏百出。
+
+主控官張錦榮指出，違反程序不代表事實沒有發生，無論是否見到，有關證物都有進行化驗等程序。張指出，個人失誤更不代表插贓嫁禍。對於作供警員最初供稱檢獲「警棍」，沈官提到專家證人指出，報告所指的警棍或伸縮棍，其實都是「泛稱」，專家證人亦沒有接觸過真正的警棍，張同意。張指出，即使證供指明檢獲的是「警棍」，但都可以非法管有，不可只因紀錄不符，而指警員涉嫌串謀，也沒有基礎。
+
+沈官又問到，作供警稱在地上執起的「電筒」最終如何處理？張指出，庭上沒有追問。張同意，作供警案發時曾打開被告面罩對望一秒，雖供稱事後不知被告在場，但見到現場有人被截查。
+
+### 【社工暴動】   
+ 辯：無意圖破壞社會安寧   
+ 控：守護公義是政治表述
+
+代表第五被告陳虹秀的辯方資深大律師潘熙亦指出，沒有任何足夠的證據顯示，陳虹秀集結並走向擾亂秩序的行為、沒有證據被告與他人集結有共同目的、也沒有意圖破壞社會安寧，從衣著、裝備、地方亦不足以推斷定罪，認為基礎薄弱。根據證供，被告當日只叫過保持克制、冷靜、給時間市民離開。官問：「呢啲說話是暴亂的人會說？」而被告當時也穿上「我哋係社工守護公義」的衣服。
+
+主控官張錦榮指出，根據現行條例，並沒有列明哪一類行為不屬於對參與暴動的人作出「鼓勵行為」。非法集結和暴動亦不需要證明他們相識。被告當時亦沒有叫「不要集結、不要掟石、不要拆欄杆」。張指出並非不尊重社工，但衣服上寫有「守護公義」，如果可說成脫罪的理由，也可以說成是政治表述。他稱現場混亂，是否適宜再用大聲公？被告是否只向一方面說話？因此，張認為被告是有目的和意圖。
+
+<figure>
+<img src="https://web.archive.org/web/20210926200029im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200928205502_2beb_large.jpg" alt="">
+</figure>
+
+### 【何謂暴動】   
+ 官：靠裝束、衣著、出現地方？   
+ 足夠推斷是暴動？
+
+控方完成舉證後，法官沈小民主動向主控官，了解就暴動定罪的立場。沈官問到，證供得衣著、鞋、裝束，是否就一定是暴動罪？由軒尼詩道一號至馬師道、還包括盧押道，是否現場所有人都是暴動？一頭一尾不同聚集的人也是暴動？即是所有地方聚集的人都是暴動？靠裝束、衣著、出現的地方？是否就足夠推斷是暴動？
+
+主控官張錦榮認為「我覺得係」、「成單案件證據係」。張指出，從衣著可反映是示威者，根據裝束、裝備，再加上拘捕地點，如果已經是暴動現場，就已經足夠定罪。對於軒尼詩道一號至馬師道是否都是暴動？張稱，示威者會轉移位置。張補充，由非法集結變成暴動，需要發展和時間，衣著可反映被告有意成為一分子。有別於平日，被告不是因為空氣差、有病而戴口罩，因此有理由相信他們就是暴動。
+
+### 【挑戰證供】辯方找到當晚有人穿同款Adidas黑長褲
+
+另外，控方上周傳召不在案發現場、事後翻看片段、從而認出被告的偵緝警員陳超勁作供，辯方質疑影像清晰度低、不能呈現五官，認為完全沒有比對價值。法官沈小民上周四決定批准陳超勁的辨認證供呈堂，但會考慮採納證供的比重多於呈堂性。陳超勁今早完成作供後，代表第三被告鍾嘉能的辯方大律師王國豪提出，挑戰辨認證供。
+
+陳超勁同意，透過影片和被告在警署內的拍照，認出被告。王問，在14日共135小時的調查當中，有多少時間是針對第三被告？有沒有特別記錄下來？陳說，是「全部（被告）一齊睇」。在盤問下，陳超勁同意，他是隔著熒幕理解案發當晚情況，當時已經是傍晚，天開始昏暗，片中的灣仔情況混亂、人山人海、大部分人都是相同裝束、穿深色或黑色衫、波鞋、部分人有裝備、有手套、有背包。陳不認識也未見過被告，對被告的認知全依靠證物。陳不知被告的重量，但在拘捕過程會知對方的高度。
+
+<figure>
+<img src="https://web.archive.org/web/20210926200029im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/831衝突灣仔-20200928205509_1ea4_large.jpg" alt="">
+<figcaption>陳超勁（右）完成作供後，辯方大律師王國豪提出，挑戰辨認證供。刑穎琦攝</figcaption>
+</figure>
+
+陳的口供指，憑外表、衣著認出被告，今在庭上他補充，還會根據相片和影片校對，但被質疑在口供並無提及。陳承認，除了控辯同意案情的閉路電視片段外，其他呈堂片段的人物外貌同被遮蓋。陳亦沒有親眼見過證物，即沒有親眼見過被告的衫、褲、鞋和背包，也沒有問上司拿來看。
+
+當晚被告身穿Adidas長褲、Nike Jordan 23波鞋，陳同意Adidas和Nike都是流行的牌子，也記得片中有人穿Adidas牌子的褲，「有人穿，但不多，可能幾個。」陳同意，除了閉路電視外，其他片看不到被告的樣、身體沒有特徵。辯方指出，證人只靠Adidas褲、Nike波鞋、白手套和「從來冇人見的」背包（不屬證物，沒有呈堂），而認出來被告。陳稱不同意，因褲和鞋有細節。辯方再指，證人可能認錯？陳不同意，指出衫褲鞋手套等，所有組合一起的人，片中就只有一人。
+
+**辯方其後播放一張新聞片段截圖，顯示在被告被捕時間之後，案發地點一帶有人穿著與被告，同一款色的Adidas黑色長褲，褲身同樣都有三條白間。**
+
+控罪指，8人被控去年8月31日在灣仔涉嫌參與暴動，被告依次為余德穎、賴姵岐、鍾嘉能、龔梓舜、陳虹秀、簡家康、莫嘉晴、梁雁彬。龔梓舜另被控涉嫌管有攻擊性武器。各被告分別由大律師黃瑞紅、大律師藍凱欣、大律師王國豪、大律師石書銘、資深大律師潘熙、大律師曾藹琪代表，大律師李國威則代表第七和第八被告。
+
+【案件編號：DCCC12/2020】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210926200029/https://hkcnews.com/aboutus/#subscribe)

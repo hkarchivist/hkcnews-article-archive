@@ -1,0 +1,73 @@
+---
+title: "免移民可赴台讀高中　台教育部最快8月底公告　2022學年實施"
+date: "2021-07-07"
+last_updated: "2021-07-07 17:29:20"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "移民台灣"
+  - "台灣移民"
+  - "移居台灣"
+  - "通識科"
+url: "https://web.archive.org/web/20210922073934/https://hkcnews.com/article/43131/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43140/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2022%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43131/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43140/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2022%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 免移民可赴台讀高中　台教育部最快8月底公告　2022學年實施
+
+台灣開放港生來台之門持續放寬，教育部向眾新聞證實，上周三(30/6)已通過「香港澳門居民來台就學辦法」第6條、第6條之1、第6條之2草案，即開放香港高中、五專(五年制專科學校)學生來台就讀，並鬆綁需直系親屬才能擔任監護人之規定，待行政院院會討論通過後，預計8月底公告，最快明年開始實施。
+
+<figure>
+<img src="https://web.archive.org/web/20210922073934im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/升中派位-台港關係-移民台灣-20210707154405_28fc_large.jpg" alt="">
+<figcaption>台灣預計明年放寬港澳學生到台就讀高中及五專(五年制專科學校)的政策。</figcaption>
+</figure>
+
+根據台灣現行「香港澳門居民來台就學辦法」規定，港澳學生必須持有台灣居留證，才能來台就讀高中、中學或小學，而且若要就讀公立高中，僅限華僑高中可就讀。
+
+針對香港局勢，台灣教育部去年底已公告修正「香港澳門居民來台就學辦法」第6條、第6條之1、第6條之2草案，並於上周三教育部部務會議通過該草案，將送交行政院院會，若順利通過，教育部最快將在8月底公告，2022年9月開始的學年適用。
+
+教育部表示，此次修訂主要希望吸引港澳優秀學生來台就學意願，擴大招收港澳學生生源，因此鬆綁法規，增加高中階段港澳學生申請來台就學機會。
+
+### **學生及父母無台灣居留證亦可申請**
+
+根據修改後的版本，未來港澳學生只要提供足夠在台就學的財力文件證明、在台監護人資格證明等文件，就能在境外申請來台就讀高中、五專，也就是說，港澳學生不須自己或父母有台灣居留證，即可來台申請就讀。
+
+教育部表示，因考慮家長無法陪孩子來台就讀，因此，新增在台監護人規定，只要在台灣有中華民國戶籍，且最新年度個人各類所得總額新台幣90萬元以上、無犯罪紀錄者，每人可擔任1名學生的監護人；同時，也開放學校校長、董事長或董事可擔任監護人，每人則以擔任5名學生的監護人為限。
+
+修改版本也增訂，開放華僑高中以外的的公立高中，也能招收港澳學生，只要有意申請的學校擬具招生辦法，在每年11月30日前向教育部報請核定即可。
+
+教育部表示，目前先開放高中、五專學生來台就學，未來中學、小學生也有機會逐步開放。
+
+### **港人樂見新政策  惟認為財政要求仍過高**
+
+在2015年帶著三個女兒來台的港人天爸表示，當年也是為了下一代的教育，選擇來台發展。就他觀察，台灣面臨少子化危機，許多學校可能面臨招生不足困境，若能開放讓港澳生來台就讀，是兩全其美的方法。他樂見台灣政府修改規定，但對於在台監護人財力需達一年90萬以上，仍覺得太過吃力，「但有進展就是好事」。天爸的擔心不是沒有道理，根據行政院主計總處資料，台灣2019年工業與服務業受僱員工總薪金平均為台幣64.4萬元，中位數則為49.8萬元，等於有半數勞工平均年薪不到50萬元。
+
+<figure>
+<img src="https://web.archive.org/web/20210922073934im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/通識科-移民台灣-20210707140241_155a_large.jpg" alt="">
+<figcaption>在台港人天爸2015年帶著三名女兒到台灣，希望給孩子更好的下一代教育。天爸提供</figcaption>
+</figure>
+
+### **台校長：由校長擔任監護人執行問題較大**
+
+針對教育部修法規定，全國中小學校長協會秘書長謝金城接受眾新聞訪問時表示，之前並未被通知參與教育部修法規定，還不清楚相關規定；不過，他認為，由校長擔任監護人，執行問題較大，因為監護人等於要對學生負連帶法律責任，「不是挺妥當」。謝金城目前也是新北市安康高中校長，他說若該辦法通過後，學校暫時不會主動申請，若有接獲學生有意願申請，會再看如何依個案方式設法解決。
+
+對於政治干擾教育的疑慮，謝金城說，這點在台灣教育保證不用擔心，因為學校原本就不准談論政治，更不會有忠黨愛黨的教育，唯一要考慮的是2019年頒布的教材指引，跟之前相比，有較大比例放在台灣歷史，也會談到國共內戰，「擔心老師教起來可能有點尷尬」。
+
+謝金城說，目前台灣中小學的課程，強調「核心素養」及學習歷程，與過去過度重視學生表現「結果」大不同，升學模式不是「一試定終生」，讓學生培養如何解決問題的能力，崇尚自由的學習方式，對港澳生應該很有幫助。
+
+台灣高中第一志願建國中學校長徐建國接受訪問時則指出，若將來草案通過，建中也符合該辦法可招生港生的規定，也必須經過經過校務會議討論通過後，才能確定是否會提出申請。徐建國說，就校長擔任監護人部分，若未來學校真的同意招收港生，「站在個人立場，既然是我們的學生，校長就應該幫助孩子，我不排斥這項規定」。
+
+謝金城說，他肯定這是一項好的修法方向，讓有心想來台灣就讀的港澳學生多一個管道申請，「不應拒人於千里之外」，特別是台灣面臨少子化危機，有些學校面臨招生不足問題，除了港生，優秀外國學生也應努力爭取；他說，安康高中有一名斯里蘭卡學生，早已融入台灣社會，表現也很不錯，「只要想做，就可以走出一條路」。
+
+<figure>
+<img src="https://web.archive.org/web/20210922073934im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/教育部-移民台灣-20210707140218_ca53_large.jpg" alt="">
+<figcaption>台北市立建國高中是第一志願明星學校。建國中學FB</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210922073934/https://hkcnews.com/aboutus/#subscribe)

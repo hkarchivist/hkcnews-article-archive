@@ -1,0 +1,51 @@
+---
+title: "【議事論事被抽起】港台疑引用《官方機密條例》噤聲　湯家驊：看不到條例與港台有關　前監製：風馬牛不相及"
+date: "2021-03-14"
+last_updated: "2021-03-14 21:22:19"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "湯家驊"
+  - "麥麗貞"
+  - "議事論事"
+url: "https://web.archive.org/web/20210730010017/https://www.hkcnews.com/article/39235/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39243/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39235/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39243/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【議事論事被抽起】港台疑引用《官方機密條例》噤聲　湯家驊：看不到條例與港台有關　前監製：風馬牛不相及
+
+《議事論事》早前被港台抽起，眾新聞曾向多名《議事論事》製作人員了解事件，大多回覆稱不知情。據悉，港台或廣播處長李百全近期曾多次出通告，警告員工不能對外透露機密資訊，否則會視為違反《官方機密條例》或《節目製作人員守則》。
+
+資深大律師兼行政會議成員湯家驊表示，看不到該條例與港台事務有關，「比較上難看到關係，《官方機密條例》規管公務員不可披露條文內所列出的某些訊息」。 **湯家驊又說，至於港台日常運作的事，看不到為何會視為官方機密。被問到港台員工是否可以不用理會有關電郵，他就提醒始終牽涉法律問題，應小心為上。**
+
+《議事論事》前監製麥麗貞接受眾新聞訪問時說，以往沒有發生過這情況，她形容相關條例與節目製作無關，「而家《議事論事》，我都做過監製啦，完全唔會涉及犯罪、國防、外交嘅嘢。呢個同「非法披露」完全無關，風馬牛不相及」。她認為管方應向公眾解釋，又寄語員工不要放棄，做好自己本份，「以理服人囉，你估市民唔知咩，市民的眼睛是雪亮」、「就算唔講得，估市民唔知咩？你估香港電台係流咩？。」
+
+**《議事論事》上周四（11日）播出前臨時被抽起，廣播處長李百全周五（12日）早上並無經正門入港台，避開記者。眾新聞向李百全本人發電郵，查詢《議事論事》那一句或採訪對象有問題、為何要整集抽起、基於什麼標準引用《官方機密條例》、有無諮詢律政司，及為甚麼「收埋自己」。港台公關代答時僅重申不評論個別個案，根據早前檢討加強編輯責任。**
+
+**至於港台有否諮詢律政司意見，律政司發言人說「如部門遇到法律問題，律政司會提供法律意見，內容不會向外公開」。**
+
+<figure>
+<img src="https://web.archive.org/web/20210730010017im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/麥麗貞-20201217205017_224e_large.jpg" alt="">
+<figcaption>麥麗貞退休前在香港電台任職多年，亦曾做過《議事論事》監製，她表示節目主要討論圍繞立法會事宜。資料圖片</figcaption>
+</figure>
+
+根據《官方機密條例》第III部「非法披露」，任何公務人員如在沒有合法權限的情況下，作出一項具損害性的披露，而所披露的是憑藉他作為公務人員的身分而由或曾經由他管有，並關乎保安或情報的資料、防務資料、關乎國際關係的資料、關乎犯罪及刑事調查的資料、文件或其他物品，即屬犯罪，最高可處罰款50萬元及監禁兩年。
+
+麥麗貞退休前在香港電台任職多年，亦曾做過《議事論事》監製，她表示節目主要討論圍繞立法會事宜，「透過討論帶出意見，俾觀眾研究，多啲了解。」她認為有關「非法披露」的條文與港台節目製作完全無關，是「風馬牛不相及」。「員工同管方都非常清楚節目涉及乜野，呢個同抽起《議事論事》關係何在呢？你都要講得通。」她認為現在港台沒有說明《議事論事》被抽起的原因，讓人觀感很差，「人哋兩個嘉賓講嘅嘢，就香港政壇發表意見，又唔係毀謗，點解被抽起呢？管方欠公眾一個解釋囉。」
+
+新任廣播處長李百全上任後接連DQ港台節目，她感到很悲憤，又批評李百全欠新聞基本守則，「香港電台係公共廣播機構，唔係你李百全自己禁荷包出來搞架嘛，佢唔可以話鐘意點就點，新聞都有各方面基本守則，呢個讀過新聞都知啦，咩叫平衡，咩叫意見，係讀過新聞學學生都應該知道。」
+
+她又說，港台節目著重「趕Cast」，「點可以話臨時抽起，觀眾對你有期望，受眾點可以接受，唔接受咪唔睇囉，唔睇係邊個的損失呢，係香港電台的損失。好，你話損失唔緊要，唓，『我無人睇都得我又唔洗賣廣告』，個問題係啲錢係來自公帑。」麥麗貞說，問題非李百全一個人說了算，而是要向全港市民問責，她強調廣播處長同時作為港台總編輯，要專業以及以理服人。
+
+被問到對於港台前景，她慨嘆若情況繼續，將會整個中文公共事務組「逐個來」，公信力的摧毀很容易，但建立難。最後寄語港台員工繼續公正公平、以理服人。
+
+> **我唔會放軟手腳做，你要我交個訪問List，咪交囉，如果你都話唔得，唔准訪問，我都無辦法，你四個口，但起碼我盡力去做。**
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210730010017/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,79 @@
+---
+title: "「更遠的，是海上的長風」　余光中與香港的詩情話意"
+date: "2017-12-14"
+last_updated: "2018-01-03 20:35:21"
+author: "記者陳駿豪"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "中文大學"
+  - "余光中"
+url: "https://web.archive.org/web/20210726141354/https://www.hkcnews.com/article/8871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-9213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/8871/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-9213/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「更遠的，是海上的長風」　余光中與香港的詩情話意
+
+<figure>
+<img src="https://web.archive.org/web/20210726141354im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/余光中-去世-20171214175537_3bde_large.png" alt="">
+<figcaption>余光中去世，留下逾千文學作品。網上圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210726141354im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/余光中-去世-20171214174916_19a5_large.png" alt="">
+<figcaption>台灣國立中山大學外文系辦公室外，還貼有余光中勉勵學生的詩。網上圖片</figcaption>
+</figure>
+
+高雄西子灣畔，岸邊黑石外翻過晚潮，翻白的潮汐不遠處是燈塔，然後是貨船。貨船的汽笛聲，傳到站在高樓上的詩人耳邊，詩人吟和着：「比沉沉的汽笛更遠，更遠的，是海上的長風......」余光中從香港到台灣定居後，有天高樓遠眺，對海遙望看不見的沙田，寫了〈望海〉，回看在港生活11年的日子。
+
+今年10月，台灣國立中山大學特意來港拍攝《余光中書寫香港》紀錄片，為即將90歲的余光中預祝生日。片段開首，余光中吟誦〈望海〉，展開自己的香港回憶。1974年，余光中到香港中文大學聯合書院中文系任教，開講「現代文學」、「新詩」和「文學創作」等課，經歷11個春秋。夫妻和四個女兒住在中大教職員宿舍。余光中曾幽默地談到當年接受中大聘職的兩個原因，分別是「沙田空氣很好」，而且「待遇很好，月薪有7000港元」；不過代價是要適應廣東話，學生用廣東話發問，他只能以國語應對，感到「有點挫敗」。
+
+言語不通無礙詩人創作的爆發力和靈感。上世紀70至80年代的中大校園、馬料水、沙田、船灣，以至鐵路、飛機，都是余光中新詩和散文的題材。
+
+> **你問我香港的滋味是什麼滋味／握著你一方小郵簡／我淒然笑了／香港是一種鏗然的節奏／吾友用一千隻鐵輪在鐵軌上彈奏**
+
+
+就是詩作〈九廣鐵路〉的詩行。余光中在中大期間，常與黃國彬、思果等友人結伴出遊，飽覽風物，創作了包括〈沙田山居〉、〈牛蛙記〉、〈吐露港上〉等，當中不少收錄在其主編的《文學的沙田》和《記憶像鐵軌一樣長》書內。
+
+余光中的繆思貫通文學和沙田。曾修讀余光中課、中大中文系副教授樊善標說，余光中初到中大已享負盛名，出遊的習慣不但將沙田的山水風物收入作品，又結集不少文人在沙田創作，談詩論文說翻譯，「余光中將沙田和香港帶到文學世界，特別是他用文字將沙田山水保留下來。」如此，「沙田文學」長流未斷。
+
+詩人疊疊文采，風流香江，在港時期，創作新詩163首，散文25篇。文學大師梁實秋許其「右手寫詩、左手寫散文，成就之高、一時無兩。」他亦形容自己遊走於新詩、散文、翻譯和評論的「四度空間」。樊善標佩服這位文壇巨擎筆耕不斷：「余教授21歲立志做詩人，自此創作接近70年，多產、質優，內容和技巧不斷變化，前無古人。」余光中創作力驚人，自成風格，創作和理論兼備，「不論是否喜歡他，作家心內都有一個余光中」。
+
+作家陶傑心中，余光中是其恩師。陶傑憶述高中時，讀到余光中的散文，第一次感受到文學境界可以如此超越。陶傑說，寫作之初，模仿余光中的文風，創作寫詩。有一次，新詩比賽拿了第一名，余光中鼓勵他繼續創作。後來陶傑到英國升學，懷想余光中當年畢業自臺大外文系，自己亦決定於華威大學修讀英國文學。
+
+陶傑憶起去年7月到台灣探望的情景。「見面時余先生身體有點瘦弱，但是頭腦清晰，有時聽不清楚，要太太提醒。」陶傑重見余光中，即席背出10多首老人家的作品，哄他開心，余光中也說很少人可以將他的作品背誦如流，陶傑說來難掩興奮。
+
+> **曾經湖大似海／芝加哥在空中／多少蜃樓在霧裏矗多少海／玻璃多冷鋼鐵多無情／江湖滿地是威斯康辛......**
+
+
+受訪期間，陶傑背誦幾句余光中〈憶舊遊〉的詩句來，「余先生詩作主題變化之多，空前絕後，他能以不同的風格寫盡不同成就，用字千錘百煉，疊字、聲韻極盡諧協，古今能有幾人？」
+
+余光中詩文，自冷戰時代橫空出世，離不了「鄉愁」。1949年中共奪得政權，國民黨政黨遷台，余光中在動盪時勢，離開家鄉故土，來了香港，後來定居台灣終老，長年未返大陸，未盡的「鄉愁」為人紀念。
+
+> **小時候，鄉愁是一枚小小的郵票，我在這頭，母親在那頭；長大後，鄉愁是一張窄窄的船票，我在這頭，新娘在那頭；後來啊，鄉愁是一方矮矮的墳墓，我在外頭，母親在裡頭；而現在，鄉愁是一灣淺淺的海峽，我在這一頭，大陸在那頭。**
+
+
+〈鄉愁〉以至〈鄉愁四韻〉等詩文，流傳甚廣。余光中寫鄉愁，寫音樂畫像，寫反戰。越戰時代，全球反戰聲浪不絕，余光中寫〈如果遠方有戰爭〉、〈雙人床〉等作品，其中前者叩問：
+
+> **如果遠方有戰爭，我應該掩耳／或是該坐起來，慚愧地傾聽？／應該掩鼻，或應該深呼吸／難聞的焦味？我的耳朵應該／聽你喘息著愛情或是榴彈／宣揚真理？**
+
+
+1977年，余光中在中大任教期間，創作詩文之際，同時發表文章〈狼來了〉，參與鄉土文學論戰，在台灣《聯合報》點名批判王拓、尉天聰及陳映真，指責三人的風格「暗合」共產黨的階級理論，指斥台灣時興的鄉土文學，即是中國大陸的「工農兵文學」，若干觀點和毛澤東〈在延安文藝座談會上的講話〉「竟似有暗合之處」。〈狼來了〉一出，即被學者徐復觀等，喻其文章為「血滴子」，余光中被指支持國民黨威權統治，引起抨擊。
+
+嶺南大學榮休講座教授劉紹銘講述，當年自己在中大英文系開課，與余光中共事兩年，私交甚篤，「如果要在台灣選一人得諾貝爾文學獎，那人當是余光中。」余光中曾自況：「大陸是母親，台灣是妻子，香港是情人，歐美是外遇」，情歸何處，遙未可知，明白的是他在兩岸三地都紥下了根。余光中文學縱橫香港、大陸、台灣，劉紹銘說，「余光中」在文學世界，不應受地域所限。
+
+這位文壇巨匠畢生沉浸「繆思」，兩手在詩歌文章的大道，走了華麗一程，如今走到生命的盡頭，周四（14日）在高雄醫院，因急性腦中風引致心肺衰竭病逝，享籌89歲。中大中文系前教授及聯合書院晚上發表訃告，學系和書院全體師生、校友深表哀悼，向余光中家致以懇切的慰問。
+
+<figure>
+<img src="https://web.archive.org/web/20210726141354im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/余光中-20171214222151_2141_large.png" alt="">
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726141354/https://www.hkcnews.com/aboutus/#subscribe)

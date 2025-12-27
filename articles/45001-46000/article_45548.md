@@ -1,0 +1,64 @@
+---
+title: "【迷你倉死因研訊】證供指助理消防區長事發後指示下屬帶走死者呼吸器檢查"
+date: "2021-09-17"
+last_updated: "2021-09-23 19:20:12"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "消防處"
+  - "迷你倉"
+  - "死因庭"
+url: "https://web.archive.org/web/20211026012357/https://www.hkcnews.com/article/45548/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45741/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45548/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45741/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【迷你倉死因研訊】證供指助理消防區長事發後指示下屬帶走死者呼吸器檢查
+
+【研訊第12天】
+
+2016年九龍灣淘大工業村第一座時昌迷你倉大火導致兩名消防員殉職，死因研訊今踏入第十二天。當日負責駐守火場入口指揮站的消防總隊目供稱，晚上7時許情況突然變得緊張，需增派煙帽隊及裝備。至7時40分，助理消防區長趙錫坤表示有同袍失蹤，啟動緊急搜救程序；約半小時後趙表示已找到失蹤的同袍、即殉職消防隊長張耀升。據總隊目透露，事發後趙指示他將張耀升的呼吸器帶回消防局，讓趙檢查。
+
+### [【迷你倉死因研訊】結集](https://web.archive.org/web/20211026012357/https://www.hkcnews.com/event/122)
+
+<figure>
+<img src="https://web.archive.org/web/20211026012357im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/消防員-迷你倉-四級火-20170602195757_1b36_large.jpg" alt="">
+<figcaption>死者張耀升（左）、許志傑（右）</figcaption>
+</figure>
+
+駐東涌呼吸器室的消防總隊目胡偉傑供稱，案發當日、即2016年6月21日中午約12時半，他開始在涉事大樓的二樓指揮站當值，負責紀錄準備經三樓迷你倉正門進入火場的煙帽隊隊員身份，並為他們檢查裝備，以確定運作沒問題。當日他長期在二樓逗留，由上級報告三樓情況。
+
+### 晚上7時突趨緊張  廿分鐘後有同袍失蹤
+
+下午約5時許，起火迷你倉的正門及側門「有火噴出嚟」，他指其後情況一度有改善。惟7時18分現場「突然情況好似好緊張」，署理高級消防區長翁錦雄要求短時間內增派煙帽隊增援。由於後備煙帽隊不足，胡遂向助理消防區長林有榮要求增派煙帽隊及後備氣樽，未幾便有增補人員及設備到場。
+
+至晚上7時40分，助理消防區長趙錫坤通知胡有同袍失蹤，宣布啟動緊急搜救程序，並問胡有否指揮煙火特遣隊或技術支援隊進入火場，胡表示沒有。8時15分，胡收到趙通知，稱已找到失蹤的殉職消防隊長張耀升，要求胡記錄時間。胡指根據紀錄，他從沒指派張耀升入火場。
+
+<figure>
+<img src="https://web.archive.org/web/20211026012357im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/迷你倉-死因庭-四級火-20210904171103_b4d0_large.png" alt="">
+</figure>
+
+約9時許，上級通知所有煙帽隊已完成工作並離開火場，胡按照消防區長吳贊良指示，安排一隊煙帽隊檢查所有防煙門已關妥，以預備大樓即將停電及外圍射水行動。9時半，大樓開始停電。
+
+### 若料開研訊　沒警在場時不會仔細檢查裝備
+
+晚上11時半，胡在起火大樓附近的總入口指揮站，從趙手上接過張耀升使用過的呼吸器，胡依照趙指示，將該呼吸器送返黃大仙消防局。當晚稍後時間，胡返抵黃大仙消防局，並按指示從膠袋取出張的呼吸器，以便趙檢查。
+
+胡表示，他並沒有陪同趙一起檢查，而是去了檢查其他呼吸器的充氣情況。他指出，為保障自己，若預料事件會召開死因研訊，除非警員在場，否則一般不會詳細檢查涉案裝備。
+
+### 氧氣不足時裝備會響警笛及亮燈
+
+此外，胡在庭上講及消防員氧氣樽的氧氣含量情況，當氧氣含量降至60巴以下，其呼吸器便響起警笛。與此同時，衛士個人監察系統亦會響起警報，除非按鍵關閉，否則不會停響；若消防員靜止逾10秒，該系統亦會鳴響，要快按兩秒才可取消。若氧氣含量跌至50巴或以下，其配戴的抬頭顯示器便會亮起兩盞同伴燈求救。惟庭上證供暫未透露張在火場失蹤後，上述警報系統有否啟動。
+
+研訊下周二續審，胡將繼續作供，另外料會傳召在死者張耀升進入火場前在場內救火的消防員，以交代當時火勢。
+
+案件編號：CCDI333-334/16   
+   
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026012357/https://www.hkcnews.com/aboutus/#subscribe)

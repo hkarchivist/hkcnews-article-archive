@@ -1,0 +1,52 @@
+---
+title: "《福布斯》百大權勢女性　蔡英文升至第9名、亞洲第一　香港史美倫等3人入榜"
+date: "2021-12-09"
+last_updated: "2021-12-09 15:47:51"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "默克爾"
+  - "梅 克爾"
+  - "angela merkel"
+  - "angela dorothea merkel"
+  - "merkel angela"
+  - "蔡英文"
+  - "tsai ing wen"
+  - "福布斯"
+  - "富比世"
+  - "全球百大權勢女性"
+url: "https://web.archive.org/web/20220124200157/https://www.hkcnews.com/article/48817/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48817/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48817/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48817/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《福布斯》百大權勢女性　蔡英文升至第9名、亞洲第一　香港史美倫等3人入榜
+
+[《福布斯》雜誌（台譯：富比世）公布2021年「全球百大最有權勢女性」名單](https://web.archive.org/web/20220124200157/https://www.forbes.com/sites/moiraforbes/2021/12/07/the-worlds-100-most-powerful-women-redefining-the-face-of-power-in-2021/?sh=38843d655cc1) ，台灣總統蔡英文從去年的第37名升至第9名，不僅在入榜亞洲及華人女性均高居第一，在政治類別中，也高居全球第四；文中提到，在數十年來最緊張的兩岸情勢中，蔡英文尋求在全球地緣政治賽局中捍衛民主，與其他同在政治圈中的女性領導人一樣，位處紛歧最前線，提供應對危機的擴展藍圖。
+
+<figure>
+<img src="https://web.archive.org/web/20220124200157im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/富比世-蔡英文-全球百大權勢女性-20211209102909_204e_large.png" alt="">
+<figcaption>《福布斯》公布今年百大最有權勢女性，蔡英文從去年的第37名升至第9名。取自《富比世》網站</figcaption>
+</figure>
+
+這份榜單中，根據入榜亞洲及華人女性名單中，蔡英文都名列第一。《福布斯》介紹文提到蔡英文是台灣首位女性、未婚的總統，上任後親美，造成與中國大陸間的緊張關係。在2020年連任中，她拿下57%選票，也視為是對北京試圖控制台灣的當頭棒喝。
+
+文中並提到，蔡英文領導下的COVID-19疫情防疫成就，被視為全球典範，透過嚴格的追蹤計畫，避免台灣爆發大規模傳染；蔡英文也藉由發展台灣生物科技、國防和綠能產業，刺激經濟，誓願讓台灣成為世界不可或缺的一員。
+
+<figure>
+<img src="https://web.archive.org/web/20220124200157im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/富比世-全球百大權勢女性-蔡英文-20211209103326_19ef_large.jpg" alt="">
+<figcaption>《福布斯》表示，蔡英文領導的台灣疫情是全球典範。取自蔡英文Facebook</figcaption>
+</figure>
+
+在這份榜單中，政治類排名在蔡英文之前的，分別為排名第2的美國副總統賀錦麗（Kamala Harris）、第3名歐洲中央銀行（ECB）總裁拉加德（Christine Lagarde）與第8名的歐洲聯盟執行委員會（European Commission）主席范德賴恩（Ursula vonder Leyen）。
+
+針對《福布斯》公布的結果，蔡英文今日在臉書表示「感觸很深」，她說，台灣從疫情中站穩腳步，「國際上的這些肯定只是一篇報導，但是背後最值得我們驕傲的，是台灣人一起團結防疫，一起攜手走過的這段過程」。
+
+蔡英文說，台灣的經濟在疫情中逆勢成長，也是國際關注的焦點，「今年，我們的經濟成長預估將是11年來新高、出口成績改寫歷史紀錄，股市更持續維持在17000點。這不僅代表我們的振興券政策發揮作用，也凸顯台灣在全球供應鏈扮演的重要角色」。
+
+蔡英文說，「這篇報導，我只是台灣的代表，但實際上，國際肯定的是台灣2300萬人民的努力」；同時再度喊話，面對年底的公投，希望大家理解台灣目前的關鍵時刻，「不能倒退，也不能亂投」，希望做出正確選擇，明年再讓世界看見台灣的成功。
+
+另外，今年香港共有3人入榜，分別為第69名的交易所董事會主席史美倫、第79名的藍思科技董事長周群飛，以及位居第81名、李嘉誠基金會董事兼維港投資創辦人周凱旋等3人。大陸也有3人入榜，分別為58名的中國格力集團董事長董明珠、73名的百勝中國控股有限公司首席執行官屈翠容，以及第75名的長城汽車總裁王鳳英。
+
+《福布斯》今年百大最有權勢女性榜首是亞馬遜創辦人貝索斯（Jeff Bezos）前妻、世界第三女性富豪麥肯姬・史考特（MacKenzie Scott），這也是《福布斯》10年來首度榜首易主，蟬聯10年榜首、剛卸任德國總理的默克爾（Angela Ｍerkel），今年不僅讓出寶座，更跌出百名榜外。
+
+截至12月8日為止，史考特的財富高達592億美元，《福布斯》指出，她的權力不是來自經營一家大公司、一個國家或一個政府機構，而是作為慈善界的重量級人物。她在2019年與結縭25年的貝索斯離婚，獲得25%的亞馬遜股權，隨即宣布將捐出自己終生財富的一半；2020年，她捐出580億美元給500個非營利機構，今年截至6月為止，已捐出27.4億美元給286個團體。

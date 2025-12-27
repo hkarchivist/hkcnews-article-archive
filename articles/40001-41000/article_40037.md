@@ -1,0 +1,68 @@
+---
+title: "15歲女童幫補家計到東莞做童工　NGO稱「脫貧戶」未脫貧"
+date: "2021-04-06"
+last_updated: "2021-04-06 21:28:33"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "兒童"
+  - "小孩"
+  - "眾新聞中國組"
+  - "脫貧攻堅"
+url: "https://web.archive.org/web/20211127230134/https://www.hkcnews.com/article/40037/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40042/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ngo%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40037/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40042/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ngo%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 15歲女童幫補家計到東莞做童工　NGO稱「脫貧戶」未脫貧
+
+
+{{< video src="https://web.archive.org/web/20211127230134if_/https://www.youtube.com/embed/2yVig3TDZh0" >}}
+
+
+根據內地法例，未滿16歲打工屬於違法，但童工問題至今仍然存在。
+
+15歲的女生小齊(化名)，最近就被發現在東莞一間工廠中打工。她原本在工廠工作了9天，直至委託工廠生產的國際品牌剛好派人巡視，發現相比其他員工小齊外表特別年輕，因而揭發事件。其後品牌基於社會責任，及遵守國際組織要求改善人權狀況的規範，聯絡跟進勞工事務的內地NGO「映諾社區發展機構」介入處理。
+
+<figure>
+<img src="https://web.archive.org/web/20211127230134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/兒童-20210406175041_1a3e_large.png" alt="">
+<figcaption>小齊的個案由跟進勞工事務的內地NGO「映諾社區發展機構」介入處理。</figcaption>
+</figure>
+
+小齊的個案由跟進勞工事務的內地NGO「映諾社區發展機構」介入處理。
+
+起初小齊以及在同一所工廠工作的小齊媽媽，都對NGO表示抗拒，但隨住信任漸漸建立，她們開始將家庭背景娓娓道來。
+
+原來她們老家位於湖南，一家7口中小齊是長女，其餘家人包括父親、母親、大哥及三個弟妹。由於父親長期病患，大哥有脊椎問題無力自理，弟妹正就讀小學和初中，母親作為經濟支柱經常外出打工，靠五千元月薪勉強維持全家生活。
+
+<figure>
+<img src="https://web.archive.org/web/20211127230134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/小孩-20210406175109_9fc9_large.png" alt="">
+<figcaption>家7口中小齊是長女，其餘家人包括父親、母親、大哥及三個弟妹。</figcaption>
+</figure>
+
+被列為貧困戶的小齊一家，當地政府曾向他們提供蘑菇種子，希望他們在家種植後出售，但由於種種原因他們只能在當地兜售。映諾社區發展機構傳訊主管Ice舉例指：「你又種蘑菇我又種蘑菇，我賣給你、你賣給我，其實不太能賣出，最後是曬乾放在家中自己消化。」
+
+而即使官方宣稱全國全面脫貧，小齊一家名義上亦脫了貧，但事實是小齊為了改善家庭情況，仍然要瞞住家人冒險外出打工。她和表姐偷偷由湖南乘大巴去東莞，經東莞中介公司安排，小齊借用別人的身分證隱瞞年齡，順利瞞天過海入職媽媽所在的工廠。
+
+<figure>
+<img src="https://web.archive.org/web/20211127230134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/小孩-20210406175118_820f_large.png" alt="">
+<figcaption>被列為貧困戶的小齊一家，當地政府曾向他們提供蘑菇種子，但由於種種原因他們只能在當地兜售。</figcaption>
+</figure>
+
+事件揭發後，小齊和家人承受很大壓力。Ice形容小齊充滿自責和內咎：「(小齊覺得)令媽媽和媽媽所做的工廠造成很大麻煩，死啦、搞到大家咁樣。包括父母在內工廠及品牌，都希望她再接受教育，但對於她來說當下最緊迫的選擇不是唸書，而是找更多錢去照顧家人。」
+
+Ice罕指小齊更因為壓力，一度想過跳樓：「有一次她衝了上工廠樓頂指不要再逼我，指要逼我就跳下去。」事後經NGO協調，小齊不得繼續工作，但工廠同意付生活補助直至她成年，並安排她線上上課。而Ice認為雖然近年內地童工淡出輿論焦點，但與其形容為有改善，小齊的事件反映問題屢禁不止，或存在更多不可見的情況。Ice指：「童工是一個很大但很單薄的詞，刻版印象是很窮、家中沒錢所以出來打工。可能社會大眾對這些故事的脈絡已經瞭如指掌不感興趣，但每一個童工背後的生命及歷程也很複雜、不同。」
+
+「相信讀書是有出路的人，可能是因為他看到讀書是有出路的。但當他身邊的環境、他的同輩人或上一輩都不是太多通過讀書看到生活來源及發展，很難憑一己之力，令自己相信讀書是一條出路。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127230134im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/兒童-20210406175101_49ac_large.png" alt="">
+<figcaption>Ice(右)指希望大眾明白每一個童工背後的生命及歷程也很複雜、不同。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127230134/https://www.hkcnews.com/aboutus/#subscribe)

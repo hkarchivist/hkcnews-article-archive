@@ -1,0 +1,61 @@
+---
+title: "希克：親自參與M+策展　曾與林鄭爭論開幕展品獲過關　無展品被剔走"
+date: "2021-12-12"
+last_updated: "2021-12-12 10:40:25"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "M+博物館"
+  - "希克"
+url: "https://web.archive.org/web/20220518034231/https://hkcnews.com/article/48705/m%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48705/m%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48961/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDm%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 希克：親自參與M+策展　曾與林鄭爭論開幕展品獲過關　無展品被剔走
+
+西九文化區M+博物館在國安法落實後開幕，雖然未展出中國異見藝術家艾未未的「中指」《透視研究》系列，但開幕後觀眾陸續看到影射六四、諷刺官媒及人民大會堂開會的當代中國藝術作品。上月親自來港見證的瑞士收藏家希克（Uli Sigg）接受眾新聞專訪時透露，自己是M+希克藏品的共同策展人及積極參與策展過程，並透露曾與特首林鄭月娥「爭論」過開幕時中國當代藝術展品的清單。他強調，展品清單在去年中國安法生效前已制定，亦無展品被剔走。
+
+希克說，預期有人未必滿意部分展品，但相關爭論一如世界各地的正常。希克提醒：「當代藝術往往有批判本質，尤其可能在社會引起爭論。當代藝術也是令（觀眾）走出舒適圈，進入可能令部分人不習慣的處境。為什麼要這樣做？我認為，這是令社會進步的方法。我們可能要測試底線，有時候會去得太盡，但這是世界如何看待現代藝術。」
+
+<figure>
+<img src="https://web.archive.org/web/20220518034231im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/希克-M%20Plus-20211206135439_2775_large.jpg" alt="">
+<figcaption>希克上月來港時出席M+開幕禮，其後短暫抽空拍攝。他透露，由於當時M+未建好加上疫情，藏品長時間在他倉庫儲存，反而因為瑞士儲存費用「便宜一大截」，M+節省了一筆。周滿鏗攝</figcaption>
+</figure>
+
+90年代開始收藏中國當代藝術作品的希克一直希望將藏品送返中國，他在2012年以「半賣半送」形式向M+送贈超過1500件藏品。根據希克與M+的協議，M+開幕頭三年提供至少5000平方米，至少展出3場展覽，意味如無意外，希克未來繼續參與未來兩場展覽。希克離港接受眾新聞專訪時透露，疫情下考慮延長第一場。
+
+「我們正考慮延長第一場展覽，好讓國際觀眾可以在（出入境）恢復往返時可以再參觀。一般而言，（更換展品）是每一年半一次，在我和M+得合約中提及基本上三次規模相約的展覽，每次不同主題，令觀眾可以了解整套藏品。整套藏品有1500套作品，不能一次過展出。但在三次展覽後，至少（觀眾）可以了解當中內容。」
+
+希克在專訪中又透露，曾經與特首林鄭月娥討論過開幕展品名單。 「我不知道何謂（林鄭的）保證。（她和我）討論過開幕的展品清單。這對我而言非常重要，而這清單最後獲批准。就是我（收到的）資訊的狀態。」
+
+「（展品清單）無被修改過。我們在國安法生效之前已經定出展品名單，當時我們應要接納，然後就出現（國家安全）法律。當然其後有爭論，但最終清單獲批准，也就是大家所見到的。」
+
+與江澤民、李嵐清等前中央領導人相識的希克不評論是否因為他的特殊身分，但就證實2016年M+在太古一商場展覽前，曾經與當時仍以政務司司司長身兼西九文化區主席的林鄭交涉後，才成功展出包括攝影師劉香成作品《1989 年北京》及《北京，情侶躲藏在立交橋下》六四經典照片。當時展覽在瑞典及英國先後展出，然後再回到香港。希克向眾新聞證實，當時主要的關注，是六四的展品。
+
+「她當時是西九文化區主席，她尤其關心M+及個別展覽。是的，我們當時討論過（展品），因為當時展覽在瑞典、英國展出，最終回港展出。討論後，清單最後獲接納，所有先前展覽展品可以展出。」
+
+<figure>
+<img src="https://web.archive.org/web/20220518034231im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/m+-希克-20211206135543_829e_large.jpg" alt="">
+<figcaption>希克離港前到M+拍攝，應記者要求走近希克親自錄音導賞、周鐵海的《新聞發佈會III》拍攝。作品以「藝術世界中的關係，一如冷戰後各國的關係」，也象徵中國藝術家崛起。旁邊則是影射六四、王興偉的《新北京》，也是M+新打卡位置，結果希克是離港前最後一次在《新北京》入鏡。周滿鏗攝</figcaption>
+</figure>
+
+希克曾經向瑞士傳媒說，林鄭在2016年「容忍」（tolerate）展品展出。他無進一步解釋林鄭當時態度，只說對方思考過後就「容忍」展出。至於林鄭今次有否明確確保表達自由，希克說一如所有政治領袖，林鄭稱尊重藝術自由，但在包括國安法的香港法律下行事。
+
+他又強調，在譴責某作品前，人們應該觀察及聆聽藝術作品，並要以開放的心看待，因為「不同的人可能對同一事物有很不同的看法」。尤其處理所有當代藝術作品，他說不能單看作品表面呈現，而要了解創作的構思及背景，有時要向無接觸當代藝術作品的人解釋。
+
+2019年香港爆發反修例示威期間，示威者與警方激烈衝突。希克透露，自己也曾經來港出席M+董事局的會議，同時準備開幕策展。他憶述，自己在中環鬧市拖著行李篋，在示威者中走過。但他表明不會判斷香港情況，形容自己是觀察者（observer），兩邊說法都了解，也有不同立場的朋友。
+
+<figure>
+<img src="https://web.archive.org/web/20220518034231im_/https://hkcnews.com/news_新聞/hk-discuss/2021/03/林鄭月娥-希克-20210323184128_8d8e_large.jpg" alt="">
+<figcaption>林鄭月娥2016年以政務司司長兼西九管理局主席身分出席M+希克藏品展覽。林鄭當時主持展覽開幕時說，希克藏品對剛成立的M+「投下信心一票」，「為M+達至世界級博物館奠下鞏固的基礎。」政府新聞處照片</figcaption>
+</figure>
+
+希克曾在2016年公映的紀錄片《The Chinese Lives of Uli Sigg》中說，是因為香港可以讓中國藝術家面向中國大眾，展出中國大陸所不能展出的藝術作品。
+
+在2021年的時空，希克承認感覺香港開放程度不如2012年。「因為（2012年）當時無國安法，藝術的影響某程度是不清楚。」那他今日對香港是否同樣有信心？希克卻說：「今日而言已經不太重要了，因為藏品已經捐出，M+已成立。我們做我們能力所及的事。明顯地，已經足夠吸引到每日1萬人參觀，我認為已經相當成功，比當局原先預期大概更成功。」
+
+希克在上月離港前一日到M+拍攝，被記者問到與2012年捐贈時的預期是否有落差。他看著長長人龍說：「這接近可預見的最好情況……我是這展覽的共同策展人，我自己一手一腳建立所以非常投入，當然Suhanya（M+行政總裁華安雅）及團隊也非常投入，這是我們共同創立的展覽。」他在拍攝空檔後反問記者怎看展覽，記者引述坊間意見說是審查員走漏眼（escaped the eyes of censor），希克笑而不語。

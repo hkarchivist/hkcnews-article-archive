@@ -1,0 +1,36 @@
+---
+title: "保護兒童會虐兒案再多4職員疑涉案　總幹事表痛心、遺憾但沒道歉"
+date: "2021-12-28"
+last_updated: "2021-12-29 01:14:51"
+author: "實習記者葉潔明"
+category: "眾聞"
+tags:
+  - "虐兒"
+  - "強制通報"
+  - "保護兒童會"
+  - "蘇淑賢"
+url: "https://web.archive.org/web/20220520143613/https://www.hkcnews.com/article/49706/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49711/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/49706/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49711/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 保護兒童會虐兒案再多4職員疑涉案　總幹事表痛心、遺憾但沒道歉
+
+保護兒童會童樂居職員涉嫌虐兒案，再多4名職員懷疑涉案，即涉案職員增至7人。上周揭發虐兒事件後，保護兒童會首次召開記者會，證實事件後，翻查童樂居閉路電視畫面，發現更多職員有不當行為，7名幼兒工作員全部已經停職；暫時知道有18兒童被虐待。總幹事蘇淑賢記者會對事件表示極度痛心與遺憾，但卻沒有就事件道歉。
+
+保護兒童會院舍童樂居上周揭發虐兒案後，院方首次召開記者會交代事件，童樂居80多個職員中，再多4人涉嫌虐兒，包括體罰幼兒，即涉案員工增至7人，全部是同一職級的幼兒工作員，根據警方資料暫時有18名兒童懷疑被虐，七名幼兒工作員被停職。蘇淑賢指全部事件於童樂居發生，暫未有證據顯示其他嬰兒院或幼兒學校有類似情況。會方表示為審慎起見，正翻查總部與29個單位共891部閉路電視過去一個月的情況，並聘請外部專家審視。被問到這件事上管理有沒有問題，會否有高層辭職，及會否道歉？蘇淑賢沒有正面答，只說現在調查中，希望確保所有小朋友獲得適當照顧，又指「零容忍是我們的方向，調查方向在於到底我們的不足在哪裏。各方全面檢視管理與監督，這肯定是我們的關注。」
+
+<figure>
+<img src="https://web.archive.org/web/20220520143613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/虐兒-20211228220723_1f23_large.jpg" alt="">
+<figcaption>童樂居位於保護兒童會總部。葉潔明攝</figcaption>
+</figure>
+
+總幹事蘇淑賢表示，最初投訴是匿名，得悉事件後已即時向社署通報及報警，院內護士及臨床心理學家檢查有關兒童的身體與心理狀況、送院檢驗及聯絡家長。未來將擴大專責小組職能及邀請外間獨立人士及董事會會員加入、 加快檢視閉路電視紀錄、加派幼兒主任定期與突擊巡房、加強內部溝通、提醒職員向管理層匯報不尋常事件等。
+
+<figure>
+<img src="https://web.archive.org/web/20220520143613im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/虐兒-20211228220719_240e_large.jpg" alt="">
+<figcaption>保護兒童會總幹事蘇淑賢對事件表示痛心與遺憾。葉潔明攝</figcaption>
+</figure>
+
+蘇表示職員入職時需持有專業資格，會方要求更高，設有詳盡職員守則，不但禁止體罰虐待，更確保兒童健康愉快成長；因此有關職員乃嚴重違規。蘇並稱會方不涉及拖延公布或隱瞞，強調處理匿名投訴及查找涉事中心需時。就會方需於市民揭發後方才查核，是否涉及失職，蘇表示有監察機制但承認力度不足，強調對事件零容忍，將以透明與負責任態度全面檢視不足之處，今早並與社署開會，會進一步加強管理監督與監察。
+
+她又說由於警方正調查個案，會全力協助警方，現不能透露更多詳情。保護兒童會共有超過700名員工，其中童樂會有超過80名員工。

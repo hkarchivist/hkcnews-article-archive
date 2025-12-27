@@ -1,0 +1,58 @@
+---
+title: "Delta變種蔓延內地18省市地區　專家撐國產疫苗有效保護"
+date: "2021-08-05"
+last_updated: "2021-08-06 11:03:49"
+author: "中國組記者莊芷韻"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "疫情擴散"
+  - "Delta變種毒株"
+url: "https://web.archive.org/web/20211027123411/https://hkcnews.com/article/44053/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-delta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44053/delta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD18%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44053/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-delta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44053/delta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD18%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# Delta變種蔓延內地18省市地區　專家撐國產疫苗有效保護
+
+**內地疫情未有放緩跡象，昨天新增62宗本地確診病例及32名無症狀患者。江蘇省佔最多，有40宗，36宗來自揚州，主城區今日開展第三輪大規模核酸檢測。疫情一路向北，內蒙古「破蛋」，呼和浩特今日新增一宗本地個案，當地啓動防控三級預警。**
+
+### 各地趁勢催谷打疫苗
+
+這波疫情已經牽連18個省市地區，包括澳門，累計近700宗個案。除了南京祿口機場和江蘇准安旅行團，再出現新一條傳播鏈，為鄭州第六人民醫院。國家衛健委醫政醫管局監察專員郭燕紅表示：「(鄭州疫情)調查的結果認為，這是一起醫院感染事件。通過基因測序，對確診感染的患者，與定點醫院收治的一位境外輸入的感染患者，他們的基因測序高度同源，同時也是德爾塔(Delta)變異毒株，應該說這起感染與南京的感染沒有關聯。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027123411im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/新冠肺炎-疫苗接種-20210805190736_23e1_large.png" alt="">
+<figcaption>教育部和衛健委兩部門發佈通知，要求各地和學校分批推進疫苗接種工作。央視截圖</figcaption>
+</figure>
+
+當局近日都頻頻催谷民眾接種疫苗，例如廣西政府，要求18至59歲在職人士接種覆蓋率要達到95%，日後出入商場超市、乘搭公共交通工具等，都會有人檢查接種記錄。教育部和衛健委則要求，全國推進適齡人群的疫苗接種工作，指師生健康狀況要達到學校防疫要求方可返校。
+
+### 國產疫苗能對抗Delta？
+
+<figure>
+<img src="https://web.archive.org/web/20211027123411im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/新冠肺炎-科興疫苗-20210805190717_2762_large.png" alt="">
+<figcaption>圖為科興疫苗生產線。央視截圖</figcaption>
+</figure>
+
+不過當局基因排序發現，這波疫情大部分都是Delta變種病毒。美國《華盛頓郵報》上月末引述美國疾控中心的內部文件，指Delta如水痘般，平均可以1傳8至9人，相比原始病毒1傳2人，傳染力更高。國產疫苗能否對抗Delta疫情呢？
+
+上海市新冠肺炎臨床救治專家組組長張文宏指，疫苗具保護作用。
+
+> 「在這種情況下，很多人會產生一種失敗的幻覺，覺得病毒一再變異，我們是沒有辦法了。疫苗對Delta毒株引起的重症化和死亡是出現急劇的下降，也就是說，我們現在的疫苗，對於Delta毒株的保護作用是毋庸置疑的。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027123411im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/疫苗接種-鍾南山-20210805190755_1128_large.jpg" alt="">
+<figcaption>鍾南山指國產疫苗對有效預防感染Delta變種病毒，對重症的保護率更是百分之百。央視截圖</figcaption>
+</figure>
+
+呼吸病學專家鍾南山早前亦研究了5月廣州疫情的153個Delta病例，強調國產疫苗預防感染的保護率達63%、預防重症更是100%。
+
+> 「在廣州搶救了13個重症病人，4個上ECMO（人工心肺），全部存活。這13個重症裏頭，沒有一個打疫苗，就得了重症。這個就首次在真實世界說明了，這個打疫苗、打國產的全病毒滅活疫苗是有效的，所以應該打。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027123411/https://hkcnews.com/aboutus/#subscribe)

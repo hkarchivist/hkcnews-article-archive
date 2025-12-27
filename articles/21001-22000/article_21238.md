@@ -1,0 +1,87 @@
+---
+title: "We are back 雨傘再現　一場沒有大台的反送中攻防戰"
+date: "2019-06-13"
+last_updated: "2019-06-13 02:06:41"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "雨傘革命"
+  - "雨傘運動"
+  - "umbrella movement"
+  - "umbrella revolution"
+  - "反送中"
+  - "包圍立法會"
+url: "https://web.archive.org/web/20210924082859/https://www.hkcnews.com/article/21238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21243/we-are-back-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/21238/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-21243/we-are-back-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# We are back 雨傘再現　一場沒有大台的反送中攻防戰
+
+原定《逃犯條例》修訂草案上立法會大會恢復二讀前夕，金鐘一夜無眠。一場大規模的抗爭，蠢蠢欲動，等待著天明。
+
+周三早上8時許，集結於立法會外的多名市民相繼衝出夏愨道，以鐵馬砌成路障，佔據夏愨道東西行車線，人海隨之迅速填滿馬路，還有添美道、龍和道、海富橋、中信橋，都是反送中人群。
+
+警員多次嘗試阻止市民推進，出動「停止衝擊　否則使用武力」紅旗、胡椒噴霧、催淚彈、布袋彈、橡膠彈。示威者戴上口罩，由後排向前排、由橋上向橋下傳遞雨傘抵擋，人海中開出一把把傘。
+
+海富天橋吊著「主流民意　林鄭下台」直幅。香港人沒有忘記的2014年的「一起舉傘」場面，瞬間重現眼前。
+
+<figure>
+<img src="https://web.archive.org/web/20210924082859im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/金鐘-反逃犯條例集會-20190612105927_fcf2_large.jpg" alt="">
+<figcaption>香港人熟悉的佔領場面，周三重現金鐘。美聯社圖片</figcaption>
+</figure>
+
+佔領區彷彿自生而成。來者自覺帶備各類物資，然後有人在各處組織物資站，而各個物資站與防線互相協調，傳遞物資。「膠帶呀，傳去前面。」佔領區內的人群自動充當人肉輸送鏈。不消兩小時、早上10時前，佔領區已經成形，急救站、物資站遍布多個角落，雨傘、眼罩、口罩、保鮮紙、膠帶、食水、乾糧、生理鹽水等，應有盡有。
+
+到下午，政總連儂牆再現。據樓梯旁的急救站人員指，下午一時許，一名中年男子帶了黑色膠紙及memo紙到場，用黑色膠紙貼出「連儂牆」三字，附近人群迅速加入，在memo紙上寫字：「We’ll be back」、「...and we are back」、「自己香港自己救」、「反送中」、「I LOVE HONG KONG」、「守護香港」……一人一句，重新砌出一道彩虹牆。
+
+<figure>
+<img src="https://web.archive.org/web/20210924082859im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/逃犯條例-包圍立法會-20190612141158_1842_large.jpg" alt="">
+<figcaption>政總連儂牆下午再現。吳婉英攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210924082859im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/包圍立法會-逃犯條例-20190612145300_1bd9_large.jpg" alt="">
+<figcaption>市民在memo紙上「We’ll be back」、「...and we are back」、「反送中」等字句，張貼於連儂牆。吳婉英攝</figcaption>
+</figure>
+
+與2014年佔中不同的是，周三的金鐘佔領區再無大台，市民自動自覺準備物資、走位，並互相補位。夏愨道有一名戴口罩的少女嗌咪：「行入去啦」、「唔好留喺夏愨道，呢度夠人喇」、「戰場喺入面」。沿添美道內進，大部分市民都戴著口罩，保持高度警覺。
+
+兩名戴上口罩、不欲透露身份的急救站人員，向記者表示，6.12只是「第一日」（指立法會審議《逃犯條例》修訂及街頭抗爭的首天），到中午時份，物資已相當充足，而他們預計有機會被警方清走，呼籲民眾不必一下子帶大量物資前來支援。面對清場，他們已有打算：「人身安全係首位，物資就帶得幾多帶幾多。」好些物資站人員、示威者不願受訪，「我哋冇組織㗎，唔好意思呀。」
+
+他們，不是經常上鏡的社運青年、政黨成員。身穿黑白衣服的他們，口罩背後是一張張不為人熟悉的年輕面孔，也就一代的香港青年。
+
+<figure>
+<img src="https://web.archive.org/web/20210924082859im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/反逃犯條例集會-金鐘-20190612111131_2981_large.jpg" alt="">
+<figcaption>無大台、無社運領袖的指示，示威者自動自覺分工布防及開拓佔領範圍。美聯社圖片</figcaption>
+</figure>
+
+夏愨村的帳篷未及築起，下午3時許，警方已開始在立法會煲底及添美道中信大廈一帶投下多枚催淚彈，並施放胡椒噴霧，示威者紛紛張開雨傘遮擋。戴防毒面罩、配備圓盾及警棍的速龍小隊在夏慤道及龍和道展開清場，期間多次施放催淚彈，更向示威者發射布袋彈及橡膠子彈。遇襲的人群如潮水，退下，重整，再迎上去。一次又一次，沒有社運領袖發指示，示威者互相提醒：「戴口罩、戴眼罩」、「唔好背對敵人呀」、「大家過返去啦」還有互相照顧：「有無遮」、「有冇人有哮喘藥呀？」、「呢度有」「去嗰邊、 去嗰邊」。吸入催淚彈的市民除下口罩、眼罩後，旁邊的人會為他們的眼鼻沖水或噴生理鹽水。
+
+
+{{< video src="https://web.archive.org/web/20210924082859if_/https://www.youtube.com/embed/CIQJ1AAvA90" >}}
+
+
+<figure>
+<img src="https://web.archive.org/web/20210924082859im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/包圍立法會-逃犯條例-20190612162824_2da2_large.jpg" alt="">
+<figcaption>警方投下催淚彈後，龍和道示威者紛紛走避。吳婉英攝</figcaption>
+</figure>
+
+龍和道的示威者退至添華道交界，一度與速龍小隊對峙。一輪指罵與沉默後，示威人群最前方的一名青年憤然高喊：「我19歲，過幾個月要去外國讀書㗎喇。」旁邊另一男生接著喊：「我17。」在場人群聽罷，未刻傷春悲秋，那邊夏愨道便傳來一陣騷動，人群開始向中環方向走避，龍和道的示威者退至夏愨道，隨即在夏愨道與添華道交界布置鐵馬陣，示威者分布在夏愨道地面及行車天橋。
+
+有不同配備的警員陸續在夏愨道與添華道交界的鐵馬陣後集結，多次向地面及天橋的人群投放催淚彈，甚至開槍，好幾次未有舉「警告　催淚煙」黑旗、毫無預警，便向示威者進攻。示威者愈發冷靜面對催淚彈，好幾次催淚彈落地，示威者不再走避，而是用頭盔等物件將催淚彈蓋住，甚至有辦法將催淚彈反擲向警方。槍林彈雨期間，有一人突然倒臥於夏愨道路面，疑似中槍，多名警員隨即走出來，將傷者拖入警察堆中，等侯救護車。夏愨道近金鐘分向被清場後，往中環方向部分兩面受敵，亦逐步被清場。
+
+
+{{< video src="https://web.archive.org/web/20210924082859if_/https://www.youtube.com/embed/6-oYgQ_s6yE" >}}
+
+
+人群晚上退至中環一帶，在美國銀行中心對出的馬路與警方對峙。警方多次舉黑旗及施放催淚彈，惟人群完全無退意，甚至迎著催淚煙向前，一路高呼「撤回」。
+
+夜未央，中環現場人頭仍湧湧，警民攻防戰未止......
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924082859/https://www.hkcnews.com/aboutus/#subscribe)

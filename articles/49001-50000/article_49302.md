@@ -1,0 +1,60 @@
+---
+title: "投票率較上屆立法會、區議會同一時段低　多個選民投票後在票站外「打卡」"
+date: "2021-12-19"
+last_updated: "2021-12-19 13:52:06"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "投票率"
+  - "2021立法會選舉"
+url: "https://web.archive.org/web/20220518031352/https://hkcnews.com/article/49302/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49308/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49302/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49308/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 投票率較上屆立法會、區議會同一時段低　多個選民投票後在票站外「打卡」
+
+投票站朝早八時半開始運作，大部分票站都未見有人龍。截止早上十二時半，投票率是12.08%，有54萬人投票。上屆立法會選舉截止同一時段投票率是14.99%，2019年區議會選舉同一時段是30.98%。不過今屆投票由朝早八時半開始，以往投票時7時半開始。
+
+行政長官林鄭月娥朝早到高主教書院投票後見記者，她形容兩年前的區議會選舉，社會情況是「黑暴亂象」，又指每個踏入票站的人要擔心人身安全、「 這個不是一場香港願見的選舉，這個不是一場民主選舉，今天我見到秩序很好，人們都很放心來投我們一票。希望為香港長治久安作出一個更好的基礎。」對於投票率，她指特區政府對於每一場選舉均不會設定投票率目標，但呼籲公眾投票。
+
+翻查資料2019年區議會選舉投票率是歷來最高，達到71.23%。當時多個票站都大排長龍，有些票站甚至要延遲關門。
+
+有多個選民投票後在票站外自拍，眾新聞記者查詢時對方不願意做訪問，沒有回應是為「打卡」抑或其他用途。有市民就表示沒有收到選舉投票通知，去錯地址，希望選舉過程更清晰。對於有民調指今屆選舉，市民的投票意欲不高，市民說這是很個人的想法，對他沒有影響。有選民直言，覺得投票率會下跌，「我覺得啲後生有個錯嘅觀念，政府做咩都要反對。你地係咁叻就加入政府，搵合法嘅方式改變政府。」
+
+<figure>
+<img src="https://web.archive.org/web/20220518031352im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/投票站-20211219114452_1b11_large.jpg" alt="">
+<figcaption>有選民投票後在站外「打卡」，但就不願意接受訪問。伍銘熙攝</figcaption>
+</figure>
+
+新一屆立法會選舉日，在荔枝角社區會堂，上屆立法會是投票率最高的票站，達到77%。朝早開門未見人龍，有投票選民指：「你係咪香港人？係香港人就應該投票。唔能夠話政見唔啱就唔投票。」他又認為投票率肯定跌，因年輕人和政見不同的會不去投票。「我覺得啲後生有個錯嘅觀念，政府做咩都要反對。你地係咁叻就加入政府，搵合法嘅方式改變政府。」
+
+眾新聞記者在票站外觀察了個多小時，發現多人投票後都在票站外拍照。記者上前查問為何要拍照，但他們都不願意接受訪問。
+
+<figure>
+<img src="https://web.archive.org/web/20220518031352im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/投票站-20211219120706_6bd5_large.jpg" alt="">
+<figcaption>有特務警察及警員在票站內駐守。張凱傑攝</figcaption>
+</figure>
+
+在藍田票站外，有市民沒有收到選舉投票通知，去錯地址，希望選舉過程更清晰。對於有民調指今屆選舉，市民的投票意欲不高，他說這是很個人的想法，對他沒有影響。
+
+在藍田聖保祿中學票站，有特務警察駐守。剛投票後的黃先生說，投票過程有點「棘手」，因為沒有收到選舉投票通知信，去錯了另一個票站聖愛德華天主教小學，找不到正確的地址。經票站查核他的個人資料後，再轉到正確的票站，他認為「清晰啲」會更好。
+
+今次選舉，改用電子選民登記冊，黃生先說，不用劃線，理應是快了，但始終無收到選舉投票信，令他不知道去哪投票站。
+
+<figure>
+<img src="https://web.archive.org/web/20220518031352im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/投票站-20211219120653_12c3_large.jpg" alt="">
+<figcaption>有市民表示收不到投票通知書致去錯票站。張凱傑攝</figcaption>
+</figure>
+
+他說，早上11時許這段時間，感覺暢順，不算多人。他在上屆2016年換屆選舉及2019年區選都有投票，但他認為，跟以往相比，選舉氣氛差不多，過程都算暢順。對於有民調指今屆選舉，市民的投票意欲不高，他說這是很個人的想法，又希望候選人真正為市民服務。
+
+行政長官林鄭月娥指，政府並無為選舉的投票率訂下目標，又提到早前自己接受傳媒訪問時，被問到會否擔心投票率低，她當時解釋並不擔心，因投票率受很多因素影響，包括政府，社會及經濟環境，當中其中一個說法是，與投票時政府的管治及行為有關，呼籲大家不必過份解讀。她又形容兩年前的區議會選舉，社會情況是「黑暴亂象」，又指每個踏入票站的人要擔心人身安全、「 這個不是一場香港願見的選舉，這個不是一場民主選舉，今天我見到秩序很好，人們都很放心來投我們一票。希望為香港長治久安作出一個更好的基礎。」對於投票率，她指特區政府對於每一場選舉均不會設定投票率目標，但呼籲公眾投票。
+
+<figure>
+<img src="https://web.archive.org/web/20220518031352im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/林鄭月娥-20211219105416_1770_large.jpg" alt="">
+<figcaption>林鄭月娥到票站投票。美聯社圖片</figcaption>
+</figure>

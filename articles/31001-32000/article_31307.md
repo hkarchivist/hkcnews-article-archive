@@ -1,0 +1,85 @@
+---
+title: "【立會選舉】29歲區議員兼補習老師蔣旻正出戰教育界：俾教協知道，進步派聲音有幾大"
+date: "2020-07-06"
+last_updated: "2020-07-06 00:15:18"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "教協"
+  - "2020立法會選舉"
+  - "蔣旻正"
+url: "https://web.archive.org/web/20210726232809/https://www.hkcnews.com/article/31307/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31645/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31307/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2020%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31645/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD29%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【立會選舉】29歲區議員兼補習老師蔣旻正出戰教育界：俾教協知道，進步派聲音有幾大
+
+有意出選立法會教育界功能組別選舉、本土派北區區議員兼補習老師蔣旻正接受眾新聞訪問時，指自己是攬炒派，當選後即使財政預算案會綑綁教育開支，他都會否決，「我覺得危急存亡架啦，唔可以再貪圖安逸的日子，呢個時候退，香港就變下一個新疆。」
+
+港區國安法正式生效後，他再回覆查詢時表示不會改變攬炒、否決預算案的立場，認為他的參選，變相可以讓教育界投不信任票予中共及作風保守的教協，「想俾教協知道，呢班進步教師的聲音有幾大。」
+
+29歲的蔣旻正，大學畢業後當上補習老師，他是那種著重形象的補習天王，街上可見他的大頭廣告。沒有日校教師經驗的他認為，素人身分、沒包袱是他的優勢，「就係要橫衝直撞，有個改革決心。」
+
+蔣旻正的辦公室曾擺放「光復香港  時代革命」的旗幟，如今這句口號已成政權眼中的禁忌。蔣說，近日已將該旗收起，以免辦公室職員遭人滋擾，他亦正與團隊商量日後會否繼續用「光時」做宣傳，「想堅持，因為光時代表本土派核心價值。但始終背負一班進步老師的支持，我要問他們意見。」
+
+蔣旻正本有意與競逐連任的教協葉建源初選，但教協早前已表明不參加。蔣旻正堅持在正式選舉去馬，知道勝算不高、政權也有機會DQ他，甚至影響其區議員議席。他指，選舉的重要在於那是教育界進步派和保守派的表態，已有代表進步派的「Plan B」人選準備隨時代他上陣。
+
+相關文章： [【立會選舉】蔣旻正不滿葉建源保守、立場不夠強硬　教協：進步與否非口號定義](https://web.archive.org/web/20210726232809/https://www.hkcnews.com/article/31573/%E8%94%A3%E6%97%BB%E6%AD%A3-2020%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-%E6%95%99%E5%8D%94-31573/%E3%80%90%E7%AB%8B%E6%9C%83%E9%81%B8%E8%88%89%E3%80%91%E8%94%A3%E6%97%BB%E6%AD%A3%E4%B8%8D%E6%BB%BF%E8%91%89%E5%BB%BA%E6%BA%90%E4%BF%9D%E5%AE%88%E3%80%81%E7%AB%8B%E5%A0%B4%E4%B8%8D%E5%A4%A0%E5%BC%B7%E7%A1%AC-%E6%95%99%E5%8D%94%EF%BC%9A%E9%80%B2%E6%AD%A5%E8%88%87%E5%90%A6%E9%9D%9E%E5%8F%A3%E8%99%9F%E5%AE%9A%E7%BE%A9)
+
+<figure>
+<img src="https://web.archive.org/web/20210726232809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/2020立法會選舉-蔣旻正-20200623212533_47e8_large.jpg" alt="">
+<figcaption>蔣旻正在上水翠麗花園的區議員辦事處，當眼處放了一支「光復香港　時代革命」的旗幟，相片攝於港區國安法生效前，如今旗幟已收起。周滿鏗攝</figcaption>
+</figure>
+
+蔣旻正是北區鳳翠區議員，但不是很多人認識他，較惹人熱議的新聞是今年5月中，他到考評局外下跪，懇求局方拒絕取消中學文憑試歷史科試題。蔣旻正向記者解釋那是行為藝術，皆因當時只有他單人匹馬到考評局請願，「咁多人叫我唔好跪，咁我希望你哋將『唔好跪』呢個訊息，轉俾蘇國生 （考評局秘書長）。」
+
+作為補習老師教DSE中文科的他，形容對考評局有很深的情意結，「無論蘇國生定唐創時，都係我好尊重的人」、「中文科的考評報告，我每一隻字都睇過，我睇過4、5次，對考評局有好另類的歸屬感，當然有時會鬧佢啦，但大部分時間都係會尊敬欣賞其專業。 教育局向考評局施壓係極荒謬的事，天方夜譚。」
+
+蔣旻正畢業於香港中文大學中國語言及文學系學士和碩士課程，指因為不喜歡正規學校論資排輩的風氣，便加入了遵理學校當補習老師，成為著名中文科補習老師林溢欣的學術團隊其中一員。去年他受反修例運動影響，以素人身份出戰上水鳳翠選區，結果擊敗民建聯廖興洪，結束了鄉事派長年壟斷該區的局面。
+
+<figure>
+<img src="https://web.archive.org/web/20210726232809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/蔣旻正-2020立法會選舉-20200623223258_1c19_large.jpg" alt="">
+<figcaption>蔣旻正上月中到考評局外下跪，要求局方拒絕取消DSE歷史科試題。蘋果日報圖片</figcaption>
+</figure>
+
+蔣旻正有意挑戰由教協長期壟斷的教育界議席，但他直言勝選機會不大。他透露，負責協調初選的港大法律系副教授戴耀庭與他商討時，曾估計教育界中保守派和進步派教師得票比例有機會是6：4。蔣旻正認為，他的參選，能夠令進步派藉此表態，較選舉的實際意義更大，「就算最後9：1都好，話番俾全香港睇一個現象，教育界未必咁支持運動，未必站在前線。其實教育界可能都係好保守，但呢個實情要話俾香港人知。」他希望透過今次機會，有助日後決定教育界改革的路線。
+
+他明言，即使勝出的機會極細，甚至有可能因為參選被取消區議員資格，犧牲政治前途，也要堅持出選今屆立法會選舉，「素人無任何政治包袱，我連政治潛規則都唔理（他所指的，是當日公開和戴耀廷的WhatsApp對話截圖討論初選是否有找教協）」、「素人就係要橫衝直撞，有個改革的決心，諗都諗到，我出來選一定有人話我係熱狗，站喺政治前途的角度一定唔會出來選。」
+
+「以前啲人話棄車保帥，但而家係棄帥保車，而家就係選一個人入立法會衝。所以我覺得做好晒心理準備」、「如果四年後，香港都無改變，四年後我可能已經意興闌珊，我都唔想再連任區議員。」他直言，自己屬「本土派」和「攬炒派」，當選後即使財政預算案會綑綁教育開支，他都表明會否決，「 我覺得危急存亡架啦，唔可以再貪圖安逸的日子，呢個時候退，香港就變下一個新疆。」
+
+港區國安法6月30日晚上11時正式生效，他之後再回覆查詢時指，不會改變攬炒、否決預算案的做法，「而家的立法會選舉唔再係制度入面改變呢件事，因為中共唔會再理國際咁樣去硬推，我覺得立法會的參考價值唔係太大，反而係一個變相公投。」他認為他的參選，變相讓教育界投不信任票予中共及作風保守的教協。
+
+港府日前發聲明指「光復香港  時代革命」口號在今時今日有港獨、或顛覆國家政權的含意。過去多名區議員均有以「光時」作口號、政治宣傳及政綱。6月訪問當天，蔣的辦公室都當眼處擺放了「光復香港   時代革命」的旗幟，他之後回覆稱，近日亦已將該旗收起，以免其辦公室職員遭人滋擾。他亦正與團隊商量日後會否繼續用「光時」做政治宣傳，「想堅持，因為光時代表本土派核心價值。但始終背負一班進步老師的支持，我要問他們意見。」
+
+紅線隨時延伸，蔣旻正說，即使不再高叫「光時」口號，早已有心理準備會被DQ，「而家國安法咁雷厲風行，其實都係盡量捱到幾耐」、「更加希望的是我哋被DQ，可以喚醒更加多人來反國安法。」他說，進步派老師團隊有Plan B人選，但現階段不方便透露。
+
+<figure>
+<img src="https://web.archive.org/web/20210726232809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/蔣旻正-2020立法會選舉-20200623222541_6922_large.png" alt="">
+<figcaption>蔣旻正出選教育界的消息一出後，有自稱教協會員的人去信勸退他，指「二虎相鬥  必有一傷」。周滿鏗攝</figcaption>
+</figure>
+
+### 教協拒初選　蔣旻正：「時間倉促」說不過去
+
+不過，教協早前表明拒絕初選，解釋指較早前已完成會員諮詢，支持現任議員葉建源尋求連任。根據教協網頁，「教協理事會於4月15日起，向全體會員進行為期28天的語音調查，徵詢會員對推薦教協副會長、現任立法會教育界議員葉建源代表教協，參加 2020 年立法會教育界選舉的意見。在語音調查中，回答問題的會員共5,783人，回答率為16.17%，扣除無意見及無效回覆，贊成的會員佔86%，反對的會員佔14%。」
+
+外界亦盛傳教聯會副主席兼將軍澳香島中學校長鄧飛會代表建制派出選，蔣旻正出選或有分簿票源、助長建制派漁人得利的可能。蔣指出，上屆立法會選舉，教協葉建源以45,984票，大比數拋離對手，教聯會的蔡若蓮僅得18,158票。即使他分簿最多一半票源，民主派的票數仍然比建制派還多，「如果建制都拎到2萬幾票，都幾失望。區選咁樣的情況，我哋連民建聯都可以撃敗，如果呢個情況都係俾建制漁人得利，成個中共咁樣打撃、蹂躪教育界，都可以有2萬幾人投去建制，我都好失望，如果有咁嘅結果，教協係負上全責。」蔣旻正認為，衛生服務界功能組別都能夠協調初選，教協聲稱「時間倉促」說不過去。
+
+<figure>
+<img src="https://web.archive.org/web/20210726232809im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/蔣旻正-2020立法會選舉-20200623222522_1575_large.jpg" alt="">
+<figcaption>一班抗爭者在去年示威遊行期間，舉起傘陣站在蔣旻正 （背景相右一）的補習學校廣告牌之下。蔣旻正很記得這張相片，有人寫下這句相片說明：「讀萬卷書，不如行萬里路」，讓他感受良多。Marcus Cheung攝</figcaption>
+</figure>
+
+當選區議員至今，蔣旻正沒有放棄補習老師的工作，認為可以了解考生需要和教育議題，「唔想見到同學生的聯繫流失，所以補習係幾適合，你做日校一定無時間做區議員。」他很感恩自決定參選至今，補習學校方面沒有為難他或向他施壓。
+
+港版國安法日前正式生效，蔣旻正多次高調表態要「攬炒」、「光復香港」，他坦言自己已經有被取消參選資格或被捕坐監的心理準備，「希望激起社會上更加多的人，因為無理的事而企出來，真係有全民的聲音，人民憤怒激發到政府必須改變。」
+
+蔣旻正很記得，他到壁屋探望過的每位手足，當中不乏名校生，也有學校禁止老師探望在囚學生，也有認真讀書的學生，卻錯失了今年考DSE的機會，「點解香港前途係要由考DSE的學生爭取番來？如果有人怪責學生放棄學業，我想反問呢班人點解要呢班學生去衝？」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726232809/https://www.hkcnews.com/aboutus/#subscribe)

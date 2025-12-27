@@ -1,0 +1,59 @@
+---
+title: "如何分散風險？台灣果農：番鬼茘枝直售香港及新加坡"
+date: "2021-09-22"
+last_updated: "2021-09-22 17:18:23"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+url: "https://web.archive.org/web/20211205081950/https://hkcnews.com/article/45696/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45700/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45696/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45700/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 如何分散風險？台灣果農：番鬼茘枝直售香港及新加坡
+
+相較於多數台東果農將9成以上鳳梨釋迦出口到中國，原本在都市工作的李俊儀，選擇返鄉當起小農，先從父親助手當起，而且，早就看出市場過度集中中國的風險。他選擇採用有機方式栽種，主要以台灣內銷為主，雖偶爾會出口到中國，但數量極少，反而開拓直銷到香港和新加坡市場。
+
+**相關新聞：**
+
+[番鬼荔枝、蓮霧禁令風暴　台東果農憂衝擊前所未見　中共為何連藍營鐵桿縣都下手？](https://web.archive.org/web/20211205081950/https://bit.ly/3AKGRZj)
+
+<figure>
+<img src="https://web.archive.org/web/20211205081950im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/世界貿易組織-限制出口-兩岸關係-20210921082612_212f_large.jpg" alt="">
+<figcaption>果農李俊儀栽培的釋迦以內銷為主，外銷部分則開拓直銷香港和新加坡市場。李俊儀提供</figcaption>
+</figure>
+
+李俊儀說，當多數果農選擇出口到中國時，他認為自己未必佔有優勢；而且，不出口到中國，就可以分攤風險；他說，其實果農自己也知道，將所有投資放在同一個籃子裡，風險太大，但可能一時也無力改善。
+
+李俊儀說，他出口到香港、新加坡的方式，就是盡可能縮短中間的交易流程，讓鮮果可以直接送到消費者手上，也就是door to door的方式；目前出口量佔總產量約1成多；跨國交易部分，因牽涉較為複雜的物流與金流，所以選擇與電商平台合作，目前主要透過「台灣好農國際館」銷售，每3公斤裝約3百多元港幣，包含運費等所有費用。
+
+李俊儀除了選擇分散風險，對於栽種也有所堅持，他說，選擇有機栽種釋迦，就是因為自己喜歡這塊土地，喜歡自己的家鄉，不希望這個土地因為過度生產而犧牲環境與生態，所以，他生產的最高原則就是在維持產量不變差的情況下，以「草生栽培」理念，生產但不犧牲生態；秉持這樣的信念，讓他不只可以維持釋迦品質，也脫離此次禁令風暴，遭遇最小的衝擊。
+
+<figure>
+<img src="https://web.archive.org/web/20211205081950im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/兩岸關係-世界貿易組織-限制出口-20210921005129_1813_large.png" alt="">
+<figcaption>果農李俊儀選擇有機栽種釋迦，避免土地因過度生產而破壞環境與生態。取自農委會YouTube網頁</figcaption>
+</figure>
+
+同樣主打國內市場、免受中國禁令影響的，還有為台南市歸仁區的釋迦，這裡栽種的品種為大目釋迦，每年約90萬噸產量，全都供做內銷；眾新聞不到中午時分詢問歸仁吳清水釋迦園，是否還有釋迦可賣？老闆娘說，他們的釋迦都是當天現採現賣，一大早採收，已經賣完了；若要買，得前一天先預訂才買得到。
+
+**台灣鳳梨釋迦訂購通路（預計約12月為產期）：**
+
+李俊儀Line ID：Ken0912150550
+
+[台灣好農國際館](https://web.archive.org/web/20211205081950/https://www.facebook.com/WonderfulFoodSelect)
+
+[阿信釋迦園](https://web.archive.org/web/20211205081950/https://www.facebook.com/%E9%98%BF%E4%BF%A1%E9%87%8B%E8%BF%A6%E5%9C%92-1519051428363068/)
+
+[台東斑鳩冰品](https://web.archive.org/web/20211205081950/https://www.facebook.com/bjicecream)
+
+[台南歸仁吳清水釋迦園](https://web.archive.org/web/20211205081950/https://www.facebook.com/WuShakyaFarm)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211205081950/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,94 @@
+---
+title: "監警會前國際專家：警方行動激化示威者　元朗7.21不作為警隊正當性崩潰"
+date: "2020-11-19"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "監警會國際專家"
+  - "Clifford Stott"
+url: "https://web.archive.org/web/20210712052626/https://www.hkcnews.com/article/35755/clifford_stott-%E7%9B%A3%E8%AD%A6%E6%9C%83%E5%9C%8B%E9%9A%9B%E5%B0%88%E5%AE%B6-35755/%E7%9B%A3%E8%AD%A6%E6%9C%83%E5%89%8D%E5%9C%8B%E9%9A%9B%E5%B0%88%E5%AE%B6%EF%BC%9A%E8%AD%A6%E6%96%B9%E8%A1%8C%E5%8B%95%E6%BF%80%E5%8C%96%E7%A4%BA%E5%A8%81%E8%80%85-%E5%85%83%E6%9C%97721%E4%B8%8D%E4%BD%9C%E7%82%BA%E8%AD%A6%E9%9A%8A%E6%AD%A3%E7%95%B6%E6%80%A7%E5%B4%A9%E6%BD%B0"
+original_url: "https://www.hkcnews.com/article/35755/clifford_stott-%E7%9B%A3%E8%AD%A6%E6%9C%83%E5%9C%8B%E9%9A%9B%E5%B0%88%E5%AE%B6-35755/%E7%9B%A3%E8%AD%A6%E6%9C%83%E5%89%8D%E5%9C%8B%E9%9A%9B%E5%B0%88%E5%AE%B6%EF%BC%9A%E8%AD%A6%E6%96%B9%E8%A1%8C%E5%8B%95%E6%BF%80%E5%8C%96%E7%A4%BA%E5%A8%81%E8%80%85-%E5%85%83%E6%9C%97721%E4%B8%8D%E4%BD%9C%E7%82%BA%E8%AD%A6%E9%9A%8A%E6%AD%A3%E7%95%B6%E6%80%A7%E5%B4%A9%E6%BD%B0"
+---
+
+# 監警會前國際專家：警方行動激化示威者　元朗7.21不作為警隊正當性崩潰
+
+**監警會前國際專家小組成員、英國基爾大學教授Clifford Stott在學術期刊撰文，表示警方在去年示威不當及無差別（illegitimate and undifferentiated）的行動，反而凝聚示威者，為更激進行動充權（empower），元朗7.21當日等警方不作為更導致警隊正當性完全崩潰。**
+
+**有別於傳統學術及中港官方認為，示威者中可能有激進或搞事份子「騎劫」群眾，Stott從群眾心理分析指出，警方在對抗或騷亂中並非只是中立角色，而是認為政府未及時押後逃犯條例二讀、警方6月12日在金鐘中信大廈外向和平示威群眾開催淚彈，及其後錯失降溫時機等，都左右示威群眾的想法及其後衝突的發展。**
+
+**Stott接受眾新聞訪問指出，警方誤解警民衝突中群眾心理，並提醒警方首要工作，是協助維護人權及言論自由，協助集會進行。**
+
+<figure>
+<img src="https://web.archive.org/web/20210712052626im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/監警會-Clifford%20Stott-20201119180620_6b77_large.png" alt="">
+<figcaption>Clifford Stott受訪時質疑，警方及政府一直處理失當。眾新聞圖片</figcaption>
+</figure>
+
+Stott及多名海外監警專家去年指監警會欠缺調查權等，退出監警會審視警方處理示威手法工作。在監警會發表報告後，Stott在5月時表示，將自行撰寫報告檢視警方行動，最終延至11月中在牛津大學出版社 [*Policing*](https://web.archive.org/web/20210712052626/https://bit.ly/3kEPb3K) 期刊發表。參與研究的包括教育大學警政學者何家驥等。
+
+[Patterns of ‘Disorder’ During the 2019 Protests in Hong Kong: Policing, Social Identity, Intergroup Dynamics, and Radicalization](https://web.archive.org/web/20210712052626/https://bit.ly/3kEPb3K)
+
+外界原先預期，這份與監警會分庭抗禮的文章將大篇幅觸及警方使用武力及侵犯人權指控。但實際上，Stott文章主要解答的問題，「點解香港民主運動由多數大型和平示威，轉向更動態及集體暴力衝突」？（why is it that the pro-democracy movement in Hong Kong transitioned from pre-dominantly large-scale peaceful mass processions towards more dynamic and increasingly collectively violent confrontations?）
+
+文章根據在香港及英國訪問17名曾經參與示威的被訪者、中大李立峯團隊示威現場調查、及監警會報告，研究群眾心理及對警方行動的看法，從而分析警方決策如何令示威由和平轉向使用武力。這也是補充監警會只是根據傳媒報道及警方紀錄，而無從示威者角度看示威的空白。
+
+Stoff在文章一開始指出，19世紀末學界分析群眾行為框架，往往會認定當中有煽動者或搞事份子，群眾不理性、容易受利用或為了政治目的而「被騎劫」，說法至今在政界及傳媒中仍廣為使用。
+
+但現代社會學的分析已推翻這種說法，認為群眾有共同的信念及身分認同，情況例如美國的「Black Lives Matter」運動，而且警方無差別對群眾使用武力，則會重塑群眾社會認同及集體行動，催生衝突及升級行動，群眾會將反政權「激進分子」視為他們一份子。
+
+Stott引述2004年自己有份參與另一篇文章說：「簡單來說，當警方以同等手法對待所有群眾，群眾就會將自己一視同仁；當警方將所有群眾視為反對者，他們就會視自己為團結的反對者。」
+
+（In short, ‘where the police treat all crowd members the same, they are likely to see themselves as all the same; where the police treat all crowd members as oppositional they are likely to see themselves as a united opposition’ ）
+
+<figure>
+<img src="https://web.archive.org/web/20210712052626im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/監警會-Clifford%20Stott-20201119180630_2951_large.png" alt="">
+<figcaption>Stott及多名學者研究去年香港示威中群眾心理變化。</figcaption>
+</figure>
+
+**Stoff等學者的最新文章將反修例示威主要分成三個階段分析變化：**
+
+**一、傳統和平示威遊行：2019年政府提出修訂《逃犯條例》，到6月12日立法會外的衝突，及同日警方向中信大廈示威者發射催淚彈**
+
+**二、示威者開始改變策略針對警方、警方卻採取被動策略回應：6月15日特首林鄭月娥宣布暫緩逃犯條例、示威者兩度包圍警察總部，至7月1日示威者一度佔領立法會；**
+
+**三、示威轉向流動性及更為激烈：7月上旬至11月，示威在全港多區蔓延至中文大學及理工大學衝突。當中，7月21日晚警方未即時介入元朗港鐵站白衣人襲擊示威者**
+
+調查在香港及英國訪問17名介乎20至45歲的示威者，當中有示威者認為警方在中信大廈外向有不反對通知書的民陣集會發放催淚彈，是完全不合理，部分身在現場的示威者也反映當時除了走入鎖了門的中信大廈，並無其他可見的逃生路線，幾乎造成人踩人。中信事件開始改變部分受訪示威者對警方的看法，有受訪者不再視警方為中立的執法者，而是為缺乏民意授權政府推行逃犯條例修訂、而使用武力的政治角色（political actors）。
+
+與此同時，示威者目標開始由撤回條例轉為表達對警方處理手法不滿，對更激進示威手法的支持度顯著上升。
+
+<figure>
+<img src="https://web.archive.org/web/20210712052626im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/12/催淚彈-尖沙咀-平安夜-20191225022352_1974_large.jpg" alt="">
+<figcaption>警方去年在示威中，多次施放催淚彈。Stott分析認為，示威者與警方互動陷入惡性循環。美聯社</figcaption>
+</figure>
+
+根據李立峯團隊現場調查，6月12日時只有38.2%支持激進示威手段可迫使政府聆聽民意，但在6月17日及21日，分別上升至53.2%及61.7%，在7月1日進一步上升至83.5%。「和理非」和「勇武」示威者之間當時團結，對激烈示威行為更見包容，文章引述有示威者認為，勇武抗爭手法如丟汽油彈是面對警方武力升級自衛，或是保護「和理非」。
+
+文章分析，6月12日是改變示威者行為及身分認同的「臨界點」（tipping point），形容警方向中信外和平示威者發放催淚彈做法，令示威者相信警方非法（illegitimate）和政治性，同時警方無差別及武力行動，也鞏固示威者中激進及對抗性的行動，激進示威者說服其他示威者不再和平示威，投身對抗行動。
+
+在第三階段，示威者透過在全港各區等流水式示威。文章分析，策略一方面在自己熟悉的地區示威，減低被捕的風險，同時，在商場及港鐵站等示威，也突出警方被認為濫用權力及地位的印象，「向更多人凸顯警方非法行為」。
+
+同時，警方元朗7.21行動中不作為及延遲到場，加深警員與施襲者「勾結」的懷疑，「在這背景下，幾乎導致警方的正當性完全崩潰，及促使示威者進一步激化行動」。
+
+文章提出三個示威結論：一、示威擴撒似乎攸關政治不公及警方處理的集體認同；二、示威對抗警方升級，似乎是基於認為手段有效；三、警方行動及不作為加劇示威者認為警方行動非法。「警方的策略只令全港抗爭合理化及充權，刺激警方更大打壓，直至12月理工大學包圍才打破這個循環。」（Police tactics then served to legitimize and empower escalating acts of community resistance which amplified ever more intensive forms of police repression until the cycle was broken following the siege of the Polytechnic University in December.）
+
+Stott接受眾新聞訪問時批評，警方及特區政府多次應對失當，例如警方7月1日中由立法會撤守，及政府在6月9日繼續堅持二讀逃犯條例修訂，錯失降溫的良機，反而令群眾產生「騷亂心理」的自然反應。
+
+他解釋，警方無差別地對示威者，例如6月12日中信事件，則會激化人群的反應，及進一步團結不同光譜的示威者，最終五大訴求中有三個訴求都與6月12日衝突及中信事件有關。「我們會認為，警方今日都缺乏令事件降溫的能力」。
+
+翻查資料，在示威者7月1日衝入立法會後，特首林鄭月娥、保安局局長李家超及時任警務處長盧偉聰，都先後批評示威者暴力方式表達意見。李家超更警惕，要小心別有用心、暴力傾向人士參與公眾活動。監警會主席梁定邦去年8月接受《南華早報》專訪時提及，是分開群眾中和平示威者及搞事份子。
+
+但Stott指出：「要明白這一連串事件為何會發生，光煽動者一說，是有問題解釋不到的。這也不是分隔煽動者或所謂搞事者的問題。到底他們是誰呢？」
+
+「我們知道科學上，警方行動方向及策略介入對群眾活動有巨大影響⋯⋯我們的工作是要去破解（搞事份子）這些誤解，取而代自是理解（群眾間社會影響）的過程，好讓政府及及警方可以防止衝突、暴力及事態再次升級。」
+
+他無解釋警方可以怎樣重建公信力，只是分享他去年與監警會國際專家小組Denis O’Conor分別與30多名警方高級指揮官會面，講解警方正當性及群眾互動。
+
+「我不相信警方有將任何一個字聽入耳。」Stott如是說。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712052626/https://www.hkcnews.com/aboutus/#subscribe)

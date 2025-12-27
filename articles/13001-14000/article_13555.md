@@ -1,0 +1,82 @@
+---
+title: "錯誤之五：暴露了中共的地下工作網絡"
+date: "2018-07-13"
+last_updated: "2018-07-14 05:07:43"
+author: "香港六七暴動始末—解讀吳荻舟"
+category: "眾說"
+tags:
+  - "消失的檔案"
+  - "解讀吳荻舟"
+  - "香港六七暴動始末"
+url: "https://web.archive.org/web/20221002233755/https://www.hkcnews.com/article/13555/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13574/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13555/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13574/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 錯誤之五：暴露了中共的地下工作網絡
+
+**《香港67暴動始末 ---- 解讀吳荻舟》內容簡介之八**
+
+在解讀吳荻舟文稿的過程中，筆者發覺中共在香港有一套綿密的地下工作系統，而在1967年的暴動中，很多人都曝光了，引起周恩來總理的極端不滿。
+
+從吳荻舟的文稿中可以看到，自從1949年以來迄1967年暴動時，中共在香港的地下黨系統包含了以下幾大塊：
+
+1、半公開的：香港澳門地區工作委員會（簡稱「港澳工委」）   
+ 2、不公開的：香港城市工作委員會（簡稱「城工委」）   
+ 3、高度保密的：二、三、四線組織或個人（葉劍英元帥最早提出在香港要建立二、三、四線的組織，但吳荻舟文稿中只提及二、三線）   
+ 4、紅線機構：指打正旗號是中共地下黨建立、領導、指揮和控制的   
+ 5、灰線組織：表面與中共無關但實質由中共幕後操控的組織
+
+這些都是他在《67筆記》以及其他文稿中提及的，詳見即將出版的拙作《香港67暴動始末──解讀吳荻舟》（以下簡稱《始末》）。
+
+在這五大塊中，「港澳工委」與「城工委」，是兩套平行的班子，具有不同的職能和分工。在中共內部，這兩套班子是平行的，但由於「港澳工委」是半公開的，而「城工委」是不公開的，所以很多時「港澳工委」的曝光機會較多，外界對它比較瞭解，這就自然而然地形成它實際上的領導地位。67暴動時，周恩來指示由「港澳工委」與「城工委」共同協調出一個「前線指揮部」，掛靠在新華社（因為這個指揮部是由新華社副社長祁烽領軍），說明「港澳工委」的地位略高於「城工委」。
+
+所謂「二、三、四線」，應該是指打入「敵方」機要部門的個人或組織，他們的目的是長期潛伏，主要是為情報，但也有為長期做轉化「敵人」的統戰工作，更多的是構成中共散播在全社會的「線眼」。
+
+紅線組織是指地下黨建立和領導的機構，包括具有象徵中共政權的新華社香港分社、華潤公司、中國銀行、招商局等，同時也包括自稱「愛國」的左派工會和學校等群眾性組織。
+
+所謂灰線組織，是相對於紅線而言，是指一些表面與中共無關但實質由中共幕後操控的組織，或者是中共地下黨組織卻偽裝為非共的組織，或者是一些本身不是中共組織但由於當事人具有中共背景而在不知不覺間被轉化為親中共的組織。中共的「灰色組織」策略可以說是源遠流長。早在1930年代開始，為了武裝顛覆以國民黨為代表的中央政府，中共在其比較有實力的地方固然建立了「紅色政權」，在其力有不逮的地方則建立所謂「灰色政權」 **[6]** 或稱「白皮紅心」的「兩面政權」 **[7]** ，這些政權表面上仍然是效忠於國民黨，但該政權的關鍵人物都是傾向共產黨的。所謂「灰色組織」性質也是一樣。
+
+根據吳荻舟的記載，67暴動中，周恩來十分關注這些地下組織會不會因為港共的極左政策而遭到破壞，他也非常關心一些高度保密的「二、三線組織」有沒有暴露，例如：
+
+一，《67筆記》5月27日記載了周恩來的無奈：「總理問了反迫（害）委員會的幾個正副主任後，說『全面捅出來了』」。很明顯，周恩來是不滿有些人進入了鬥委會，暴露了身份。
+
+<figure>
+<img src="https://web.archive.org/web/20221002233755im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/香港六七暴動始末-解讀吳荻舟-消失的檔案-20180713143909_eb61_large.jpg" alt="">
+<figcaption>暴動初期，《新晚報》「抗議團」到港督府請願，強迫副官聽他們讀毛語錄。根據吳荻舟遺文，中共特務早已佈置在港督府、機場等重要部門。他們被要求不要暴露。《消失的檔案》提供</figcaption>
+</figure>
+
+二，《在聯辦的工作情況》（吳荻舟在隔離審查期間被要求說清楚的幾個問題，其女兒吳輝集中起來並冠以這個標題）記載了周恩來指示不要暴露一些秘密組織和個人：
+
+> **7/6晚和朱、楊、馬、劉、呂（軍管代表）談指揮部組織問題。談前我傳達了總理關於鬥爭中要注意長期工作的指示（是下午大會結束後，和四處的同志一起聽的）：**   
+ **這次鬥爭要注意長期工作，不要把所有的力量都暴露出來，都使上去。**   
+ **在港英要害部門的力量（四處同志提到機場、在港督身邊的點子）不要動。**   
+ **（我想到1965年祁X、李國霖、張振南在北京談過因為我工會海員不願去西貢等地，放棄了許多陣地，並作出決定我海員不要放棄走西貢、台灣等線的船。我將此向總理報告並提出請示這次鬥爭是否也不要動？）在美國機構、船上的力量不要動。**
+
+
+從這番話可以看到，67暴動時，中共已經有人安插在港督身邊、機場、以及美國機構等。周恩來指示這些人以及能夠去越南西貢、台灣等的海員都不要暴露他們。
+
+三，吳荻舟曾經親自命令馬上銷毀一批「二、三線」人物的名單，以免被港英繳獲後造成組織工作和情報工作的損失。
+
+註釋：
+
+**[6]** 見 [《灰色政權——項英的故事》](https://web.archive.org/web/20221002233755/http://zjw.hsxgw.gov.cn/n3032/c17194/content.html)
+
+**[7]** 見王士花：抗戰時期山東農村兩面政權研究，載《史學月刊》2013年9期
+
+（拙作《香港67暴動始末—解讀吳荻舟》的新書發佈會將於7月14日上午11點假香港總商會會議室舉行，地址為：金鐘統一中心22樓，歡迎讀者參加。 [網上報名](https://web.archive.org/web/20221002233755/https://www.oupchina.com.hk/zh/non-school-registration-form/chingcheong) ）
+
+[新書試閱](https://web.archive.org/web/20221002233755/https://www.oupchina.com.hk/pdf?pdf=https://www.oupchina.com.hk/at/2018/2018_17_preview.pdf#page=1)
+
+[眾新聞【消失的檔案】專欄](https://web.archive.org/web/20221002233755/https://www.hkcnews.com/article/13521/香港六七暴動始末-解讀吳荻舟-消失的檔案-13521/錯誤之四：違背了中共「拉英打美」的外交方針)
+
+[《消失的檔案》網站](https://web.archive.org/web/20221002233755/http://vanishedarchives.org/site/)
+
+[《消失的檔案》面書](https://web.archive.org/web/20221002233755/https://www.facebook.com/vanishedarchives/)
+
+---
+
+![博客 | 香港六七暴動始末—解讀吳荻舟](https://web.archive.org/web/20221002233755im_/https://www.hkcnews.com/uploads/avatars/36892c70-d433-488e-8c94-aaffe3d1d930.png?1990814374)
+
+**博客 | 香港六七暴動始末—解讀吳荻舟**
+
+【程翔・香港六七暴動始末—解讀吳荻舟】吳荻舟1950~1962年是港共最高領導人之一，六七暴動期間吳受到周恩來總理領導和指示，他的工作筆記記錄了中央指揮「反英抗暴」歷程。資深傳媒人程翔以大量史料鋪墊，為吳荻舟遺文作深度注解，寫成《香港六七暴動始末　解讀吳荻舟》一書，由牛津出版社出版，是讀懂六七暴動不能掠過的重要著作。本欄文章是《解讀吳荻舟》的導讀。

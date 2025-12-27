@@ -1,0 +1,82 @@
+---
+title: "李登輝辭世一周年　蔡英文追思：台灣民主之路會堅定走下去"
+date: "2021-07-30"
+last_updated: "2021-07-30 12:42:12"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "安倍晉三"
+  - "Abe Shinzo"
+  - "shinzo"
+  - "蔡英文"
+  - "tsai ing wen"
+  - "李登輝"
+  - "賴清德"
+url: "https://web.archive.org/web/20210919161329/https://hkcnews.com/article/43828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43832/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43828/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43832/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 李登輝辭世一周年　蔡英文追思：台灣民主之路會堅定走下去
+
+今(30日)是台灣前總統李登輝逝世一周年，台灣總統蔡英文與及副總統賴清德今前往五指山公墓表達追思，並承諾「台灣的民主之路，我們會堅定地走下去」。針對日本前首相安倍晉三表達想來台為李「掃墓」，台灣外交部表示，將全力協助。李的女兒、李登輝基金會董事長李安妮也提到，父親與安倍情同父子，「不一定要在7月30日這一天，任何時間都行，我們也可以理解。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919161329im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/李登輝-賴清德-蔡英文-20210730120349_10fd_large.jpg" alt="">
+<figcaption>蔡英文率賴清德、蘇貞昌前往李登輝靈前獻花致意。取自蔡英文臉書</figcaption>
+</figure>
+
+蔡英文今上午率賴清德、行政院長蘇貞昌、立法院長游錫堃、監察院長陳菊等人，前往五指山軍人公墓李登輝靈前獻花、鞠躬致意，表達對李登輝的追思。
+
+[蔡英文隨後在臉書發帖稱](https://web.archive.org/web/20210919161329/https://www.facebook.com/tsaiingwen/posts/10157618328006065) ，回顧前人追求台灣民主的曲折進程，更珍惜當下的自由空氣。每個時代，都有不同的挑戰，持續深化台灣民主，並走向世界，和國際夥伴共同守護民主價值，就是我們這一代人的挑戰和使命。
+
+蔡英文承諾：「台灣的民主之路，我們會堅定地走下去。」蔡英文下午並將出席國史館Academia Historica 的「關鍵1991：李登輝與台灣民主元年」特展開幕儀式。
+
+<figure>
+<img src="https://web.archive.org/web/20210919161329im_/https://hkcnews.com/news_新聞/hk-discuss/2020/07/李登輝-20200729104655_f0bc_large.jpg" alt="">
+<figcaption>李登輝是中華民國首任民選總統，去年7月30日辭世，享年98歲。美聯社資料圖片</figcaption>
+</figure>
+
+李登輝從小受日本教育，與日本政界有頗多互動；去年安倍卸任首相後，原有意來台參加李登輝告別式，後來因故未成行。《李登輝秘錄》一書作者河崎真澄透露，安倍接受其專訪時說「世界上沒有像李登輝那樣把日本放在心上的領導人，如果各種情況允許的話，希望能親自掃墓弔唁」。安倍又在專訪中提到，若沒有李登輝，台灣能否保有現在的地位都很難說，能與各國共享自由、民主、人權等普世價值的台灣，恐怕也不復存在。
+
+台灣外交部對此回應，安倍多次公開強調台灣與日本共享基本價值，互為重要伙伴與珍貴友人，並且積極聲援支持台灣參與國際組織；在台灣全力抗疫之際，安倍在幕後居間協助，並與現任首相菅義偉團隊合作、鼎力協助，促成日本政府三次提供台灣共超過330萬劑疫苗，台灣政府與人民永銘在心。台灣外交部又稱，安倍展露對台灣和對李登輝的特殊情誼，讓人感動，歡迎安倍來訪，並將全力提供必要協助。
+
+<figure>
+<img src="https://web.archive.org/web/20210919161329im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/安倍晉三-日本首相-20200917100749_cbaa_large.jpg" alt="">
+<figcaption>安倍晉三去年因病辭去首相職位，媒體曾報導原本要來台參加李登輝告別式。</figcaption>
+</figure>
+
+李登輝與安倍的情誼，早從上世紀就開始，李登輝女兒李安妮曾說，兩人情誼形同父子，或許上帝安排他們已有溝通管道，畢竟兩人互動，從上世代就累積。
+
+根據媒體報導，1994年安倍便以自民黨青年局成員身分首次來台參訪，並會見李登輝，之後兩人便經常保持聯絡。2010年安倍再次來台，並與李登輝會面，李當時還勉勵安倍，「再當一次首相，現在除了你，（日本）已沒有其他的領袖」。安倍也在2012年二度擔任首相，直至2020年才因病辭去首相職位，成為日本在任時間最久的首相。
+
+2015年李登輝訪日，時任首相的安倍還親赴飯店會晤李，打破日本政界慣例。去年，日本派出前首相森喜朗率團參加李的告別式，安倍晉三也親題悼詞，稱「李登輝將自由、民主、人權等普世價值在台灣扎根，被世界譽為民主先生，並對增進日本與台灣的相互理解與友好具有重大貢獻。」
+
+當時安倍悼詞提到，李登輝溫暖的笑容與有力道的握手，對民主的堅強信念，對台灣的堅定情感與強烈使命感以及對日本期待與溫馨話語，彷彿昨日之事，至今仍深深刻劃在他內心；他除了表達深深謝意與敬意，並寄語「今後也請化為千縷微風，溫柔守護日本與台灣。」
+
+除了國際友人悼念，李登輝基金會昨也宣布，將在台大舊法學院圖書館設立李登輝紀念圖書館，同時呼籲政府設立國家級李登輝紀念圖書館。台灣總統府發言人張惇涵對此表示，李登輝是享譽國際社會的「台灣民主之父」，對於台灣民主轉型，以及開創國家自由多元新時代有卓著貢獻。因此，蔡英文及總統府支持設立紀念圖書館，表彰李登輝對於國家的重大貢獻與殊勳。
+
+張惇涵強調，李登輝為台大校友，亦曾擔任台大教授，對於李登輝基金會及李登輝家屬期盼圖書館設立在台大舊法學院，總統府對此樂觀其成；相關規劃須經台大校方同意，政府相關部門也會給予必要的協助與支持。
+
+<figure>
+<img src="https://web.archive.org/web/20210919161329im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/日本-李登輝-shinzo-20210730120439_2729_large.jpg" alt="">
+<figcaption>日本台灣交流協會今宣布設立「李登輝文庫」專區。取自日本台灣交流協會臉書</figcaption>
+</figure>
+
+與安倍同樣感念李登輝對日本的情誼， [日本台灣交流協會今也宣布，正式設立「李登輝文庫」專區](https://web.archive.org/web/20210919161329/https://www.facebook.com/JiaoliuxiehuiTPEculture/posts/4144901132264215) ，內容主要為李登輝基金會提供約100本李所收藏的中日文書籍，並稱「李登輝是飽讀詩書的賢者，希望這些和李登輝先生共度許多光陰的貴重書籍，能成為指引眾多讀者們的燈塔，同時也透過閱讀，將這份日台間的羈絆傳承下去。
+
+李登輝出生於1923年，台灣大學農經系畢業後，取得康乃爾大學農經博士學位。1984年當選為中華民國第7任副總統；1988年1月台灣前總統蔣經國過世後，繼任為第7任總統；1990年3月，經國民大會選舉為第8任總統；1996年3月更舉行中華民國首次總統直接選舉，成為首任直接民選總統，之後並連任至2000年5月19日任期屆滿。
+
+<figure>
+<img src="https://web.archive.org/web/20210919161329im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/李登輝-蔡英文-shinzo-20210730120404_b6cb_large.jpg" alt="">
+<figcaption>李登輝長眠五指山軍人公墓。取自蔡英文臉書</figcaption>
+</figure>
+
+李登輝卸任總統後，依舊活躍政壇，並創立台灣團結聯盟(簡稱台聯)；去年2月在家因喝牛奶時不慎嗆到，送院發現肺部有浸潤現象，經住院174天治療，仍因敗血性休克及多重器官衰竭，於去年7月30日去世，享年98歲。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919161329/https://hkcnews.com/aboutus/#subscribe)

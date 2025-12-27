@@ -1,0 +1,83 @@
+---
+title: "河北大學教授：已推翻愛因斯坦相對論　為科學掃清障礙　網民：別丟人現眼了"
+date: "2021-06-23"
+last_updated: "2021-06-24 10:35:24"
+author: "中國組記者王寶熒"
+category: "眾聞"
+tags:
+  - "愛因斯坦"
+  - "眾新聞中國組"
+  - "相對論"
+url: "https://web.archive.org/web/20210802023852/https://hkcnews.com/article/42688/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/42688/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42728/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 河北大學教授：已推翻愛因斯坦相對論　為科學掃清障礙　網民：別丟人現眼了
+
+【推翻相對論？】河北燕山大學教授李子豐宣稱，歷經21年研究，已推翻愛因斯坦相對論，為科學的健康發展掃清了巨大障礙。他此項全名為「堅持唯物主義時空質能觀發展牛頓物理學」的驚世研究，更入選本年度河北省科學技術獎。
+
+<figure>
+<img src="https://web.archive.org/web/20210802023852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/愛因斯坦-馬克思主義-20210623183610_11cb_large.png" alt="">
+<figcaption>河北燕山大學教授李子豐多年反對愛因斯坦相對論、霍金以及美國阿波羅登月。</figcaption>
+</figure>
+
+### 哲學推翻科學？
+
+愛因斯坦的相對論提出，空間如同布，是可以伸縮和彎曲，當有一個質量很大的物體在上面，布會凹陷，而周邊質量較小的物體，就會圍繞著它運動，如同地球圍繞著太陽運行般。至於唯物主義，簡單而言，是信奉世界的本源是物質，物質決定意識和精神。
+
+<figure>
+<img src="https://web.archive.org/web/20210802023852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/馬克思主義-愛因斯坦-20210623183656_3fa5_large.png" alt="">
+</figure>
+
+李子豐是如何馬克思主義哲學是如何推翻相對論？他拒絕接受訪問解釋，僅提供了一份研究成果的簡報。
+
+### 自己證明自己
+
+他批評愛因斯坦的狹義相對論是「源於對光速測量結果的錯誤解釋，將光子相對於光源的速度，硬性規定為是相對於任意參系的速度」；又稱其背後的數學基礎——勞侖茲變換只是一組人為拼湊出的自悖數學式，毫無科學價值，甚至狠批相對論就是科學中的毒瘤、限制科學發展的緊箍咒、穿著科學外衣的宗教。
+
+<figure>
+<img src="https://web.archive.org/web/20210802023852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/馬克思主義-愛因斯坦-20210623183553_9b95_large.png" alt="">
+</figure>
+
+要推翻上世紀最偉大的科學理論，李子豐的研究有甚麼理據？
+
+簡報顯示，他參考的19篇文獻全部都是他本人的文章——他的「研究成果」在網上引起熱烈討論，無論是認識他的、不認識他清一色都是覺得「丟架」。
+
+李子豐其後在「知乎」網發文，堅稱自己的理論是對的，稱報獎是為了宣傳真理，認為是世人不理解他的顛覆性創新。當內地媒體問到，他的研究方向或論點是甚麼，他以「實事求是」四字回應。
+
+### 學者：他大腦可能有問題
+
+中國政法大學航空與空間法研究中心研究員張起淮看過李子豐的研究，形容完全無實證支持，懷疑李子豐純粹為譁眾取寵，或「大腦真的有問題」。
+
+張起淮指，相對論不是不能質疑，但懷疑李子豐此舉有其他政治目的：「馬克思主義哲學跟愛因斯坦的相對論，第一，肯定不是矛盾的。馬克思主義被無數共產黨人、無產階級所信奉為放之四海皆準的真理，現在有人把馬克思主義，跟自然科學中的愛因斯坦科學理論進行對立。這實際上曲解，或製造這種大眾的誤解，是在削弱馬克思主義的純潔」。
+
+燕山大學的官網顯示，59歲的李子豐是車輛與能源學院的研究員，主要研究石油氣。他2009年時，曾宣稱要懸紅10萬人民幣，找支持相對論和阿波羅登月的人士與其辯論；2017年，他就因在上課中用大量時間發表反相對論等言論，被校方停止三年本科教學工作。
+
+<figure>
+<img src="https://web.archive.org/web/20210802023852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/唯物主義-愛因斯坦-20210623184103_242d_large.png" alt="">
+<figcaption>李子豐曾因花大量課堂時間反對相對論等，而被停課三年。</figcaption>
+</figure>
+
+### 愛因斯坦在文革已成箭靶
+
+早於文化大革命時期，曾建議美國製造原子彈的愛因斯坦就已成為箭靶。1967年湖南一位數學教師到北京宣講論文，批判相對論違背毛澤東「物質矛盾運動規律」。
+
+<figure>
+<img src="https://web.archive.org/web/20210802023852im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/文化大革命-愛因斯坦-20210623183624_a1a2_large.png" alt="">
+</figure>
+
+這個想法引起中科院革命委員會重視，翌年中科院成立了「『批判自然科學理論中資階級反動觀點』毛澤東思想學習班」，提出要以毛思想為武器，批判相對論、革相對論的命，又印發第一篇批判文章，列舉相對論「罪行」，指相對論無實驗直接驗證，是地道的唯心主義、違反唯物辯證法。
+
+其後北京的中科院亦不甘落後。在1969年，推出第二篇批判文章，指如果按照相對論中所言「同時性是相對的」，那麼在珍寶島事件中，中國說蘇聯開第一槍、蘇聯說中國開第一槍，事實上無法客觀判斷，究竟哪一方開第一槍。
+
+此文一出，支持相對論的中國人也不敢出聲，因為誰出聲就成為「賣國賊」。兩個月後，《相對論批判》完稿，中央文革領導小組建議，要在《紅旗》雜誌上發表，但被錢學森等科學家反對，指文章會淪為笑柄，最終出版一事不了了之。
+
+這場批判相對論的運動一直持續，直至文革結束後的1978年，《人民日報》發文讚揚愛因斯坦，他在國內才終於得以「平反」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210802023852/https://hkcnews.com/aboutus/#subscribe)

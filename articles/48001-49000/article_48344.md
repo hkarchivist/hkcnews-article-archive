@@ -1,0 +1,42 @@
+---
+title: "【公務員宣誓】不滿查問效忠聲明必要性及準則後遭強制退休　前稅局主任入稟申覆核"
+date: "2021-11-30"
+last_updated: "2021-11-30 15:11:05"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "宣誓"
+  - "張雲正"
+  - "公務員事務局"
+  - "公務員事務局局長"
+  - "Secretary for the Civil Service"
+  - "稅務局"
+url: "https://web.archive.org/web/20220519144918/https://www.hkcnews.com/article/48344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48344/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【公務員宣誓】不滿查問效忠聲明必要性及準則後遭強制退休　前稅局主任入稟申覆核
+
+港府去年起要求公務員宣誓擁護《基本法》及效忠特區政府。一名在稅務局服務逾25年的前助理稅務主任今年2月去信稅務局，要求交代宣誓的必要性及違反誓言的準則後，雖然最終他簽了聲明，但公務員事務局局長以公眾利益為由，強制他提早退休。前主任不滿當局在他宣誓後仍作出有關決定，並且沒交代足夠理據，反映程序不當，故今日（30日）入稟高等法院申請司法覆核許可，挑戰當局的決定。
+
+<figure>
+<img src="https://web.archive.org/web/20220519144918im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/問責官員-公務員宣誓-20201216225022_2d74_large.jpg" alt="">
+</figure>
+
+申請人是王秋明，答辯人是公務員事務局局長。入稟狀指，王於1996年6月加入稅務局，至今年10月遭強制退休前，已在政府任職25年。
+
+今年1月15日，公務員事務局局長聶德權宣布，所有於2020年7月1日獲聘的公務員，均須宣誓擁護《基本法》及效忠中華人民共和國香港特別行政區，盡忠職守並向特區政府負責。
+
+1月28日，稅務局要求王簽署上述聲明。王遂於2月25日去信稅務局，要求交代宣誓的必要性、以及裁定違反誓言的準則。至8月6日，案件轉介至公務員事務局局長跟進。
+
+### 申請人最終簽署聲明仍「被退休」
+
+與此同時，公務員事務局向公務員敍用委員會尋求意見，委員會回覆表示，支持根據《公務人員(管理)命令》第12條，為公眾利益著想而強制王退休。
+
+8月12日，王簽署並提交了宣誓聲明。但同月30日，公務員事務局局長行駛法定權力，強制王提早退休。同日，稅務局局長通知王，須於翌日起放假至今年10月24日，並於10月25日正式退休。
+
+王指出，他已簽署並提交了宣誓聲明，當局沒理由不接納，勒令他提早退休的決定不合理。此外，他認為涉案程序不當，因公務員事務局局長沒提供任何充分理據，解釋有關決定與公眾利益的關係。
+
+翻查《公務人員(管理)命令》，第12條賦予行政長官權力，可為公眾利益著想而勒令公務員退休，但須給予當事人申述機會，並告知最終決定的理據。此外，因本命令而被強制退休的公務員，均可按照當時法律獲發退休金、酬金或其他津貼。
+
+案件編號：HCAL1626/21

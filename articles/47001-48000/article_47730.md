@@ -1,0 +1,47 @@
+---
+title: "《經濟學人》記者續證被拒　打壓外媒破壞香港聲譽"
+date: "2021-11-15"
+last_updated: "2021-11-16 09:55:12"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "入境處"
+  - "經濟學人"
+  - "外國記者會"
+url: "https://web.archive.org/web/20220127091149/https://www.hkcnews.com/article/47730/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47747/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47730/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47747/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《經濟學人》記者續證被拒　打壓外媒破壞香港聲譽
+
+
+{{< video src="https://web.archive.org/web/20220127091149if_/https://www.youtube.com/embed/dqaIKyM6Fbg" >}}
+
+
+### [【香港這一天】結集](https://web.archive.org/web/20220127091149/https://bit.ly/2Cj8v4t)
+
+英國《經濟學人》（Economist） 指港府拒絕延續駐港記者黄淑琳（Sue-Lin Wong）的工作簽證，沒有提供理由， 呼籲港府維持外國媒體新聞自由。入境處回覆稱不評論個別個案， 又稱會按照相關法律和政策處理每宗申請個案。
+
+香港是開放城市，位置獨特， 一直以來有來自世界各地機構派出記者駐港， 報道大中華及亞太區新聞。 外國記者過去申請工作簽證從未聽聞被拒。2018年，《 金融時報》編輯馬凱（Victor Mallet）由於身兼香港外國記者會（FCC）副主席， 捲入前香港民族黨召集人陳浩天出席午餐會風波， 申請延續工作簽證被拒，其後離港；2020年《紐約時報》 儲百亮（Chris Buckley）、《Hong Kong Free Press》編輯Aaron Mc Nicholas亦遭遇同樣命運。黄淑琳是近年所知的第4個個案 ，同樣是原因不明。
+
+2020年， 有報道指入境處設立國家安全部門審查外國記者簽證申請， 但官方一直沒有証實或否認。
+
+FCC發表聲明，表示深切關注再次發生記者申工作簽證被拒， 促請港府保證根據明確程序處理簽證。 香港記者協會發聲明促請港府解釋原因，並指入境處的回應， 完全無法釋除社會疑慮；重申外國媒體對香港相關報道， 不但涉及公眾知情權，更攸關香港的國際地位，若政府沒恰當理據， 不應貿然拒絕駐港記者的工作簽證。
+
+據悉，黃為澳洲籍，目前已不在香港。《經濟學人》 報導一般沒有登出相關記者名字。根據《經濟學人》網站，黄是《 經濟學人》的中國駐地記者， 主要報導中國大陸及香港的社會及政治新聞。據悉， 她一直未能取得大陸簽證駐內地。她也曾在路透及《金融時報》 工作，在2019年期間曾報導香港示威。
+
+2018年《金融時報》馬凱申請被拒，其後入境也受到限制， 估計是由於香港民族黨因素；《紐約時報》個案與中美交惡、互相限制對方記者有關。《 Hong Kong Free Press》編輯個案至今仍是一個謎。黄淑琳個案可能並非由於《 經濟學人》，而是她擁有澳洲籍，澳洲與中國關係近年急速急化， 不排除是北京借個案向澳洲發出警告。
+
+有理由相信的是，入境處審批外國記者工作簽證， 已加入國家安全審查，包括向駐港國家安全公署諮詢意見， 處理外媒簽證，已不再純粹是香港內部事務。
+
+全國港澳研究會香港特邀會員、 中國和平統一促進會香港總會常務理事朱家健接受《環球時報》 訪問時表示，「有些事情也不用說的太明， 外界會猜到其中隱含的信息。審批有依據並按照程序， 或許問題出自申請人過去的言行與工作範圍和簽證性質不符。 不獲審批工作簽證人士需要反思以前曾做過什麼事、 發表了什麼言論。誣衊港府「侵犯言論自由、新聞自由和人權」 是危言聳聽。
+
+過去3個外媒個案涉及《金融時報》、《紐約時報》及《經濟學人》 ，都是享負盛名、具公信力國際媒體，在財金界具影響力， 港府將記者拒諸門外，沒有一個合理說法，是最差的對外宣傳， 倒自己米。
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20220127091149im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

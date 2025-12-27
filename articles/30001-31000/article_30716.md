@@ -1,0 +1,49 @@
+---
+title: "高雄今投票罷免韓國瑜　車站昨現返鄉投票潮　《人民日報》挺韓「巿政成績不錯」"
+date: "2020-06-06"
+last_updated: "2020-06-06 14:01:42"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "韓國瑜"
+url: "https://web.archive.org/web/20210729083307/https://www.hkcnews.com/article/30716/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30716/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 高雄今投票罷免韓國瑜　車站昨現返鄉投票潮　《人民日報》挺韓「巿政成績不錯」
+
+
+{{< video src="https://web.archive.org/web/20210729083307if_/https://www.youtube.com/embed/G-BWzJGs6fw" >}}
+
+
+台灣高雄巿今日將就罷免市長韓國瑜投票，按照台灣《選罷法》規定，要有超過574,996名選民投贊成票，且贊成票多過反對票才能通過罷免案。如果通過，韓國瑜就會成為台灣地方自治史上，第一個被罷免的巿長。
+
+投票前夕，韓國瑜周五晚在Facebook貼文稱「仰不愧於天，俯不怍於民」，又指感謝高雄市民給巿政府團隊機會為大家服務。他說，無論最後結果如何，大家務必平心靜氣、坦然接受結果。
+
+中國《人民日報》昨發表文章 [〈追殺韓國瑜　民進黨醜態百出〉](https://web.archive.org/web/20210729083307/http://paper.people.com.cn/rmrbhwb/html/2020-06/05/content_1990419.htm) 全力挺韓，「罷韓再次凸顯『台式民主』已經淪為『顏色政治、私心政治、騙術政治』的一地雞毛」。文章說，「韓國瑜市政成績不錯，但民進黨的一貫策略是不問事實只講情緒，一意煽動高雄人對韓國瑜『背叛高雄』的恨意」。
+
+<figure>
+<img src="https://web.archive.org/web/20210729083307im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/高雄巿-罷免韓國瑜-20200606135428_254f_large.jpg" alt="">
+<figcaption>高雄市多所票站今天一早就大排長龍。特約記者李仁攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210729083307im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/罷免韓國瑜-高雄巿-陳菊-20200606135337_136e_large.jpg" alt="">
+<figcaption>敗在韓國瑜手上的高雄市前市長陳菊也到票站投票。特約記者李仁攝</figcaption>
+</figure>
+
+罷免直轄市長是台灣地方自治史上的首次，罷免案是由公民團體共同提案。高雄市選委會公告，全市投票人數2,299,981人。依據《選罷法》第90條規定，罷免案投票結果，有效同意票數多於不同意票數，且同意票數達原選舉區選舉人總數四分之一以上，即為罷免通過。依照上述高雄市投票人數計算，罷免門檻是574,996票。
+
+這次罷免韓國瑜的投票，源於韓國瑜2018年11月當選市長，之後打破選前保證不會半途離職的承諾，在任僅162天就請假選總統，被認為背棄高雄，引發今次罷免投票。今日投票時間是上午8時到下午4時，若罷免通過，韓國瑜就會是台灣地方史上首位被罷免的市長；如果罷免投票不獲通過，就不可以在韓國瑜餘下任期再提罷免案。不過，根據《選罷法》，若成功罷免韓國瑜，韓可在罷免投票結果公告日起15天內，提出罷免無效或罷免通過無效訴訟。
+
+投票前夕，周五晚上台灣的高鐵及台鐵陸續出現回高雄的返鄉潮，車站人潮明顯多於以往。中央社記者報道，有民眾說在台中工作要返鄉投票，在成功大學讀研究所的學生亦是專程回家投票，不過也有人說是要南下訪友，相約疫情解封後到墾丁度假。立法委員管碧玲在社交媒體貼出多張照片，照片顯示高鐵高雄左營站的月台擠滿年輕人，高雄車站電扶梯也塞滿人潮。
+
+罷韓投票前一夜，罷團Wecare高雄等規劃的「重返美麗島反恐大遊行」周五晚登場，罷韓支持者擠爆遊行集結點周邊的中山路、大同路慢車道，高呼「6月6日，堅定罷韓」，情緒高昂。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729083307/https://www.hkcnews.com/aboutus/#subscribe)

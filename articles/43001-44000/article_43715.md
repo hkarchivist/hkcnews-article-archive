@@ -1,0 +1,40 @@
+---
+title: "銅鑼灣刺警案　記者助查遭警國安處搜屋兼扣留旅遊證件"
+date: "2021-07-27"
+last_updated: "2021-07-27 04:41:18"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "國安處"
+url: "https://web.archive.org/web/20210921222919/https://hkcnews.com/article/43715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43719/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43719/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 銅鑼灣刺警案　記者助查遭警國安處搜屋兼扣留旅遊證件
+
+今年七一在銅鑼灣發生的刺警案，警方於案發後接觸多名在現場疑拍攝到相關情況的記者，其中一名拍攝到事發一刻的網媒記者，於案發翌日在香港記者協會安排的律師陪同下，到灣仔警察總部協助調查後，至昨晚（26日）深夜11時，有警方人員到該記者的臨時住處，要求其到警署錄取口供，隨後更到事主的原住所蒐證，警方國安處更行使權力，扣留事主的旅遊證件。記協接獲求助後已到警署了解情況。
+
+<figure>
+<img src="https://web.archive.org/web/20210921222919im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/國安處-2021七一-刺警男子-20210727042038_182a_large.png" alt="">
+<figcaption>協助調查記者在現場直播期間拍攝到男子刺警一刻。　看中國影片截圖</figcaption>
+</figure>
+
+據記協的聲明稱，該記者於案發翌日錄取口供時，負責調查案件的為商業罪案調查科警員，並錄取了一份口供，警方當時承諾，日後如有需要聯絡事主，會透過律師聯絡，亦會知會記協。當時警方亦表明，該名記者的身份是「協助調查」。惟至昨晚（26日）深夜11時，記協接獲消息，警方國安處人員在沒有透過律師協助下，到該記者的臨時住處，要求其到警署錄取口供。事主其後亦在國安處人員陪同下致電律師，表示無須律師陪同。在落口供期間，只有一名友人陪伴。事主之後再被帶返其原本住所蒐證。
+
+記協亦指，警方亦沒有如先前承諾，主動通知記協。記協在得悉事件後，已即時向警方表達不滿，在多番斡旋後，記協的代表律師，至今日（27日）凌晨一時，才獲准於柴灣警署陪同事主錄口供。
+
+據記協了解，該記者的身分為「協助調查」，卻已被錄取警戒口供，並被扣留旅遊證件。據悉，是警方國安處行使權力，扣留事主的旅遊證件。
+
+記協對事件表示極度關注，並強調一名記者在直播期間拍攝到疑似罪案的發生，只不過是履行新聞工作者的本份，而事主亦已盡市民責任，協助警方調查，只應當受到認可，絕不應蒙此對待。記協並促請警方立即交代，事主是否屬「協助調查」，若是，為何會被搜屋及扣留旅遊證件。
+
+此外，記協亦質疑，任何人士若將來有可能擔當證人，均有被沒收旅遊證件的風險。
+
+記協強調，此事件已等同威脅全港的新聞工作者，若記錄事件亦會令自己蒙上嫌疑，記者如何能繼續安心工作？記協重申，警方國安處現時的行動，是切切實實地與官員曾多次表示，「《國安法》只影響『一小撮人』」唱反調，因為全港的新聞工作者，都已受到「影響」，甚至是「威脅」，促請警方立即回應事件。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921222919/https://hkcnews.com/aboutus/#subscribe)

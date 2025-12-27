@@ -1,0 +1,46 @@
+---
+title: "【國安法首案】控方完成舉證　法庭明早裁定表證是否成立"
+date: "2021-07-08"
+last_updated: "2021-07-08 14:46:44"
+author: "記者莊曉彤"
+category: "眾聞"
+tags:
+  - "李立峯"
+  - "周天行"
+  - "唐英傑"
+url: "https://web.archive.org/web/20210924055003/https://www.hkcnews.com/article/43178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43179/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43178/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43179/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【國安法首案】控方完成舉證　法庭明早裁定表證是否成立
+
+國安法首案， 控方舉證完畢並已傳召所有證人作供，控辯雙方今早完成中段陳詞後，法庭宣布明天裁決表證是否成立。一旦表證成立，辯方將可能傳召被告及證人，暫未知被告唐英傑會否出庭作供，另已知將會出庭的專家證人，分別為香港大學政治與公共行政學系教授李詠怡及中文大學新聞與傳播學院院長李立峯。
+
+被告唐英傑於去年7月1日駕駛插有「光復香港 時代革命」旗幟的電單車，與警員相撞，現被控煽動他人分裂國家罪、恐怖活動罪，及一項危險駕駛交替控罪。
+
+<figure>
+<img src="https://web.archive.org/web/20210924055003im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/李立峯-李詠怡-國安法-20210705175056_1bdd_large.jpg" alt="">
+<figcaption>辯方兩名專家證人日前獲准在席旁聽劉智鵬作供，香港大學政治與公共行政學系教授李詠怡(左)及中文大學新聞與傳播學院院長李立峯(右)。(莊曉彤 攝)</figcaption>
+</figure>
+
+今早開庭，法庭首先處理昨日提出的銀包問題，即控方指唐英傑銀包內有一物清楚顯示「光復香港 時代革命」的字眼，但警方當時未有將之檢取，現今在唐的個人財物中亦未能找到。法庭昨天為此爭辯了一整日，並擬今日傳召到訪過唐病房（唐被捕後留醫律敦治醫院）的警員或其他人，但法官陳嘉信今日指，有關證物的價值不大，不認為有需要傳召證人處理。法官杜麗冰亦申明，沒有任何指控認為警員或事務律師作出不誠實行為。
+
+### 辯方：字詞含意千年不變不合常理
+
+控辯雙方其後作出中段陳詞。辯方代表、資深大律師郭兆銘就控罪一「煽動他人分裂國家罪」陳詞指，控方未能證明「光復香港 時代革命」有分裂國家的意思，亦無述及煽動帶來甚麼後果，又認為控方專家證人劉智鵬稱字詞含意千年不變是不合常理。
+
+至於控罪二「恐怖活動罪」，郭兆銘指唐英傑有刻意避開警員。法官杜麗冰隨即指，一方面可以說他刻意避開警員，但另一方面也可說成是警員避開他。郭兆銘重申證據可見唐有計劃避免相撞。郭續陳詞，指唐當日帶同急救包，沒有強烈證據顯示他是恐怖分子，而3名與之相撞的警員沒有嚴重受傷、事件亦沒有嚴重危害社會安全。杜官再度介入，指警員沒有嚴重受傷，可謂幸運，不會減低是次攻擊的嚴重性。郭兆銘另又提出，唐英傑在與警員相撞前的短時間內作出煞車決定，顯然不是恐怖分子所為。
+
+控方代表、署理副刑事檢控專員周天行接續陳詞，表示舉證依賴4點：（1）在國安法生效首日發生；（2）插著「光時」駕駛；（3）高速並發出很大的引擎聲，吸引途人注意，有人拍掌歡呼；（4）三度穿過警方防線，不理會警方指示，並刻意往返駕駛，不是避開警員。
+
+針對控罪一的「煽動」元素，控方認為唐英傑有意利用旗幟將訊息帶給沿途所見的人。而「光時」如何帶有分裂國家的意思，則依賴劉智鵬的證供，即分析2016年梁天琦創立口號時的語意和語境。針對控罪二，控方同樣依賴前述唐英傑駕駛電單車的行為，並指出國安法有關條文列明的「針對人的嚴重暴力」，不等如要嚴重受傷才入罪；而「嚴重危害社會安全」，控方則指出現場目擊者當時感驚訝，並有人後退。
+
+聽畢雙方陳詞後，法庭決定明天宣布表證是否成立。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924055003/https://www.hkcnews.com/aboutus/#subscribe)

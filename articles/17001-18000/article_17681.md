@@ -1,0 +1,49 @@
+---
+title: "美軍事專家：解放軍「噩夢」——五大聯合作戰準備　同時面對台美印"
+date: "2019-01-08"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "解放軍"
+  - "台灣海峽"
+url: "https://web.archive.org/web/20210712023540/https://www.hkcnews.com/article/17681/%E8%A7%A3%E6%94%BE%E8%BB%8D-%E5%8F%B0%E7%81%A3%E6%B5%B7%E5%B3%BD-17681/%E7%BE%8E%E8%BB%8D%E4%BA%8B%E5%B0%88%E5%AE%B6%EF%BC%9A%E8%A7%A3%E6%94%BE%E8%BB%8D%E3%80%8C%E5%99%A9%E5%A4%A2%E3%80%8D%E2%80%94%E2%80%94%E4%BA%94%E5%A4%A7%E8%81%AF%E5%90%88%E4%BD%9C%E6%88%B0%E6%BA%96%E5%82%99-%E5%90%8C%E6%99%82%E9%9D%A2%E5%B0%8D%E5%8F%B0%E7%BE%8E%E5%8D%B0"
+original_url: "https://www.hkcnews.com/article/17681/%E8%A7%A3%E6%94%BE%E8%BB%8D-%E5%8F%B0%E7%81%A3%E6%B5%B7%E5%B3%BD-17681/%E7%BE%8E%E8%BB%8D%E4%BA%8B%E5%B0%88%E5%AE%B6%EF%BC%9A%E8%A7%A3%E6%94%BE%E8%BB%8D%E3%80%8C%E5%99%A9%E5%A4%A2%E3%80%8D%E2%80%94%E2%80%94%E4%BA%94%E5%A4%A7%E8%81%AF%E5%90%88%E4%BD%9C%E6%88%B0%E6%BA%96%E5%82%99-%E5%90%8C%E6%99%82%E9%9D%A2%E5%B0%8D%E5%8F%B0%E7%BE%8E%E5%8D%B0"
+---
+
+# 美軍事專家：解放軍「噩夢」——五大聯合作戰準備　同時面對台美印
+
+<figure>
+<img src="https://web.archive.org/web/20210712023540im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/07/閱兵-習近平-20170731124736_1029_large.jpg" alt="">
+<figcaption>美國軍事專家稱，中國的五個主要聯合作戰準備，涉及不同軍種針對台灣、美國及印度的聯合作戰準備。美聯社資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712023540im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/易思安-2049項目研究所-20190108105710_23b1_large.png" alt="">
+<figcaption>易思安。「2049項目研究所」網頁圖片</figcaption>
+</figure>
+
+中國國家主席兼中央軍委主席習近平，上周在北京召開的軍委會工作會議上，要解放軍加快提升聯合作戰能力，做好軍事鬥爭準備。他並 [簽署「中央軍委2019年1號命令」](https://web.archive.org/web/20210712023540/http://china.huanqiu.com/article/2019-01/13977733.html) ，向全軍發布「開訓動員令」。美國軍事專家認為，中國的五個主要聯合作戰準備，涉及不同軍種針對台灣、美國及印度的聯合作戰準備。他說，解放軍的「噩夢」，就是必須同時進行這五大聯合作戰行動。
+
+《美國之音》報道，對於習近平強調的聯合作戰能力，著有譯成中文的 [《中共攻台大解密》](https://web.archive.org/web/20210712023540/https://www.books.com.tw/products/0010773891) （The Chinese Invasion Threat: Taiwan's Defense and American Strategy in Asia）的美國軍事專家易思安（ [Ian Easton](https://web.archive.org/web/20210712023540/https://project2049.net/author/ianeaston/) ），是美國「2049項目研究所」（ [Project 2049 Institute](https://web.archive.org/web/20210712023540/https://project2049.net/) ）研究員，他於周日發表 [〈中國五大戰爭計劃〉](https://web.archive.org/web/20210712023540/https://project2049.net/2019/01/06/chinas-top-five-war-plans/) （China's Top Five War Plans）的最新報告，進一步分析解放軍如何以台灣這個大型島嶼為目標進行作戰準備，以聯合作戰行動達到「孤立或佔領台灣、阻止美國介入，並抗擊一旦對台動武時可能面臨的來自印度的邊境威脅」。
+
+報道引述易思安說，五大主要聯合作戰計劃，包括「大型島嶼聯合火力突擊作戰」、「大型島嶼聯合封鎖作戰」、「大型島嶼聯合進攻作戰」、「聯合反空襲作戰」，以及「邊境地區聯合作戰」。
+
+對於這五大作戰計劃如何各自或協同實施，報道引述易思安稱，這必須視乎「北京的戰略意圖、情勢的嚴重性，以及外部情況」而定。對於「外部情況」，中國很可能無力控制。他稱，對解放軍而言，它的「噩夢假想情況」，將是同時針對東部的台灣和美國，以及南部的印度，進行上述五大聯合作戰行動。
+
+《美國之音》的報道稱，在這個假想情況，解放軍必須先對台灣發動聯合火力打擊，接着進行短時間但高強度的聯合封鎖。一旦台灣軍力被減弱，再發動聯合攻擊並進行兩棲登陸行動，在搶灘成功後，深入台灣陸地展開城市和山區戰事。
+
+報道續稱，不過，中國軍事決策者也預見，戰事進行至此，美國有可能出手干預，對台海的中國軍隊實施導彈及空襲行動，逼使中方進行聯合反空襲作戰。中國軍事決策人員也假設，此時如果印度軍隊或西藏自由鬥士可能在喜馬拉雅山發動攻擊，那將逼使解放軍同時進行聯合邊境作戰。
+
+《美國之音》引述易思安稱，這五大聯合作戰計劃是驅動中國軍事改革及軍事擴張的主要力量，它們也將持續形塑北京當局對國家安全領域投資時間與精力的方式。他說，中共對外宣傳說，中國是一個和平及防衛性國家，不過這種宣傳與現實並不相符，「理解中國的軍事擴張，意味着理解中國正在準備對台灣發動一場危險的侵略，其延伸意涵就是對美國及其盟友的侵略」。
+
+雖然許多謀略者認為，南海是21世紀最主要熱點，不過易思安說，從解放軍內部文件可以看出，中國的軍力建設主要是針對台海及西太平洋戰事。他指美國政府必須對此作出回應，「解除與台灣在政治、防衛及安全領域互動的自我設限，將台灣軍隊納入美國在區域的防衛架構」。與此同時，美國也必須以應對解放軍的作戰計劃為目標，強化在印太地區的戰備力量，如此才能維持美國的軍力優勢，並阻止情勢朝不利的方向發展。
+
+[2049項目研究所](https://web.archive.org/web/20210712023540/https://project2049.net/) 是於2008年成立的非牟利研究組織，主席是美國前助理國防部長阿米塔奇（ [Richard Lee Armitage](https://web.archive.org/web/20210712023540/https://en.wikipedia.org/wiki/Richard_Armitage_(naval_officer)#Bush_administration) ）。據這個組織在其官方網頁稱，組織聚焦於「推廣美國價值，以在印太地區的安全利益」。該組織稱有五大研究範疇，首先是中國研究（China studies），其次是解放軍研究（People's Liberation Army (PLA) Studies），第三是台灣（中華民國）及台海安全（Taiwan (ROC) and Cross-Strait Security）。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712023540/https://www.hkcnews.com/aboutus/#subscribe)

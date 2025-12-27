@@ -1,0 +1,49 @@
+---
+title: "「舉重女神」郭婞淳奪金背後的奮鬥故事　小時住工寮、沒錢吃早餐"
+date: "2021-07-27"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "金牌選手"
+  - "東京奧運"
+  - "中華台北"
+  - "舉重女神郭婞淳"
+url: "https://web.archive.org/web/20211204131851/https://hkcnews.com/article/43745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「舉重女神」郭婞淳奪金背後的奮鬥故事　小時住工寮、沒錢吃早餐
+
+台灣「舉重女神」郭婞淳為中華台北隊奪下本屆奧運首面金牌，完成個人金牌「金滿貫」里程碑； [她今(27日)在臉書揭露自己坎坷的成長故事](https://web.archive.org/web/20211204131851/https://www.facebook.com/kuohsingchuntaiwan/posts/375572930595222) ，指因家中環境刻苦，曾連夜搬到工寮，更經常沒錢買早餐吃。郭婞淳期許自己「人生不只是贏得比賽，而是幫助別人一起完賽」；在頒獎完後受訪時，郭婞淳也提到：「這筆獎金，我會先拿來照顧家人，當然，一定會再想想看怎麼幫助這個社會。」
+
+<figure>
+<img src="https://web.archive.org/web/20211204131851im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/中華台北-舉重女神郭婞淳-東京奧運-20210727192452_16ed_large.jpg" alt="">
+<figcaption>郭婞淳揭露自己小時成長的坎坷故事，並期許能把獎金拿來幫助社會。取自郭婞淳臉書</figcaption>
+</figure>
+
+台灣阿美族女孩郭婞淳今在東奧女子舉重59公斤級「輕鬆」奪金，並締造抓舉103公斤、挺舉133公斤及總和236公斤奧運紀錄。不過，她在挺舉進行第三次試舉時，原想突破個人141公斤世界紀錄，未料一個不小心就跌倒在地，當時已確定奪下金牌的她，在賽場上留下開懷燦爛的笑容，也成了台灣民眾熱議焦點。
+
+根據 [郭婞淳臉書自述](https://web.archive.org/web/20211204131851/https://www.facebook.com/kuohsingchuntaiwan/posts/375572930595222) ，她小時家中經濟環境非常刻苦，母親長期在外地工作，從小由外婆帶大；家中曾因積欠房貸，連夜搬到工寮或借住親戚家，已成了常態，更經常沒錢可以買早餐吃。不過，天生愛運動的婞淳，也透過運動找到心靈寄託，更透過體育獎學金及獎金，不僅負擔自己的學費，也可以幫助到家中經濟。
+
+其實，郭婞淳國中最喜歡的運動是籃球跟田徑，當年還曾代表學校參加全中運接力賽，可惜意外在比賽中掉棒，從奪牌熱門淪為無緣獎牌。她自責痛哭一整天，沒想到，隔天卻在兼練的舉重項目輕而易舉地奪得金牌，無心插柳的結果，反而讓她發現自己更適合舉重。
+
+<figure>
+<img src="https://web.archive.org/web/20211204131851im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/舉重女神郭婞淳-東京奧運-金牌選手-20210727193549_1c3a_large.jpg" alt="">
+<figcaption>郭婞淳貼出自己因苦練雙手長繭的照片。取自郭婞淳臉書</figcaption>
+</figure>
+
+郭婞淳從高一下就進入國家隊培訓，並逐漸在國際賽展露頭角，2012年在倫敦奧運奪下女子舉重58公斤級第8名，隔年就接連奪下世界大學運動會、東亞運動會、世界舉重錦標賽奪下金牌；原本郭婞淳被看好在隔年的仁川亞洲運動會奪金，但卻在五月訓練時意外被槓鈴壓傷，造成右大腿肌肉70%斷裂。
+
+[郭婞淳在臉書提到](https://web.archive.org/web/20211204131851/https://www.facebook.com/kuohsingchuntaiwan/posts/375572930595222) ，更痛苦的是復健階段，原本自己可以輕鬆舉起的重量，傷後用盡全力卻無法舉起，加上外界的耳語，一度懷疑自己是不是回不到以前的狀態，所幸在教練、醫生、團隊的鼓勵下，她選擇用正面的心態去面對，為自己為家人做最大努力，並有感而發地說﹔「相信所有的挫折，都是最好的安排。」
+
+這次受傷的經驗，也讓郭婞淳想起更多需要幫助的人，她回憶道，被槓鈴壓傷的當下，躺在地上的她只想著，在國訓中心等救護車都等這麼久，「如果是我的家鄉或更偏遠的地區怎麼辦？」一念之間，她拿出自己在國際賽累積的奪牌獎金，捐了價值150萬的救護車給澎湖惠民醫院。
+
+郭婞淳說，當年因出生時體重過輕、臍帶繞頸、胎位不正等問題，最後倖存下來，才有名為婞淳的舉重女神，她說，「人生不只是贏得比賽，而是幫助別人一起完賽。」而懷抱所有人的期待，站上舉重最高殿堂的她，仍心心念著要將獎金拿來行善；更令她開心的是「有很多運動員主動問我，該怎麼捐錢幫助別人。」人美心美，奪金無往不利的她，讓行善成了具有感染力的力量。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204131851/https://hkcnews.com/aboutus/#subscribe)

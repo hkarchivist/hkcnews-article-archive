@@ -1,0 +1,124 @@
+---
+title: "為什麼醫管局自選兼職網登記人數是不能說的秘密？"
+date: "2019-03-13"
+last_updated: "2019-03-13 06:05:39"
+author: "記者吳婉英"
+category: "眾聞"
+tags:
+  - "醫管局"
+  - "公開資料守則"
+  - "Locum"
+url: "https://web.archive.org/web/20211028180902/https://www.hkcnews.com/article/19043/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-locum-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19045/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19043/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-locum-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19045/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 為什麼醫管局自選兼職網登記人數是不能說的秘密？
+
+眾新聞去年率先披露，醫管局年內批出高達 [7,266萬元合約](https://web.archive.org/web/20211028180902/https://www.hkcnews.com/article/13997/%E9%86%AB%E7%AE%A1%E5%B1%80-%E4%B8%AD%E4%BB%8B%E8%AD%B7%E5%A3%AB-%E5%A4%96%E5%88%A4%E5%93%A1%E5%B7%A5-14106/%E9%86%AB%E7%AE%A1%E5%B1%807000%E8%90%AC%E5%A4%96%E5%88%A4%E8%AB%8B%E3%80%8C%E7%82%92%E6%95%A3%E3%80%8D%E8%AD%B7%E5%A3%AB-%E4%B8%AD%E4%BB%8B%E5%85%AC%E5%8F%B8%E7%82%BA%E5%85%A9%E5%A4%A7%E9%9B%86%E5%9C%98) ，透過中介公司聘請大批中介護士及支援人員。今年再翻查醫管局的招標資料，發現相關 [中介服務合約金額大增至2.12億元](https://web.archive.org/web/20211028180902/https://www.hkcnews.com/article/18491/%E4%B8%AD%E4%BB%8B%E8%AD%B7%E5%A3%AB-%E9%86%AB%E7%AE%A1%E5%B1%80-%E9%AB%98%E6%B0%B8%E6%96%87-18491/%E9%86%AB%E7%AE%A1%E5%B1%802%E5%84%84%E8%81%98%E3%80%8C%E7%82%92%E6%95%A3%E3%80%8D%E8%AD%B7%E5%A3%AB-%E9%AB%98%E6%B0%B8%E6%96%87%E4%BB%BB%E8%91%A3%E4%BA%8B%E5%85%AC%E5%8F%B8%E4%B8%AD%E6%A8%991%E5%84%84) ，記者向前線醫護人員了解中介護士的工作情況時，從他們口中得知原來「醫管局都開始『炒散』」（意指醫管局去年底推出的「 [自選兼職招聘網站，Locum Recruitment Website](https://web.archive.org/web/20211028180902/https://www.ha.org.hk/visitor/ha_visitor_index.asp?Content_ID=248373&Lang=CHIB5&Dimension=100&Parent_ID=2010&Ver=HTML) 」），觸發記者跟進Locum的實施情況。
+
+記者上月開始向多名醫生、護士打探，他們大多表示知道有這項新措施，但未聞有人參加。記者最終僅接觸到一名 [新紮護士Kelly](https://web.archive.org/web/20211028180902/https://bit.ly/2JihBD4) （化名）曾在Locum登記，她受訪時已登記逾兩個月，卻遲遲未通過審批，她多次向醫管局查詢，一直得不到正面回覆。她等到心灰意冷，已打算放棄醫管局的兼職工作機會。
+
+流感高峰期，公立醫院陷於水深火熱，前線醫護人手特別緊張。據 [醫管局去年11月4日的新聞稿](https://web.archive.org/web/20211028180902/https://www.info.gov.hk/gia/general/201811/04/P2018110400354.htm?fontSize=1) 指，Locum作為「更具彈性及效率的招聘方式」，以「紓緩前線醫護的工作壓力」為目標。然而，在實際運作上，Locum的成效卻遭醫管局內、外的醫護質疑，矛頭直指醫管局高層及人力資源部門。
+
+相關報道： [醫管局新推「兼職招聘網」被批處理慢　護士登記逾3個月尚未能揀工](https://web.archive.org/web/20211028180902/https://bit.ly/2JihBD4)
+
+<figure>
+<img src="https://web.archive.org/web/20211028180902im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/01/香港護士協會-遊行-護士捱義氣-20190123000104_1a80_large.jpg" alt="">
+<figcaption>食衞局局長陳肇始發表「捱義氣論」後數日，護士協會發起遊行，批評「政府無義氣」，參與遊行的護士要求當局增撥資源，以紓緩前線壓力。港台圖片</figcaption>
+</figure>
+
+記者自2月15日起，透過電郵向醫管局公關查詢有關Locum實施情況的基本數據，包括登記人數、成功配對個案數字、處理申請的進度等。不過，醫管局僅提供成功配對數字。記者再追問具體的登記人數、已通過審批的人數，以及Locum平台上可供配對的工作數量，醫管局始終未有回答。
+
+在眾新聞4次追問下，醫管局公關於2月22日透過電郵回覆指：「本局早前已向閣下提供，透過計劃成功配對自選兼職工作的醫護人員數目。由於部份申請自選兼職工作的人士，所具備的資歷和工作經驗並非醫管局主要選擇的對象，又或申請人所提供的資料不完整，因此本局不會就計劃申請人數作進一步補充。」
+
+記者隨後改以市民名義向醫管局的公開資料主任查詢，惟公開資料主任引用公開資料守則第2.13 (a) 段：「如披露與不完整或未完成的分析、研究或統計有關的資料，可能會令人產生誤解，或剝奪有關部門或任何其他人士發布資料的優先權或商業利益。」表示不能提供Locum的登記人數，以及已通過審批的人數。至於可供配對的工作數量，醫管局公開資料主任回覆稱，醫管局沒有編備中央紀錄，同樣無法提供。
+
+<figure>
+<img src="https://web.archive.org/web/20211028180902im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/醫管局-自選兼職招聘網站-Locum-20190313024726_2ad1_large.jpg" alt="">
+</figure>
+
+奇怪的是，醫管局過去曾經公布Locum的登記人數。據 [Now新聞台](https://web.archive.org/web/20211028180902/https://news.now.com/home/local/player?newsId=329051) 、 [《明報》](https://web.archive.org/web/20211028180902/http://www.mingpaocanada.com/van/htm/News/20181130/HK-ghb1_r.htm) 、 [東網](https://web.archive.org/web/20211028180902/https://hk.on.cc/hk/bkn/cnt/news/20181129/bkn-20181129170614025-1129_00822_001.html) 等主流傳媒引述，醫院管理局總辦事處人力資源主管彭飛舟去年11月底出席傳媒茶聚時披露，Locum當時已有約200人登記，他對Locum的實施感到樂觀。可見醫管局早前對於公布Locum的登記人數，並不存在「不完整」、「未完成」、「令人產生誤解」等憂慮，顯然該數字亦不損醫管局「發布資料的優先權或商業利益」。那麼，為什麼事隔3個月，這個數字變得諱莫如深，以至於醫管局要對之三緘其口？
+
+再者，Locum目前仍然運作，可供配對的工作就在Locum平台之上，公開資料主任指醫管局沒有編備紀錄，說法更令人費解。事已至此，記者無計可施，遂要求醫管局公開資料主任覆檢其回覆。
+
+<figure>
+<img src="https://web.archive.org/web/20211028180902im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/醫管局-自選兼職招聘網站-Locum-20190312204349_1718_large.png" alt="">
+<figcaption>醫管局去年11月初推出「自選兼職招聘網站」（Locum），並於12月1日起開始在平台上提供兼職工作資訊。Locum頁面截圖</figcaption>
+</figure>
+
+### **朱福強：醫管局誤引公開資料守則**
+
+關注訂立檔案法及資訊自由法多年的前檔案處處長、檔案行動組副主席朱福強，了解記者的查詢以及醫管局公開資料主任的回覆內容後，質疑公開資料主任誤引公開資料守則條文，他批評醫管局公開資料主任的做法「好有問題」，「點解而家啲公營機構都咁爛嘅呢？」
+
+朱福強認為，記者所問的是一個既定時間之內的登記人數，屬一個清晰的時段內的資料，並非「不完整或未完成的分析、研究或統計有關的資料」，「呢個（Locum）係going on㗎嘛，（假設）going on到2079年，唔通等到2079年、個項目完咗先問你呀？一係你話我聽個項目係咪會完？幾時完？除非你講到幾時完，完咗喇，你會分析，咁我會接受（現時不公布相關數字），但如果唔係諗住幾時完，一個still going on嘅嘢，有咩理由話『不完整或未完成的分析』呢？佢（醫管局）玩你。一定係有啲咩原因，唔想話俾你聽。」至於醫管局稱沒有編備Locum可供配對的工作數量，朱福強亦質疑：「又係冇乜理由。」
+
+**眾新聞向醫管局公關查詢的經過**
+
+**2019年2月15日／眾新聞查詢：   
+** 1. 醫管局推出兼職網站( www.ha.org.hk/goto/locum ) 至今，共有多少醫護人員登記？請提供醫生、註冊護士、登記護士的分項數字。   
+ 2. 目前有多少名在兼職網站( www.ha.org.hk/goto/locum ) 登記的醫護人員已經至少一次獲安排工作？   
+ 3. 醫管局兼職網站( www.ha.org.hk/goto/locum ) 開始安排登記的醫護人員到公立醫院工作？如尚未開始，有關安排正處於什麼階段？預期將於什麼時候才安排登記的醫護人員到公立醫院工作？
+
+**2019年2月15日／醫管局回覆：   
+** 醫管局於去年11月推出自選兼職招聘網站(Locum Office)，透過辦公室建立一個合資格並可彈性兼職上班的醫護人才庫。自選兼職人員可以透過網站按照自己的意願選擇合適的地點及時段上班，毋須分別向個別醫院遞交申請，省時方便。醫管局希望透過更具彈性及效率的招聘方式，吸引及招聘更多醫生和護士到公立醫院兼職，加強人手，紓緩前線醫護的工作壓力。
+
+截至今年2月12日，已有16名醫生、35名登記護士及46名註冊護士透過自選兼職招聘網站(Locum Office)成功配對，為公立醫院提供兼職服務。
+
+**2019年2月18日／眾新聞查詢：   
+** 共有多少醫護人員已於醫管局的兼職網站( www.ha.org.hk/goto/locum )登記？請提供醫生、註冊護士、登記護士的分項數字。如未能提供，請解釋原因。
+
+據知Locum Office需時最多10星期處理兼職網站( www.ha.org.hk/goto/locum )的申請。請說明Locum Office在這10星期內有何工作，例如是否需要核對證書或文件？何以處理時間長達10星期？
+
+**2019年2月19日／醫管局回覆：   
+** 自選兼職辦公室自去年12月1日開始初步階段的運作，初步反應良好，申請人數也不斷上升。截至2月17日，已為103 名醫護人員成功配對，為公立醫院的病人提供服務，當中包括16名醫生、39名登記護士及48名註冊護士。此外，我們現正積極跟進超過50個已審核資歷的醫護人員，根據他們選擇的工作地點及工作時間，與各聯網進行工作配對及考慮合適工作安排。其餘部分申請人因所具備的工作經驗並非我們主要選擇的對象，另部份申請人所提供的資料未完整，例加欠缺資歷證明、學歷證明等等，辦公室也正努力跟進及聯絡，期望他們提供足夠資料，以便作進一步的審核及安排。
+
+**2019年2月19日／眾新聞查詢：   
+** 請問是否有截至近期某日的具體申請人數（包括醫生、登記護士及註冊護士的分項數字）？
+
+**2019年2月19日／醫管局回覆：**   
+ 就是回覆中所指的人數，我們沒有補充了
+
+**2019年2月19日／眾新聞查詢：   
+** 我昨天跟進問題所問的是登記／申請人數，並非成功配對的宗數。貴局11月底曾公布有超過200人登記，我們希望　貴局提供近期較新的數字以作參考。謝謝。
+
+**2019年2月21日／眾新聞查詢：   
+** 現時正值冬季流感高峰期，公立醫院醫護人員人手緊張。公立醫院的情況，及至醫管局為紓緩前線醫護壓力所採取的措施，同樣備受公眾關注。眾新聞有意跟進醫管局自選兼職招聘網站 ( Locum Office ) 自去年11月推出至今的實施情況，冀　貴局提供以下資料：   
+ 1. 已於Locum Office登記／申請的人數，包括醫生、登記護士及註冊護士的分項數字。   
+ 2. 目前Locum Office可供配對的工作量（可以宗數、更數、時數等為單位）。   
+ 敬請　貴局提供具體數字，以便我們報道時能夠準確反映實情。
+
+**2019年2月22日／醫管局回覆：   
+** 各公立醫院會透過自選兼職辦公室刊登兼職通告，辦公室會為合資格的醫護人員按其意願配對可供申請兼職工作的醫院及部門。聘請兼職的醫院毋須預先設定兼職崗位的數目及工作時數，有關安排可以增加彈性，方便醫護人員自由選擇及作出配對。
+
+本局早前已向閣下提供，透過計劃成功配對自選兼職工作的醫護人員數目。由於部份申請自選兼職工作的人士，所具備的資歷和工作經驗並非醫管局主要選擇的對象，又或申請人所提供的資料不完整，因此本局不會就計劃申請人數作進一步補充。
+
+自選兼職辦公室自去年12月初開始運作，提供更具彈性及效率的招聘方式，以吸引及招聘更多醫生和護士到公立醫院兼職，應付季節性服務高峰或其他突發情況。除自選兼職辦公室外，醫管局一直致力加強公立醫院的醫護人手，包括招聘全職醫護人員及重新聘用退休而合適的醫護人員外，同時亦透過不同平台，招聘合約及短期兼職醫護人員加強人手，以紓緩前線醫護人員的壓力。
+
+**記者以市民身份向醫管局公開資料主任查詢的經過**
+
+**2019年2月25日／記者查詢：   
+** 有關醫管局於去年11月推出的自選兼職招聘網站(Locum Office)，本人欲查詢以下資料：   
+ 1. 目前自選兼職招聘網站(Locum Office)的總登記人數，以及專科醫生、非專科醫生、登記護士、註冊護士登記人數之按月分項數字。   
+ 2. 目前已通過審核資歷的人數，以及按專科醫生、非專科醫生、登記護士、註冊護士劃分之分項數字。   
+ 3. 目前已成功配對的人數，以及按專科醫生、非專科醫生、登記護士、註冊護士劃分之分項數字。   
+ 4. 目前自選兼職招聘網站(Locum Office)可供配對的工作量（以宗數、更數、時數等為統計單位亦可）。
+
+**2019年3月5日／醫管局公開資料主任回覆：   
+** 第 1 及 2項   
+ 醫管局不能提供妳所要求索取的資料，理由見載於公開資料守則第2.13 (a) 段。現謹引述該段如下:   
+ 「如披露與不完整或未完成的分析、研究或統計有關的資料，可能會令人產生誤解，或剝奪有關部門或任何其他人士發布資料的優先權或商業利益。」(第2.13 (a) 段)   
+ 如妳認為本局未有遵行守則的規定，可要求本局覆檢有關情況。本局的電郵地址是 [[email protected]](/web/20211028180902/https://www.hkcnews.com/cdn-cgi/l/email-protection) 或郵寄地址九龍亞皆老街147B醫院管理局大樓410S室（經辦人：醫院管理局總辦事處公開資料主任） 。
+
+第3項   
+ 截至2019年2月24日，成功配對的人數為106 名，包括9名專科醫生、8名非專科醫生、40名登記護士及49名註冊護士。
+
+第4項   
+ 醫管局沒有編備中央紀錄，因此無法提供所需資料。根據公開資料守則第1.14段，守則不會强制部門編製從來沒有存在的紀錄。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211028180902/https://www.hkcnews.com/aboutus/#subscribe)

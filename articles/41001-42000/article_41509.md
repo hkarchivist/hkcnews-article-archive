@@ -1,0 +1,82 @@
+---
+title: "分析羅家聰博士基本經濟學概念令人不解之處"
+date: "2021-05-20"
+last_updated: "2021-05-20 15:06:23"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "羅家聰"
+  - "經濟學"
+url: "https://web.archive.org/web/20220125021011/https://hkcnews.com/article/41509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41517/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41509/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41517/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 分析羅家聰博士基本經濟學概念令人不解之處
+
+<figure>
+<img src="https://web.archive.org/web/20220125021011im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/經濟-經濟學-20210520044843_1c99_large.jpg" alt="">
+<figcaption>插圖來源：Shutterstock.com</figcaption>
+</figure>
+
+【撰文：粉末】
+
+幸得羅家聰博士 [賜文](https://web.archive.org/web/20220125021011/https://www.hkcnews.com/article/41409/羅家聰-41445/回應讀者「粉末」來論) 回應筆者日前的 [文章](https://web.archive.org/web/20220125021011/https://bit.ly/3bmQnHo) ，又剛好讀到博士一些新文章，發現博士又將改革基礎經濟學的努力提升到一個新高度。筆者（非學者也）不才，再為文分析博士一些基本經濟學概念令人不解之處。
+
+**相關文章：**
+
+[羅家聰：本港增長離奇高　扣除出口實負數](https://web.archive.org/web/20220125021011/https://bit.ly/3ezjQzS) （2021.5.10）
+
+[粉末：香港經濟就死喇！咁大件事無人講？](https://web.archive.org/web/20220125021011/https://bit.ly/3bmQnHo) （2021.5.13）
+
+[羅家聰：回應讀者「粉末」來論](https://web.archive.org/web/20220125021011/https://bit.ly/2QydSpv) （2021.5.17）
+
+### 1.如何將庫存變動等同資本折舊？
+
+首先感激博士承認其原文中一個錯誤（將兩個基礎不同的投資變動數字直接比較）。可惜，當博士解釋其選擇投資總額按年變化的原因時，卻誤將「資本折舊」與「庫存變動」劃上等號。   
+   
+ 資本投資（正式名稱為本地固定資本形成總額，博士簡稱GFCF）也者，包括了樓宇建造、設備機器等資本開支，即博士所說的I(t) = (K(t+1) −K(t)) + δK(t) ≡ ΔK(t) + δK(t)。按其定義，「總額」（gross）就已算了資本折舊在內。   
+   
+ 庫存就是庫存，與資本投資／資本折舊是兩回事，在GDP統計中是兩條數，不是為了加回資本折舊而出現在GDP統計裏。博士說「強行不計庫存變動，變相是強將投資簡單說成GFCF，亦即強說I(t) =  ΔK(t) 或δ = 0」根本就無從說起，不知是否博士新發明的GDP定義。   
+   
+ 此外，我的文章已說明，投資確為GFCF和庫存變動總和，但博士簡單地把兩個數字加起來的總投資，來推論香港投資狀況惡化，實在是有點不盡不實。詳細分析請參閱前文，本文不贅。
+
+### 2. 外需恢復艱難？
+
+先舉個例：某甲一向打兩份工，一份是酒吧侍應，一份是貨櫃碼頭操作員。疫情之下，酒吧關門，國際貿易也冰封，兩份工作雙雙收入大減。到了最近，國際貿易回暖，貨櫃碼頭要某甲加班工作，收入大致回復之前水平；然而，酒吧雖然重開，光顧客人卻不是十分多，貼士收入還是很少。因為有貨櫃碼頭的工作，某甲收入比去年第一季疫情最惡劣時已大為改善，即使兩份工加起來的收入比疫情前還是較少，總算擺脫了最差的時候。要是老婆還譏諷他：「貨櫃碼頭份工好又點丫？香港貿易第時邊度仲有得撈？你份酒吧工咪又係搵唔到錢！」此話恐怕有點太不近人情吧。   
+   
+ 先搞清幾個事實：第一，香港第一季經濟按年增長7.9%，本地需求雖然下跌了1.3%，但外需帶動下經濟確實比去年第一季最惡劣時有改善。香港和某甲一樣，在疫情仍未結束前，不同行業復甦步伐肯定不均，外需改善帶來的貢獻已實實在在為不少生活艱難的人解決燃眉之急。講香港經濟，只看內需而不管外需，是以偏概全，並非爭拗甚麼「全球公認的計法」的問題。   
+   
+ 第二，博士說：「在西方杯葛撤資下，外需當然『並不可恥』，但顯然艱難。」GDP給出的數據暫時未能支持此話。貨物貿易在前文也已談過，這裏不贅。服務貿易方面，本港三大服務輸出類別為運輸、旅遊及金融服務。疫情前，三者佔整體服務輸出比例約三成、三成和兩成（可參閱統計處貨品和服務貿易的 [統計表](https://web.archive.org/web/20220125021011/https://www.censtatd.gov.hk/tc/EIndexbySubject.html?scode=250&pcode=D5240204) ）。疫情固然令去年旅遊業輸出跌至接近零，運輸也銳減近四成，金融服務輸出卻倒升3%，升幅比對上幾年更佳，當中一定程度受惠於去年熱熾的新股活動。西方杯葛撤資會否令外需（包括貨品和服務貿易）將來無以為繼，尚待觀察。
+
+### 3. 生產函數
+
+博士在眾新聞的最新一篇 [文章](https://web.archive.org/web/20220125021011/https://www.hkcnews.com/article/41452/%E7%AC%AC%E4%B8%83%E6%AC%A1%E5%85%A8%E5%9C%8B%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5-%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E7%BE%85%E5%AE%B6%E8%81%B0-41452/%E4%BA%BA%E5%8F%A3%E7%B8%AE%E6%8B%96%E7%B4%AF%E7%B6%93%E6%BF%9F-%E9%80%9A%E8%84%B9%E5%8D%87%E6%88%96%E6%88%90%E8%B6%A8%E5%8B%A2) 說道：「生產函數多寫成Y = F(K,L)，人力顯然是其一要素。將兩邊均取其對的偏導數（筆者按：即partial derivative），左邊就是著名的marginal product of labour，右邊為勞工份額（labour share）。」   
+   
+ 按博士的計算方法，左邊確是著名的marginal product of labour（MPL），右邊其實也是marginal product of labour（不是說笑）。要算勞工份額，需要把MPL乘以人力投入（L）再除以產出（Y）。推演方法只需用簡單微積分，有興趣者請參見註腳 **[1]** 。   
+   
+ 至於博士說「大陸的勞工份額介乎0.5至0.6間，即過一半，可以說仍勞動密集」是否經濟學界共識，筆者不多作評論了。 [美國](https://web.archive.org/web/20220125021011/https://www.mckinsey.com/featured-insights/employment-and-growth/a-new-look-at-the-declining-labor-share-of-income-in-the-united-states) 的勞工份額也高於0.5，不知算不算勞動密集。
+
+### 4. 按月變化與按年變化相加？
+
+博士本周在《蘋果日報》的 [專欄](https://web.archive.org/web/20220125021011/https://hk.appledaily.com/finance/20210516/6JDO4OYLJFDIRB7ZI6VQV5SDJY/) 寫道：「早在上次出數據（筆者按：美國消費物價指數通脹）時按月通脹已0.6%，按年2.6%，將這舊數加起得按年新數也3.2%。加上去年lockdown通脹比正常低約1%，將之加起即得4.2%之今次數字。」按月和按年的數據變化是加不起來的，因為分母不同（按月變動的分母是對上一個月，按年的分母是對上一年的同一個月），而且按月（和按季）的經濟數據常常經過季節性調整，按年數據一般不必作此調整（都是同一月份或季度嘛，只不過是比較早一年數據），因此如何把上次的按月數據+上次的按年數據來推算新的按年數據，也有待博士進一步解釋。可能是某些approximation？   
+   
+ 筆者兩篇文章，並非要針對博士捉字蚤，只希望一般讀者閱讀任何人的文章，不論作者背景地位，都應該公允地理解和審視作者提出的理據是否真確，以及其得出的結論是否合理全面，最低限度不必被作者一些彷彿高深莫測的分析（例如研究院級的數學方程式）嚇倒。   
+   
+ 筆者就著博士在經濟學概念的分析就此打住，還望日後有其他更有趣的話題再作分享。   
+   
+ **附註：**   
+   
+ [1] 博士介紹的應該是Cobb-Douglas production function Y = A L∧(α) K∧(1-α)。兩邊皆take partial derivative，會得到邊際勞工產出（marginal product of labour）：   
+ ∂Y/∂L = α A L∧(α-1) K∧(1-α)= α （AL∧(α)K∧(1-α)）L∧(-1) = α(Y/L) = MPL   
+ 在一些假設下，MPL是等於工資（w），而非勞工份額；α才是。   
+ α(Y/L) = MPL   
+ α = MPL(L/Y) = (wL)/Y   
+ 意即工資乘以勞工投入除以總產出，便是勞工份額。若博士不是以此函數作分析，還請賜教。
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20220125021011im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

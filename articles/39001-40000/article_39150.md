@@ -1,0 +1,77 @@
+---
+title: "【保釋覆核】黃碧雲獲保、伍健偉遭拒　法官指伍難證不會再犯"
+date: "2021-03-11"
+last_updated: "2021-03-13 13:58:02"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "黃碧雲"
+  - "Helena WONG"
+  - "伍健偉"
+  - "47人初選案"
+url: "https://web.archive.org/web/20210925214047/https://www.hkcnews.com/article/39150/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39207/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/39150/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-39207/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【保釋覆核】黃碧雲獲保、伍健偉遭拒　法官指伍難證不會再犯
+
+初選47人案，案件押後至5月底再訊，其中11人獲准在等候期間保釋外出，惟遭律政司即時申請覆核決定。高等法院今早處理律政司就黃碧雲、伍健偉的覆核申請，二人分別審訊一小時。最終，黃碧雲獲准保釋，將可在家度過62歲的生日；伍健偉則不准保釋，在庭上最後吶喊：「願粹我命，捍衛我城」、「全民自救，打破宿命」，籲港人撐住，「十年後見」。
+
+主審的國安法指定法官、高等法院法官杜麗冰，認為根據席前資料，相信黃碧雲不會再作出危害國家安全的行為，可以取保候審；伍健偉的資料則不足以證明其不會再犯，故拒批保釋。
+
+眾新聞翻查資料，獲准保釋的黃碧雲參加初選時，並沒有簽署「墨落無悔」聲明，而伍健偉則有簽署該聲明。餘下9名遭保釋覆核的被告，全部都曾簽「墨落無悔」聲明，即張可森、彭卓棋、柯耀林、施德來、何啟明、時為公民黨黨員的鄭達鴻、譚文豪、郭家麒、李予信。不過，已經獲准保釋、並獲律政司撤回保釋覆核的楊雪盈，亦曾經簽該聲明。
+
+<figure>
+<img src="https://web.archive.org/web/20210925214047im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/伍健偉-47人初選案-顛覆國家政權罪-20210311184305_22e6_large.jpg" alt="">
+<figcaption>3月4日，初選47人案部分被告被帶上囚車，紅圈者是伍健偉。美聯社照片</figcaption>
+</figure>
+
+47位參與或協調組織2019年民主派初選的人士，今年2月底被控顛覆國家政權，違反國安法。案件首次提堂後，押後至5月31日再訊。本月初在西九裁判法院進行4日4夜的保釋申請聆訊，法庭最終向其中15人批出保釋，律政司即時要求覆核，結果全部47人遭即時還柙。
+
+律政司翌日撤銷對其中4人（楊雪盈、林景楠、呂智恆、劉偉聰）的覆核申請，餘下11人要應訊。高等法院今早開庭，首先處理律政司就黃碧雲、伍健偉的覆核申請。今晨8時許，黃碧雲與伍健偉分別由囚車送抵法院，逾60名公眾包括鄺俊宇、楊雪盈、張超雄，到庭旁聽。
+
+國安法第42條列明，對犯罪嫌疑人、被告人，除非法官有充足理由相信其不會繼續實施危害國家安全行為的，不得准予保釋。
+
+9時半開庭，申請方（律政司）繼續由副刑事檢控專員（特別職務）楊美琪代表陳詞；黃碧雲則由大律師公會主席、資深大律師夏博義代表。杜官聽取雙方陳詞後宣讀簡短裁決，表示根據席前的資料，認為滿足國安法下批出保釋的條件，即不會再犯國安法。杜官批准黃碧雲以原獲准的條件保釋外出，包括現金擔保10萬元、丈夫人事擔保10萬元、每周到警署報到4次等。
+
+法庭隨即處理律政司就伍健偉的覆核申請。身穿深藍色的上衣的伍健偉坐在被告欄，由兩名懲教人員看守，寫了一些字向親友展示，亦不時揮手。伍由資深大律師彭耀鴻代表陳詞。申請覆核一方的律政司，續由副刑事檢控專員（特別職務）楊美琪代表。
+
+彭耀鴻陳詞期間，杜官多次要求釐清說法。最終，杜官裁定律政司覆核成功，伍健偉不准保釋。杜官在口頭的簡短裁決表示，席前資料不足以證明伍健偉不會再犯國安法，並引述雙方陳詞要點。
+
+
+{{< video src="https://web.archive.org/web/20210925214047if_/https://www.youtube.com/embed/t-xYnwFOCbc" >}}
+
+
+法庭裁決拒批伍健偉保釋，伍再度與公眾別離前，呼籲香港人撐住、十年後見，並與同屬天水連線的戰友叫口號：「願粹我命，捍衛我城」、「全民自救，打破宿命」，吶喊聲嚮遍庭內。
+
+伍健偉戰友林進在法庭外形容，這兩句口號正正代表了他們天水連線這一年半以來走過的路，「好多感受都唔知點樣講。希望大家繼續關注所有案件，無論係47人嘅案件定其他手足嘅案件，希望唔好令到任何手足被遺忘。」
+
+林進表示，伍健偉還柙初時精神有點緊張，現在已經平伏及適應，現時狀況還好，會繼續去探望伍。對於黃碧雲獲准保釋，而伍健偉遭拒，林進表示不評論誰人應該要保釋，亦不曾因黃保釋而抱有期望，畢竟情況不一樣，甚至背後可能有政治考慮，「但我諗未來嘅路幾難行都好，我們都會繼續行落去，我相信阿K（伍健偉）都係咁諗。」林進說︰「我希望歷史會還他一個公義。」
+
+<figure>
+<img src="https://web.archive.org/web/20210925214047im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/顛覆國家政權罪-47人初選案-黃碧雲-20210311183336_2d81_large.jpg" alt="">
+<figcaption>黃碧雲與等候她多時的好友擁抱。眾新聞影片截圖</figcaption>
+</figure>
+
+而黃碧雲在下午近5時，終於完成保釋手續，身穿螢光黃外套的她與丈夫一同步出法院。社運常客王婆婆與其他支持者沿途為她打氣：「加油呀，黃碧雲！」
+
+受限於保釋條件，她其後只簡短說了幾句話，沒有回應提問。遭還柙11天的她形容，今天帶著忐忑的心情上庭，「最終當然高興知道喺高等法院獲得保釋，重獲自由，我諗最想就係盡快返屋企休息、同家人團聚。」她並感謝民主黨黨友、律師團隊、石牆花的支持，並指在囚期間心情平和，因為知道自己沒有做錯事。最後，她表示最掛念的是同樣被捕的民主派朋友，希望他們盡快重獲自由與平安。
+
+黃碧雲的保釋條件包括：
+
+1. 任何人不得直接或間接以任何方式（包括傳統實體／電子媒體／任何公眾平台）作出、發放或轉載任何可能有合理理由，被視為違反國安法及香港法律中危害國家安全罪行的言論；   
+ 2. 任何人不得直接或間接以任何方式（包括傳統實體／電子媒體／任何公眾平台）作出任何可能有合理理由，被視為違反國安法及香港法律中危害國家安全罪行的行為；   
+ 3. 不得直接或間接組織、安排、參與或協調任何級別的選舉（投票除外），不論政府或非政府舉行的任何選舉；   
+ 4. 不得直接或間接以任何方式聯絡任何外國官員、議員、任何級別議員成員或其他服務於以上人員的人士；   
+ 5. 每日凌晨12時至早上7時宵禁；   
+ 6. 不准離港、交出所有旅遊證件及BNO；   
+ 7. 現金擔保10萬元、丈夫人事擔保10萬元；   
+ 8. 每周4次到油麻地警署報到。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925214047/https://www.hkcnews.com/aboutus/#subscribe)

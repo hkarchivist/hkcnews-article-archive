@@ -1,0 +1,59 @@
+---
+title: "英政壇地震　外相辭職　24小時內3高官呈辭"
+date: "2018-07-09"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "英國"
+  - "UK"
+  - "united kingdom"
+  - "the uk"
+  - "戴卓爾"
+  - "大不列顛及北愛爾蘭聯合王國"
+  - "辭職"
+  - "約翰遜"
+url: "https://web.archive.org/web/20210712020421/https://www.hkcnews.com/article/13449/%E8%8B%B1%E5%9C%8B-%E7%B4%84%E7%BF%B0%E9%81%9C-%E8%BE%AD%E8%81%B7-13449/%E8%8B%B1%E6%94%BF%E5%A3%87%E5%9C%B0%E9%9C%87-%E5%A4%96%E7%9B%B8%E8%BE%AD%E8%81%B7-24%E5%B0%8F%E6%99%82%E5%85%A73%E9%AB%98%E5%AE%98%E5%91%88%E8%BE%AD"
+original_url: "https://www.hkcnews.com/article/13449/%E8%8B%B1%E5%9C%8B-%E7%B4%84%E7%BF%B0%E9%81%9C-%E8%BE%AD%E8%81%B7-13449/%E8%8B%B1%E6%94%BF%E5%A3%87%E5%9C%B0%E9%9C%87-%E5%A4%96%E7%9B%B8%E8%BE%AD%E8%81%B7-24%E5%B0%8F%E6%99%82%E5%85%A73%E9%AB%98%E5%AE%98%E5%91%88%E8%BE%AD"
+---
+
+# 英政壇地震　外相辭職　24小時內3高官呈辭
+
+<figure>
+<img src="https://web.archive.org/web/20210712020421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/英國-文翠珊-20180710092923_d9ce_large.jpg" alt="">
+<figcaption>英國首相文翠珊可能面對黨內國會議員的挑戰。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712020421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/英國外相-辭職-約翰遜-20180709225138_19fe_large.jpg" alt="">
+<figcaption>外相約翰遜辭職，顯示文翠珊在黨內備受壓力。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712020421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/英國外相-UK-20180710092940_291e_large.jpg" alt="">
+<figcaption>新任外相侯俊偉。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210712020421im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/脫歐-英國-20180710093002_2c30_large.jpg" alt="">
+<figcaption>新任脫歐大臣藍韜文。美聯社</figcaption>
+</figure>
+
+英國政壇地震，24小時內先後3名高官呈辭，抗議首相文翠珊的脫歐方案。繼脫歐事務大臣戴德偉（David Davis）及副手貝克（Steve Baker）周日辭職，外交大臣約翰遜（Boris Johnson）突然在周一呈辭。數小時後，文翠珊委任原衛生大臣侯俊偉（Jeremy Hunt）接任外相。
+
+由脫歐談判引發的政治震盪，未有因為迅速填補辭職官員空缺而減低，英國廣播公司（BBC）政治新聞編輯昆斯伯格稱，在內閣主要成員辭職後，文翠珊所屬保守黨的國會議員，可能已經動員到足夠議員支持，對文翠珊發動信任表決。昆斯伯格在社交媒體貼文說：「據稱，保守黨國會議員已達到強制進行信任表決所需的48人。不過，我們無從得知這是否屬實。」
+
+如果保守黨國會議員有15%簽署不信任信件，並且交給「1922委員會」即保守黨黨團主席，就可對首相的領導地位發起挑戰。保守黨目前在國會擁有316席，因此需有48名議員簽署不信任函件，才能對首相啟動信任表決。「1922委員會」預定今天稍後召開會議。
+
+同一時間，民調機構ORB國際（ORB International）調查結果顯示，英國選民對文翠珊處理脫歐談判的支持率降到29%，創下2016年11月有這項調查以來新低。調查訪問約2000人，顯示56%受訪者不相信文翠珊能夠爭取到應有的脫歐協議；26%受訪者相信她能爭取，其餘則回答不知道。
+
+文翠珊除了委任曾被視為「留歐派」的侯俊偉為外相，並任命44歲住房部副大臣藍韜文（Dominic Raab）接任脫歐大臣。戴德偉辭職的原因，是覺得文翠珊的脫歐協商立場不夠強硬，他接受訪問表示，辭職是為了阻止文翠珊將太多國家權力交給歐盟。
+
+文翠珊的發言人周一說，英國內閣已就脫歐談判立場達成一致意見，將繼續推動和歐盟的談判工作，呼籲歐盟採取認真態度。發言人表示，「首相在回覆戴德偉的信中表示，她不同意他對政策所做的說法。這項立場是內閣6日討論後通過的，現在我們將推動這項計劃的談判。」發言人又說：「正如首相所言，我們已定好立場，現在輪到歐盟採取行動。首相希望歐盟在這些談判中採取認真態度。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712020421/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,92 @@
+---
+title: "香港印藝傳奇－我們的印刷歷史和文化"
+date: "2021-07-04"
+last_updated: "2021-07-05 10:47:16"
+author: "Jocelyn Yu"
+category: "眾說"
+tags:
+  - "英華字典"
+  - "香港版畫工作室"
+  - "香港字"
+url: "https://web.archive.org/web/20220808124831/https://hkcnews.com/article/43042/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43042/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43056/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港印藝傳奇－我們的印刷歷史和文化
+
+忙碌的藝術5月過了，其實還有其他展覽正在進行中。5月參加artist tour、聽朋友解說，去到沙田看看 [香港版畫工作室](https://web.archive.org/web/20220808124831/https://www.open-printshop.org.hk/) 策展的「字裡圖間－香港印藝傳奇」，學習香港的印刷歷史和技術，更深入了解我們的香港。香港本土歷史豐富，本土文化也很多元很活躍，絕不是長久以來被說成「文化沙漠」。
+
+<figure>
+<img src="https://web.archive.org/web/20220808124831im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/香港版畫工作室-英華字典-香港字-20210704080744_134c_large.png" alt="">
+<figcaption>《英華字典》，1866-1869羅存德（Wilhelm Lobscheid，1822-1893）編撰</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220808124831im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/英華字典-香港版畫工作室-香港字-20210704080815_1bfc_large.png" alt="">
+<figcaption>《英華字典》，1866-1869羅存德（Wilhelm Lobscheid，1822-1893）編撰</figcaption>
+</figure>
+
+以前不時會經過未搬校的牛津道英華書院。沒想到原來英華在香港的印刷史上都佔有一位置。   
+   
+ 展覽追溯到19世紀初，馬禮遜從英國來華傳教，開啟了近代中文活字發展。馬禮遜獲東印度公司的支持，在澳門成立印刷所，排印《英華字典》。這字典用上五年編寫，自1815年開始在東印度公司澳門印刷所排印，歷時八年完工。   
+   
+ 英國倫敦傳道會傳教士戴爾（Samuel Dyer，1804–1843）於1828年在檳榔嶼（位於現今的馬來西亞）的佈道站開始籌劃鑄字，1835 年投入生產。
+
+1843 年英華書院連同其印刷設備由馬六甲遷至香港，來自美國的專業印工柯理接手統籌鑄字工程。   
+   
+ 在香港印刷業商會出版的月刊《印刷藝術》（1940）中，這批明體字被稱為「香港字」，推算是因為香港英華書院是中國第一間中文鉛活字鑄字作坊，也是19世紀中葉全球最重要的中文活字供應中心，故這批明體字亦以其出產地為名。   
+   
+ 當時，由英華書院研發鑄造的明體字稱為「香港字」，被譽為是最美的中文活字，更遠銷海外各國。   
+   
+ 來自德國的羅存德（Wilhelm Lobscheid，1822-1893），身兼牧者、醫師和漢學家多職。他於1864年開始編撰《英華字典》，是當時第一本兩文三語的字典，當中有本地話（即廣東話）和官話（即國語）兩種中文拼音，由位於中環雲咸街的《孖剌西報》以「香港字」排印。
+
+<figure>
+<img src="https://web.archive.org/web/20220808124831im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/印刷-香港版畫工作室-海報-20210704075539_4e47_large.png" alt="">
+<figcaption>右：捉書圖－廣生隆酒莊海報手稿，1920至1930年代，關蕙農左：廣生隆酒莊海報，1920至1930年代，關蕙農繪、亞洲石印局印</figcaption>
+</figure>
+
+關蕙農（1878–1956）是南海西樵人，被譽為「月份牌大王」。1915 年，他在西營盤創立亞洲石印局。亞洲石印局業務範圍廣泛，從宣傳海報設計及印刷，至招紙包裝設計、商標設計和註冊一手包辦，有如今天的品牌設計公司。   
+   
+ 從眾多商業海報中，大家可看到當時的女性打扮和潮流，更可延伸理解當時社會普遍對女性形象的理解、期望和素造。   
+   
+ 展覽又展出了不同年代的印刷機和活字粒，也制作了數條影片，很詳細地展示出印刷過程和不同印刷技術和歷史。落了很多力的策展和資料搜集，絕對要推薦給大家。
+
+**活字印刷Movable Type Printing**   
+ **影片製作：IOIO Creative**
+
+
+{{< video src="https://web.archive.org/web/20220808124831if_/https://www.youtube.com/embed/Y0Qboozk-tU" >}}
+
+
+同場又有「20/20香港版畫圖像藝術展」，由香港文化博物館及香港版畫工作室聯合籌劃。   
+   
+ 展覽嘗試以20條與版畫圖像藝術相關的問題作為引子，並以20組展品作回應。展品包括1940年代至2020年的作品，展示大師的經典版畫及年青藝術家的最新創作。
+
+<figure>
+<img src="https://web.archive.org/web/20220808124831im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/香港版畫工作室-印刷-20210704075913_214b_large.png" alt="">
+<figcaption>「20/20香港版畫圖像藝術展」展覽現場。</figcaption>
+</figure>
+
+每一位藝術家的作品都很值得大家細看，難得地可看到不同時期的香港藝術家們的作品，是一個好機會去了解香港藝術史和各年代的香港藝術家。但館方的策展實在令人相當失望，甚至是惡劣的程度。   
+   
+ 每位藝術家的作品風格各異，視覺上已很忙碌，展覽牆上竟然會用上黃色做底色，令視覺更混亂。當日一進入展館內，就覺得很亂、不知從何開始。「不知從何開始」，還包括了展覽路線不明確。然後展覽共有20條問題，印有大大隻數字在牆身，於是就很疑惑，是應該跟著數字行走嗎？數字之間除了那「順序」的關連，其實內容又是否有關係？要去找那個數字、跟著數字走，這到底是一個有多刻板、沒有創意而又混亂的展覽？   
+   
+ artist tour 當天的同行友人們，大家來自不同行業和背景，不是每一個都有讀藝術或從事藝文工作。他們不約而同地對展覽品旁的art label 表示困惑，以為是「痴唔實，以為要跌啦」，然後伸出手指摸一摸⋯⋯
+
+但，每一位藝術家的作品都很值得大家細看的，藝術家們的創作沒有讓人失望。   
+   
+ **「字裡圖間－香港印藝傳奇」及「20/20香港版畫圖像藝術展」**   
+ **免費入場**   
+ **地點：香港文化博物館，新界沙田文林路一號**   
+ **時間：展覽至2021年7月26日，10am－6pm；逢星期二休館**   
+ **[更多展覽資料](https://web.archive.org/web/20220808124831/https://www.heritagemuseum.gov.hk/zh_TW/web/hm/exhibitions/current_exhibitions.html)**   
+   
+
+
+---
+
+![博客 | Jocelyn Yu](https://web.archive.org/web/20220808124831im_/https://hkcnews.com/uploads/avatars/ac8dbe3b-772f-4c8b-8931-5405b1697771.png?1400522243)
+
+**博客 | Jocelyn Yu**
+
+【Jocelyn Yu・樂在寧靜】樹仁大學新聞系畢業後，於日本鹿兒島和名古屋學習生活了約4年，考有「前結び宗家きの和裝学苑 きもの着付け一級講師」資格。香港大學 Art History 碩士課程畢業。旅遊文章散見於信報、Skyscanner HK等不同媒體，間中也擔當活動策劃、食譜編輯和日文翻譯。Writing is a way of thinking. IG account : jocelynyu

@@ -1,0 +1,73 @@
+---
+title: "白票表態紅線化　資審利益規避靠個信字？"
+date: "2021-04-14"
+last_updated: "2021-04-14 02:16:43"
+author: "林妙茵"
+category: "眾說"
+tags:
+  - "選委會"
+  - "完善香港選舉制度"
+url: "https://web.archive.org/web/20210925005851/https://www.hkcnews.com/article/40247/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40251/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40247/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40251/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 白票表態紅線化　資審利益規避靠個信字？
+
+中央大改香港選舉制度，特區政府的本地修例出爐，詳情很多，有待消化，看了記者會，初步留意到以下幾點。
+
+<figure>
+<img src="https://web.archive.org/web/20210925005851im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/02/Chief%20Secretary-選委-建制派-20170222005535_28e4_large.png" alt="">
+</figure>
+
+**1.白票有罪？**   
+
+
+個人投白票、不投票不犯法；但在選舉期間(提名期至選舉日) 「藉公開活動」叫人投白票、不投票就可能犯法，最重判監三年。至於何謂公開活動，定義不清楚。剛才有記者問：在Facebook出帖文，說自己投了白票，叫大家跟隨，算不算犯法？律政司司長鄭若驊回答時說，「分發材料」都算公開活動，而「電子分發」資料，都是分發。出一個「地球po」與「朋友po」有沒有分別？在WhatsApp向幾十/幾百人的群組講又可以嗎？劃線在哪？
+
+她又舉例，「公眾看到的行徑」例如在自己窗外懸掛宣傳品、或者用動作、姿勢、手勢、衣服、徽章等宣傳都不可⋯如此解讀，勢必產生無數難以界定的情況：如果屋企在選舉日掛白色窗簾、會否有人解讀成宣揚白票？Profile pic轉全白呢？穿白色衫呢？揸白色車呢？穿白襪呢？或者post「大家千祈唔好投白票呀，投白票是不對的喔」呢？要知道今時今日，舉五一手勢也是「罪」時，必須清楚解釋「煽惑」的定義。不然，日後可能要等學者上庭做專家證人時，才知道定義是甚麼。
+
+又或者，是否正是想不清不楚？它表面上雖未有將投白票刑事化，但實際上將「表達投白票意欲」或「表達不投票意欲」刑事化，或至少「紅線化」，將部分市民對大幅修改選舉制度的不滿「消音化」。政制內地事務局局長曾國衛說，修例是為免有人破壞選舉，或令選舉「公信力下降」。可能他覺得，只要不准人周圍講「個選舉改到咁，咪鬼投啦」，就等於捍衛了公信力。
+
+**2.資審會組成修訂**   
+
+
+資審會設主席一人，成員二至四人，都由特首委任。之前有說成員是司局長，修例的寫法是基本法48條(五)內的主要官員，換言之，警務處長、海關關長、入境處長等等都有機會被委任。要留意，警務處長本身已是國安委成員。資審會的決定是基於國安委判斷、而國安委判斷會依據警務處國安處調查，如果警務處處長也坐進資審會，可謂是警方「全流程」參與候選人政治審查。
+
+特首林鄭月娥記者會上預告會提出修訂，加入社會人士做資委，但沒有講明是甚麼類型。她之前解釋，不能委任退休法官，原因是「他們不是系統內」，以及國安資料要保密。現在加入「社會人士」都不是「系統內」、那資料又不用保密了嗎？林鄭說可以考慮「國安委寫意見俾資審會時唔好俾過份多嘅資料」。我搞不清楚即是怎樣了⋯即是國安委向資審會交意見書時，係話「嗱，呢個人唔得嘅，不過詳細原因唔講得」？但資審會才是「最後話事單位」，這樣會否有點不合邏輯？
+
+**3.利益衝突**   
+
+
+講了好多次的利益衝突問題始終沒有解決。林鄭說，她自己會表一個態「立此為照」，就是如果現任特首要角逐連任，則在國安委審定特首候選人的過程中避席，會公私分明。先不說這樣無助解決資審會成員「延後利益」的疑慮，就當特首此舉已能有效避免利益衝突，至少，是不是寫進條文？反正都五百多頁，多一句不多。為何只靠她一人「牙齒當金使」？特首之前也作過不少公開承諾，例如 [這個](https://web.archive.org/web/20210925005851/https://youtu.be/9EL9ESYGFfs) 立此了、存照了，就否就當真？
+
+**4.選委會界別分組**   
+
+
+除了「基層60席」由香港、九龍、新界社團聯會包辦之外，想知專業界別情況，法律界是很有代表性的例子。
+
+大家記得法律界以前怎樣選選委的嗎？是以個人票(大律師公會及律師會會員、政府律政人員、立法會法律顧問等)選出30席。過往均被視為泛民票倉，以上屆為例，就由「PanDem9」「ProDem21」兩張名單包攬。人大改附件時，將30席中，撥了6席予基本法委員會香港委員，9席撥歸「中國法學會香港理事」提名，以為餘下15席有得爭？是日揭盅：「合資格團體選民」有30個之多，大律師公會，佔一票。別誤會是「一張選委票」，是選出15個選委的其中一個團體！其他是甚麼？看看附圖便一目了然⋯
+
+<figure>
+<img src="https://web.archive.org/web/20210925005851im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/法律界-選委會-修改香港選舉制度-20210414020951_2f51_large.png" alt="">
+</figure>
+
+**5.選區劃界**   
+
+
+全港十個大區，基本上是在18區區議會基礎上組合，但有三區要拆開：沙田、元朗、黃大仙。在2019年區議會選舉中，這三區當中的兩區，正是全港反對派贏得議席比例最高的頭兩位（黃大仙100% 沙田 95.2%） 這是否政治學中的所謂「Gerrymander」，即是透過選區劃界影響結果？官方答案，當然是「純粹人口基數考慮」啦。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925005851/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 林妙茵](https://web.archive.org/web/20210925005851im_/https://www.hkcnews.com/uploads/avatars/4f400c77-5312-48f6-9a6b-52924b0a344e.png?317817742)
+
+**博客 | 林妙茵**
+
+【林妙茵・荒唐集】前電視台港聞採主，記錄加速時代的香港。文章雖長，too long please read。

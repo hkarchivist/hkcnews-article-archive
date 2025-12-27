@@ -1,0 +1,67 @@
+---
+title: "高院判違國安法保安局有權凍結投票權　黎智英未能投票將壹傳媒清盤"
+date: "2021-09-17"
+last_updated: "2021-09-18 00:38:59"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "黎智英"
+  - "壹傳媒"
+  - "國安法43條"
+url: "https://web.archive.org/web/20211027003941/https://hkcnews.com/article/45551/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD43%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45563/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45551/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD43%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45563/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 高院判違國安法保安局有權凍結投票權　黎智英未能投票將壹傳媒清盤
+
+壹傳媒集團大股東黎智英被控違反國安法，保安局今年5月凍結黎智英若干財產，包括他持有的71%壹傳媒股份。在囚的黎智英7月入稟要求高等法院宣告，凍結股份的效力不涵蓋行使股份附帶的投票權，日前聆訊時表明冀投票令壹傳媒順利清盤。法官陳健強今頒判詞，判黎敗訴，明言法庭應重視執法部門意見，國安法目的是防範和制止國安罪案，包括預防利用財產資助國安罪案，故應廣闊地詮釋涵蓋範圍。除非黎取得許可，否則不能投票。
+
+<figure>
+<img src="https://web.archive.org/web/20211027003941im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/蘋果日報-20210617141009_29bf_large.jpg" alt="">
+</figure>
+
+保安局引用《國安法第43條實施細則》附表3凍結黎智英財產，「除根據保安局局長批予的特許授權外，任何人不得直接或間接處理該財產」。案件爭議在於「處理」一詞是否包括行使股份附帶的投票權。
+
+判詞指「直接或間接」「處理」的詞義廣泛，加上國安法目的是防範、制止和懲治國安罪案，應廣闊地詮釋附表3涵蓋範圍，其作用包括預防利用財產資助國安罪案、避免處理財產結果影響調查和辦案、保存犯罪有關財產待日後充公等等。附表3設有特許授權機制，正是因為無法事先列明允許或禁止甚麼行為。
+
+### 特許機制已平衡私有財產權和國安法目的
+
+法官續指，財產權並非絕對，難以理解為何凍結令影響股份本身，但不影響股份附帶的重要權利。儘管「處理」一詞有些不精準，但很難找到更好的字眼。特許機制已緩和附表3的嚴苛程度，平衡了私有財產權和國安法目的。
+
+黎智英一方陳詞指，黎行使投票權不可能損害凍結令的效用，但法官不同意。法官指考慮國安風險時，法庭應適當地重視執法部門的意見，而保安局已拒絕特許黎智英無限制行使投票權。
+
+<figure>
+<img src="https://web.archive.org/web/20211027003941im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/壹傳媒-黎智英-20210514212854_1f87_large.jpg" alt="">
+</figure>
+
+### 引台灣物業交易為例指須對黎抱懷疑
+
+判詞指壹傳媒過去大半年有數項重大財務交易，可能影響公司市值。判詞列舉，去年12月黎智英書面授權出售壹傳媒台灣物業，作價4.7億港元；今年4月壹傳媒提早還債1.5億元予黎，相當於集團當時資金的3份之1；4月和7月壹傳媒再洽談出售台灣資產，包括以近1.4億元出售物業。
+
+法官表示，法庭未獲告知上述交易得益的下落。黎在呈堂誓章稱，有關去年12月台灣物業的交易他看漏了眼，其餘交易他沒有參與決定。法官認為，黎是集團大股東，提早還債一事更是直接跟他有關，對其說法必須抱懷疑。無論如何，交易反映若黎可無限制投票，可導致集團資產流失，削弱日後可能被充公的股份的價值。
+
+### 認同黎可委任外國代理人任董事危害國安
+
+保安局陳詞指，理論上黎可運用投票權使用公司資金支援顛覆活動，也可委任敵視中國的國家的代理人入董事局，從而危害國家安全。法官接納局方例子。判詞說，黎被控勾結外國勢力等嚴重國安罪行，他亦擁有大量財富，如果法庭以為黎身為大股東無限制地行使投票權，是絕不會損害凍結令效用，可謂天真。
+
+法官引述詐騙罪案例，案例指騙徒會想出無數新手法騙人，因此有些罪行的定義需比正常更廣泛或模糊，以保障大眾；同樣思路也適用於保障國家安全。
+
+### 中央在市民恐懼香港不復還時立法出手護港
+
+法官說明國安法立法背景時指，國安法在香港歷史關鍵時刻實施，絕大部份人均無法逃避街頭暴力的壓迫，令人恐懼昔日的香港將不復還，正是此際中央出手保護香港，堵塞法律漏洞。
+
+### 原申請法庭特許投票清盤但暫擱置
+
+黎智英入稟時同時申請，如果投票權受凍結，則請法庭特許他無限制行使投票權。判詞指保安局在本案候審期間，得悉壹傳媒4名董事全數辭任，並發現集團至少58間附屬公司的董事亦有變動，這批公司目前的董事只有兩名地址位於美國的人士。局方指最新發展對於特許申請的風險評估有重大影響。
+
+黎智英向法庭表示不知道事態變化，法官指黎身為大股東，對黎所言感到意外，認為即使黎在囚，通訊也不至於隔絕。黎因應壹傳媒情況變化，修訂要求，只申請准許投票將公司清盤。法官聆訊時表示，法庭不適合評估黎的申請有什麼國家安全風險，黎應先向保安局重新申請特許，若有爭議才上庭解決。黎遂決定暫時擱置特許申請。
+
+【案件編號：HCMP956/21】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027003941/https://hkcnews.com/aboutus/#subscribe)

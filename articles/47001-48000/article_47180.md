@@ -1,0 +1,51 @@
+---
+title: "【煽惑六四集會案】警司稱前年「全年打暴動」忘記六四集會情況　辯方：前年六四無暴動"
+date: "2021-11-02"
+last_updated: "2021-11-02 23:45:09"
+author: "記者黃健朗"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "六四集會案"
+url: "https://web.archive.org/web/20220117050838/https://www.hkcnews.com/article/47180/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47180/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47195/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【煽惑六四集會案】警司稱前年「全年打暴動」忘記六四集會情況　辯方：前年六四無暴動
+
+警方去年以疫情為由禁止維園六四集會，多名支聯會成員和泛民主派人士被控組織參與未經批准集結，何桂藍、鄒幸彤及黎智英不認罪，案件今日續審。辯方向反對集會的警司指出，六四集會30年來相安無事，包括前年集會。女警司自言2019年「全年都打緊暴動」，不記得前年集會情況。當辯方指出集會當時根本沒有暴動事件，她繼續解釋：「或者咁講，其實喺4月28日，已經好多人上街遊行。」言論惹來公眾人士嘩然。
+
+發出反對集會通知書的女警司周詠儀，案發時為北角警區指揮官。她供稱，去年4月她收到支聯會的集會通知，翌月28日與支聯會進行會議。她強調，警方一直尊重市民集會和遊行的自由，但同時亦需考慮「一籃子」因素，包括維護公共安全、公共秩序以及他人的權利。
+
+<figure>
+<img src="https://web.archive.org/web/20220117050838im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/police-六四集會-20211102175656_23b0_large.jpg" alt="">
+<figcaption>女警司周詠儀(左)</figcaption>
+</figure>
+
+### 警指衞生署不建議舉行集會
+
+周續指，她與支聯會開會三日前，向衞生署索取專業意見，以評估在疫情下舉辦大型集會的風險。開會當日，她曾詢問主辦方如何確保參加者保持社交距離，惟包括李卓人在內的支聯會代表沒提供實質預防措施，只承諾會對集會人士作呼籲。
+
+會議翌日，周收到衞生署的答覆，署方不建議舉行公眾集會。綜合所有評估及專業意見，她當日決定禁止集會，並在6月1日正式向支聯會發出反對通知書。
+
+### 沒提議集會者戴口罩防疫　因「不可能強制」
+
+辯方資深大律師彭耀鴻盤問時首先指出，集會自由是基本法所賦予的權利，警方有責任盡可能確保集會順利、不受妨礙地進行，禁止集會應為最後手段。周警司一律同意，但重申在《公安條例》下需同時考慮公共安全等因素，以取得平衡。
+
+辯方續指，新冠肺炎是以飛沫或身體接觸傳播，故可透過戴口罩及保持社交距離防疫，周警司表示自己並非醫療專家，無法給予意見。辯方謂有關資訊只是基本常識，周同意，但強調戴口罩只是基本。辯方指出，大部分本地感染個案均源於因為除口罩的活動。周則表示，根據她的認知，社區感染有許多原因。
+
+辯方又指，周警司大可在會議上向主辦方提出條件，例如強制參加者戴口罩、在會場用粉筆劃出區域確保社交距離等。周認為，當時法例仍未規定公眾戴口罩，考慮到相稱性及合理性原則，她不可能強制所有人戴口罩。她重申支聯會未有提供實質防疫方案，「我唔能夠，喺知道佢哋唔能夠做到嘅情況下，施加任何條件」。不過，周在追問下承認，她並沒有向衛生署諮詢有關防疫方案的意見。
+
+### 辯方反駁6.12後始有「暴動」　警司引4月合法遊行回應
+
+辯方指，過去30年六四集會相安無事，當中包括前年的集會。周聞言回應謂：「對唔住，2019年全年我都打緊暴動，我真係唔係好記得6月4日發生乜事。」辯方指正，集會當日並沒有任何暴動，有類似事件的最接近日期應為6月12日。周再謂：「或者咁講，其實喺4月28日，已經好多人上街遊行。」公眾人士嘩然，惹來法官出口制止。周續指，當日的集會並非由她負責，她並不知情。
+
+翻查資料，民陣在前年4月28日舉辦第二次反對逃犯條例修訂的公眾遊行，為獲警方批准的合法遊行。
+
+### 被質疑諮詢衞生署前已有決定　文件證索意見為應付上訴
+
+辯方強調，去年5月感染個案已有下降趨勢，由之前一個月的74宗降至5宗，當時政府已放寬防疫措施，包括限聚令人數由4人上調至8人、重新開放酒吧、美容院等處所。周自言不記得有關變動，因為政府會定期就措施作出不同調整。周又指，雖然疫情轉趨平緩，但不能排除會再有大型爆發出現。
+
+辯方引用警方諮詢衞生署的內部文件，指出警司當時是就上訴委員會的聆訊索取意見，質疑她向衞生署索取意見前已決定反對集會。周不同意，解釋謂當時疫情嚴峻，她不可能排除反對集會的可能性，故事先作充份準備。聆訊明續。
+
+【案件編號：DCCC857-875、877-884、886-889、891、893/20】

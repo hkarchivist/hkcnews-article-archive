@@ -1,0 +1,53 @@
+---
+title: "檢控支聯連環套　丹心無懼照汗青"
+date: "2021-09-13"
+last_updated: "2021-09-13 15:17:25"
+author: "眾觀_香港政情"
+category: "眾說"
+tags:
+  - "支聯會"
+  - "國安法"
+  - "煽動顛覆國家政權罪"
+url: "https://web.archive.org/web/20211027012902/https://hkcnews.com/article/45358/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45366/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45358/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45366/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 檢控支聯連環套　丹心無懼照汗青
+
+<figure>
+<img src="https://web.archive.org/web/20211027012902im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/政情-20210913145802_2a3f_large.jpg" alt="">
+</figure>
+
+過去一周，最矚目的政治新聞是特區政府引用國安法，檢控支聯會負責人「煽動顛覆國家政權」罪以及拒絕提交資料，副主席鄒幸彤不准保釋即時還柙。這次檢控標誌著回歸後二十多年來北京容忍支聯會存在，容忍港人悼念「六四」，正式告一段落，從此案起，在維園叫了逾30年的口號「結束一黨專政」恐將成為禁語。   
+   
+ 特區政府這次對付支聯會的手法，明顯是一個連環套，兇猛殺著一環扣著一環，務要置支聯會於死地。   
+   
+ 第一項殺著是替支聯會扣上「外國代理人」的帽子，大肆抹黑其勾結外國勢力來對付中國。這個匪夷所思的指控是怎樣打造的？方法是以支聯會常委身兼一些民運組織發起人為切入點，指這些民運組織曾接受海外政治捐款，而捐款機構包括美國政黨從屬的基金會，這就構成了支聯會當外國代理人的「合理懷疑」，於是就啟動國安法實施細則去信支聯會各常委，要求支聯會就這些民運組織（如華人民主書院、中國維權律師關注組等）以及與海外捐款機構交往提供詳細資料，拒絕提交資料可被檢控，最高判監禁六個月。   
+   
+ 如果支聯會常委在刑律壓力下提交資料，就等如承認當局查索資料的前提，承認支聯會是外國代理人，這就賦予當局執法無限的正當性，在一般人心目中營造支聯會其實是外國勢力馬仔，是賣國組織，怎樣窮追猛打都是應該的，支聯會不但會灰飛煙滅，還會遺臭萬年。   
+   
+ 如果支聯會拒絕提交資料，那就等如拒絕協助當局調查，北京喉舌就第一時間大肆抹黑，借種種政治傳聞，把海外政治資金與本地傳媒大亨（黎智英）勾結，借支聯會煽動仇視北京政權，再策動民主派與本土派聯手參選奪權，編織成一個政治大陰謀，把支聯會嵌入較早前的《蘋果日報》案、泛民初選案，這個秋後算政治總帳的劇本，把過去三十年所有敢於批評北京的非建制政治領袖一網打盡，徹底剷除北京眼中所有不聽話的、可能被西方利用的政治力量。   
+   
+ 不過，政治代理人這一招，並不是主要殺著，因為拒交資料的罰則相對輕，只是監禁半年，而且真的到了審訊階段，被告人必然質疑外國代理人這頂㡌子，控方若要把被告定罪，就要交出較客觀的證據，設法證明支聯會知情而收取外國政治組織捐獻，替外國政治組織服務，而除了在正審中提出抗辯，支聯會一名常委也主動提出司法覆核，挑戰國安處索取資料信中對支聯會是外國代理人的假設，律政司回應這宗覆核聆訊時也要出示一定證據，不能一句有合理懷疑就蒙混過去。在這場司法對仗之前，控方採取的策略是利用國安法案件須由指定法官審、一般不准保釋的特質，先下手為強，把支聯會常委收柙，使其無法及時在公共空間答辯（保釋申請時被告陳詞不准報道），鄒幸彤僅有的抗辯只能借被告回答是否明白控罪的時候，說一句我明白這是荒謬的控罪。   
+   
+ 把支聯會常委收柙的同時，當局祭出了連環殺著的第二招和第三招。第二招是檢控支聯會核心成員，於去年7月國安法實施至今年9月，煽動顛覆國家政權，這個檢控只要入罪，支聯會被控常委何俊仁、李卓人和鄒幸彤等就會長期被囚禁，參照唐英傑案，刑期可能接近十年。至於第三招，則是以支聯會危害國家安全為由，啟動取消其公司註冊程序，使其失去合法存在的依據，失去銀行戶口，失去收取公眾支持的渠道，失去合法運作舉辦公眾活動的身分。綜合以上三項殺著，當局的政治意圖就昭然若揭，而最荒謬的是，這一切都是在半點證據也未看到，審訊與定罪未發生之前，支聯會就像《蘋果日報》那樣，被送上了斷頭台。   
+   
+ 從律師處聽到當局提出「煽動顛覆國家政權」控罪時，鄒幸彤對朋友表示鬆了一口氣，可以正式開始辯論了，這是什麼意思？從支聯會常委的角度看，即使在回歸前，他們也知道當支聯會常委是有一定風險的，因為早於1989年北京官員已斥責支聯會是反共組織，還向英國政府施壓，要求遏阻支聯會辦紀念六四活動，回歸後若制訂國安法律，支聯會與法輪功都極有可能被取締。事實上，在2003年特區政府嘗試就23條立法時，支聯會與法輪功能否繼續存在就是討論焦點之一，當時的保安局長葉劉淑儀信誓旦旦地保證，叫喊結束一黨專政口號不算顛覆，支聯會辦和平集會不危害國家安全。然而，如今時移世易，中共一黨執政寫進了憲法，北京對香港又不再包容，北京制訂的港區國安法把內地法律概念引進香港，依此檢控支聯會，定罪風險大增，一旦罪成，結束一黨專政口號就可能像光時口號那樣，在唐英傑案審結後形同禁語，絕跡於公共場所。   
+   
+ 對支聯會常委來說，在國安法生效後，對這些風險是有所估計的，但支聯會有32年的歷史，它的政治口號有明確含義，就是要求北京中央政府平反八九民運，追究當年的屠城責任，引入民主選舉，結束一黨專政，這些訴求全部是和平而不涉及任何顛覆的，既毋須顛覆現有政權，也毋須顛覆國家憲法或社會體制，可以循和平合法的途徑，逐步改革體制達致，如果連這樣溫和合理的改革主張都不准講，中國就沒有改革和演進的空間，在香港的中國人就連僅有的議論國事的自由也失去，不能表達對國家民主化自由化的期許，這涉及根本的國民身份與做人宗旨，就算面對刑獄，也是要分辨清楚的，所求的不是個人福祉，而是「留取丹心照汗青」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027012902/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 眾觀_香港政情](https://web.archive.org/web/20211027012902im_/https://hkcnews.com/uploads/avatars/0e5b0bfa-8ec8-4758-a6c8-ea1334143ebe.png?795106577)
+
+**博客 | 眾觀_香港政情**
+
+眾觀_香港政情

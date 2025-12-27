@@ -1,0 +1,38 @@
+---
+title: "買衫男疑警察委任證「撻朵」　恫嚇店主「自己睇路」要求寄貨　警：如涉違紀會跟進"
+date: "2021-12-07"
+last_updated: "2021-12-08 04:16:37"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "警察委任證"
+  - "委任證"
+  - "公職人員行為失當"
+url: "https://web.archive.org/web/20220704233056/https://www.hkcnews.com/article/48720/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48720/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48727/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 買衫男疑警察委任證「撻朵」　恫嚇店主「自己睇路」要求寄貨　警：如涉違紀會跟進
+
+**一名男子涉嫌展示警察委任證，要求網店盡快寄貨，更留言店主「自己睇路」。疑似以警察身份涉嫌「撻朵」的做法，引起網民討論。警方回覆指，正了解事件，如有個別警員涉嫌違紀，警隊會跟進，並按既定機制公平公正調查。消息指，涉事男子是一名警務人員。**
+
+<figure>
+<img src="https://web.archive.org/web/20220704233056im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/police-委任證-20211207215958_1eb9_large.png" alt="">
+</figure>
+
+事緣一間代購球衣的網店，今日在社交媒體張貼與顧客的對話，令網民譁然。一名網名叫「Vincent」的男子，與店主對話時，出示放在銀包內的「香港警察委任證」，稱「一係今日交收、一係刮你出黎（嚟）」，又叫對方「自己睇路」。該男子亦在該網店的社交媒體專頁上留言，批評店舖在貨到後不停拖延寄衫，稱「如果唔係講晒粗口都唔肯寄衫」、「訂就識收足，貨到就不停拖個客」、揚言「永遠不會再幫襯」。
+
+店舖解釋，當時只是貨到兩日，曾向客人表示「聽日寄」，但因為突然有事，而通知客人「幾日內會寄出」。店舖指，客人不停催「仲攞自己嘅警察委任證出嚟，話再唔寄就開案，最後唔想煩，包佢運費搵速遞，當晩即刻送貨」，希望大家明白店主都不是24小時有空。
+
+<figure>
+<img src="https://web.archive.org/web/20220704233056im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/警察委任證-委任證-20211207214507_2c1d_large.jpg" alt="">
+<figcaption>「韓職K League球衣代購」Facebook圖片</figcaption>
+</figure>
+
+出示警員委任證涉嫌「撻朵」的做法引起網民質疑，「恐嚇啊」、「一係就濫用職權公職人員行為失當，一係你就冒警」、「究竟你係濫用職權定係冒警，原來係咁用委任證」、「自己睇路呢句嘢都告得刑事恐嚇啦」、揶揄「終於見到識到咩叫警察惡過黑社會」。
+
+### 警：重視人員操守　如涉違紀會跟進
+
+事主是否警員？有關「撻朵」做法有沒有違反警員通例或行為操守？警方會如何跟進事件？會否紀律處分有關人員？警方公共關係科晚上回覆指，正了解事件，稱警隊一直重視人員的操守和行為，如有個別警務人員涉嫌違紀，警隊會跟進，並按既定機制公平公正調查。
+
+警方未有承認或否認，男子是否警員的身份，但翻查涉事男子的社交帳戶，曾張貼「香港警察踏浪者行動獎章」，也有不少與足球運動相關的照片。

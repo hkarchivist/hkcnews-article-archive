@@ -1,0 +1,85 @@
+---
+title: "平地學生電影節吹起號角聲　社會失落時探索年輕人想法　從隱喻中表達心裏話"
+date: "2021-11-15"
+last_updated: "2021-11-16 16:39:06"
+author: "記者張凱傑"
+category: "眾聞"
+tags:
+  - "平地學生電影節"
+  - "平地映社"
+  - "盧鎮業"
+url: "https://web.archive.org/web/20220808170550/https://www.hkcnews.com/article/47731/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47731/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47767/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 平地學生電影節吹起號角聲　社會失落時探索年輕人想法　從隱喻中表達心裏話
+
+**「當城市太沉默，就是我們拿起號角的時候。」闊別三年，由一班獨立電影人組成的「平地映社」，再次舉辦平地學生電影節，吹起號角，集結仍想用電影說故事的年輕聲音。身兼導演、演員及評審的盧鎮業坦言，這幾年有種很強烈的失落感，今屆特別有一份好奇心，很想知道由2019年至今，這兩年的作品有何面貌，仍然願意創作的同學究竟想甚麼。**
+
+**策展人何梓埼說，今年收到不少非敘事的動畫和實驗作品，都有一個共通點，會用寓言、隱喻來說社會事件，這種「隱晦」可能是未來香港作品的趨勢，甚至是創作人繼續去表達自己想法的出路。**
+
+<figure>
+<img src="https://web.archive.org/web/20220808170550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/盧鎮業-何梓埼-平地映社-20211115210855_492d_large.jpg" alt="">
+<figcaption>何梓埼（左）和盧鎮業（右）相信，讓年輕人交流，從來都很珍貴，也很需要存在。張凱傑攝</figcaption>
+</figure>
+
+### 「呢個地方創造出嚟嘅故事」
+
+由2014年成立的「平地映社」，不定期籌辦學生電影節和放映活動，希望給年輕人一個平台發表創作，去年更走入校園推廣影像教育，從評賞、策展及統籌，讓學生認識電影。即使未聽過「平地映社」，或者都認識他們的成員，包括執導《那年春夏．之後》、參演《女人多自在之幸福的旁邊》的盧鎮業；執導《人在皇后》、《少年》的林森；執導《十年》、《夜更》的郭臻等。
+
+成員之一、電影節策展人何梓埼形容，他們都是讀電影或媒體出身，讀書時有很多想法，創作了很多作品，卻沒甚麼機會可與人分享，其實很可惜。最令她感到惋惜的是，好似在社會入面無一個以學生為主軸的平台，讓他們發表作品，「一個作品是否能夠走得更遠？接觸到更多本地觀眾？甚至參加海外影展，跟海外的年輕人交流，將我們的地方、故事和情感傳遞得更遠呢？」
+
+這就是他們舉辦學生電影節的初心，因為他們相信讓年輕人交流，從來都很珍貴，也很需要存在。今屆的主題是「小喇叭」，電影節場刊形容「嘈到拆天，都係為咗集結仲想講故仔嘅人，一齊繼續bilibala。就算街道再平靜，就算圍爐被監聽，我哋仲感應到好多學生蠢蠢欲動，想參與呢個地方創造出嚟嘅故事。」
+
+<figure>
+<img src="https://web.archive.org/web/20220808170550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/平地映社-平地學生電影節-20211115211138_a304_large.jpg" alt="">
+<figcaption>今屆主題是「小喇叭」，盧鎮業覺得，當學生在城市顯露自己時，被群眾包圍淹沒，就像有一種隱藏的能力。</figcaption>
+</figure>
+
+### 隱喻社會事件　表達所想的出路
+
+評審之一盧鎮業坦言，大家都會明白和理解，讀書時期的作品通常相對幼嫩，有好有不好，或者都算是一種稜角，但說到底學生需要覺得有機會，才會有動力創作下一部作品。他說，這幾年有種很強烈的失落感，對上一屆平地學生電影節已經是2018年，至今相隔三年多，「我都愈來愈老，距離院校愈來愈遠，我想知道現在做創作的同學在想甚麼，今屆特別有一份好奇心，很想知道由2019年至今，這兩年的作品有何面貌。」
+
+他特別提到今屆電影節的海報，見到有一名學生在人群中吹起號角，在城市中顯露自己的時候，被群眾包圍淹沒，就像現在的學生有一種隱藏的狀態，就算有幾多想法，都不能十成十說出來，這種隱藏的狀態或者未必指向學生，而是這城所有人都抱著這個方法，在今日香港的空間生存。
+
+有別於以往百多份作品，今屆大會一共收到超過260份，為歷來之冠，超乎想像。何梓埼形容，今年收到不少非敘事的動畫和實驗作品，都有一個共通點，用寓言或隱喻來說社會事件。不似戲情片，將情節和內容直接說出來，她覺得這種「隱晦」可能是未來香港作品的趨勢，也是學生和創作人繼續去表達自己想法的出路。
+
+對她來說，遇到創傷、情感交錯複雜時，有時未必可以很直接說出來，作為創作人，或者會用另一種方式表達，觀眾也有可能在未來的電影，看見很多從沒想過的呈現方法。不過，她覺得香港觀眾的接受程度比想像中闊，願意主動接觸非主流的影像內容。
+
+她認為鼓勵創作同時，另一邊也要推動影像教育，好似在法國和台灣等地，部分電影節設有學生評審獎，由學生揀出全國年度作品，在社會學的角度，其實是一種賦權，重視他們的價值。因此他們今屆增設競賽，多一個誘因鼓勵青年參賽，也希望公眾更關注年輕人的作品。
+
+<figure>
+<img src="https://web.archive.org/web/20220808170550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/平地學生電影節-20211115210751_2294_large.jpg" alt="">
+<figcaption>魏芷軍（前）創作《我在追憶，我在追，我在》，包靖怡（後）創作《香城幸存者》。張凱傑攝</figcaption>
+</figure>
+
+### 即使不身處其中　仍覺是地方一份子
+
+其中一套動畫《香城幸存者》，以中學生高考英文聆聽卷，呆望窗外風暴情景為故事題材，影片簡介形容「學生努力保持專注，思緒卻在錄音內外遊走。」動畫在2019年製成，導演包靖怡憶述2018年強烈颱風「山竹」襲港，她當時身在美國，但看到朋友不同的片段和相片，都很感受到颱風的蹂躪，即使當時不是身處當地，仍覺得自己是那個地方的一份子。「颱風可能是很多隱喻，可能是大家的回憶，也可能是大家現在經歷的。」
+
+在美國留學的經驗，也讓她看見香港的動畫製作很有框架，講求一定要敘事、可愛、適合小朋友觀看。不過，她說看見美國的學院教授動畫時，會分開兩個派別，除了培育主流動畫，模仿迪士尼、彼思等，講求動作誇張的動畫製作外，也會開設實驗動畫，目的就是與主流思想、製造畫面的方式，產生對沖空間。她亦覺得不少海外展覽，對作品題材、表達手法的接受程度較香港大，她的作品也拿過克羅地亞薩格勒布一個電影節的學生組評審團獎。
+
+### 保持純粹　真誠發聲
+
+另一套紀錄自身成長的實驗作品《我在追憶，我在追，我在》，導演魏芷軍說，由細到大都很喜歡紀錄自己和身邊的事物，近年來覺得很多事物消逝得很快，有種捉不住時間的感覺，忽發奇想將以前拍下的片段和對話串連出來，梳理自己的思緒。她說，作品由自己出發，不是要回應社會狀況。
+
+在檢視自己的過程，她發現小時候的自己很無憂無慮，現在學過攝影，拿起鏡頭時反而「無咁純粹」，有時都會提醒自己，要保持這種純粹去拍攝、去紀錄。她覺得，年輕人在社會中處於尷尬而特別的階段，當下未必是對社會所謂最有貢獻的一群，但卻最有資本表達自己，擁有最真誠的聲音，而真誠對於無論個體或社會都是很重要的元素。
+
+<figure>
+<img src="https://web.archive.org/web/20220808170550im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/平地學生電影節-20211115212048_6b95_large.jpg" alt="">
+<figcaption>其中一套中學生的作品《盼望的緣分》，談及因為移民留下遺憾的中學生愛情故事。</figcaption>
+</figure>
+
+當社會上有人明言要放棄下一代年輕人、有人說已經失去很多代年輕人時，要敲問的是，為甚麼有一班人卻很在意要聆聽學生的聲音、觀看他們的世界？甚至為他們發聲呢？何梓埼覺得，每個人曾經都是學生，有時都會想起，如果小時候遇到一些人一些機會，又會如何影響自己的經歷和成長呢？
+
+> **最近我家中多了姨甥女，是一個自己愛錫的人，將來在這個地方成長時，她會面對甚麼、經歷甚麼呢？我是一個大人，開始有能力承擔時，可以做甚麼？為何學生的聲音重要，是因為互相了解，才能明白對方，是當下社會重要的溝通，從而產生連結和共鳴。**
+
+
+**第四屆平地學生電影節   
+**
+
+日期：2021年11月18日至28日   
+ 重點節目：三尖八角、FF原是永恆、一夜長大、過去進行式、家的形狀、返屋企   
+ 特備節目：純粹睇戲、東南亞短片節—得獎作品   
+ 地點：油麻地百老匯電影中心、香港逸東酒店   
+ 節目詳情： [https://groundupfilmsoc.org/4thgusff/](https://web.archive.org/web/20220808170550/https://groundupfilmsoc.org/4thgusff/)

@@ -1,0 +1,82 @@
+---
+title: "特首辦拒公開國安法官名單　指涉個人資料　陳文敏斥聞所未聞"
+date: "2020-12-08"
+last_updated: "2020-12-12 03:25:10"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "公開資料守則"
+  - "港版國安法"
+  - "指定法官"
+url: "https://web.archive.org/web/20210726222420/https://www.hkcnews.com/article/36261/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36261/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36278/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 特首辦拒公開國安法官名單　指涉個人資料　陳文敏斥聞所未聞
+
+**特首林鄭月娥自7月起根據國安法下指定法官審理危害國家安全案件，但名單卻從未統一公開或刊憲。眾新聞在7月及10月先後透過《公開資料守則》向特首辦索取6名裁判法院指定法官名單，以及高等法院和終審法院指定法官人數和名單。特首辦兩度拒絕提供任何資料，司法機構則說如果政府認為合適，隨時準備好公開資料。**
+
+**特首辦在7月下旬一度說記者過早索取資料，「考慮在適當時候一併公布相關資料」，但在10月時改口說法官姓名及職稱涉及法官個人資料，也屬於機密資料，未得法官同意或法律許可下，不得對外披露。**
+
+**港大法律學院教授陳文敏接受查詢時表示，指定法官是在國安法下行使公權力，姓名並非個人私隱，形容「公職委任變成機密根本是聞所未聞！」**
+
+[就《公開資料守則》索取國安法官資料　眾新聞記者與特首辦書信往來全文](https://web.archive.org/web/20210726222420/https://bit.ly/3mUlfmh)
+
+<figure>
+<img src="https://web.archive.org/web/20210726222420im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/12/HKU-馬道立-林鄭月娥-20201208101501_2965_large.jpg" alt="">
+<figcaption>特首林鄭月娥與終審法院首席法官馬道立。港大圖片</figcaption>
+</figure>
+
+根據目前公開庭訊和新聞報道，暫時公眾所知指定法官僅限於裁判法院和高等法院部分法官 。 據悉，特首林鄭月娥仍未指定終審法院中審理國安法的指定法官，包括未定首席法官馬道立是否國安法指定法官。這同時意味，外籍法官會否獲委任為指定法官的憲制問題仍未有定案。
+
+**己有案在審理的國安指定法官：**   
+ **・西九龍裁判法院總裁判官蘇惠德**   
+ **・區域法院法官陳廣池**   
+ **・高等法院原訟庭法官周家明、李運騰**
+
+**《星島日報》報道其他指定裁判官：**   
+ **・九龍城法院主任裁判官嚴舜儀**   
+ **・粉嶺法院主任裁判官蘇文隆**   
+ **・觀塘法院主任裁判官徐綺薇**
+
+公眾對指定法官運作所知不多，馬道立在國安法實施後曾經發聲明說，法院內如何排期及委派那些法官，應屬司法機構職責範圍。不過在快必譚得志被控煽動罪一案，雖然控罪不涉國安法，但在區域法院仍決定由國安法指定法官審理。
+
+特首林鄭月娥今年 [7月3日](https://web.archive.org/web/20210726222420/https://www.info.gov.hk/gia/general/202007/03/P2020070300538.htm?fontSize=1) 根據國安法第44條，諮詢港區國家安全委員會和終審法院首席法官馬道立意見後，從現任裁判官中指定六名裁判官為指定法官。
+
+眾新聞記者在公布後同日透過《公開資料守則》向特首辦先後索取6名裁判官姓名、所屬法院及職稱。
+
+特首辦公開資料主任在7月23日引述《公開資料守則》中豁免條文拒絕提供資料。當時特首辦稱：「行政長官於2020年7月3日指定首批裁判官處理一宗緊急案件。行政長官將按需要繼續指定其他法院的法官，並會考慮在適當時候一併公布相關資料。」
+
+記者在10月5日再透過《公開資料守則》向特首辦索取在高等法院（包括原訟庭及上訴庭）及終審法院中指定法官的姓名、職稱及最新獲指定的法官人數。同時針對原先6名裁判官的公開資料守則申請，記者在10月8日提出內部複檢。
+
+**特首辦公開資料主任在11月20日回覆，同時拒絕高院的申請及內部覆核申請，但改口說指定法官的姓名及職稱是屬於《個人資料（私隱）條例》下保障的個人資料，法官個人資料也是保密情況下收集，「在沒有該些指定法官的同意而《個人資料（私隱）條例》第8部亦沒有任何豁免適用的情況下，其個人資料不得向你披露，以用作原來目的以外的目的」。**
+
+特首辦續說，指定法官的資料屬機密資料，在指定法官審理危害國家安全的案件前，「依法維護及保障有關指定法官的資料的機密性，符合公眾利益」。
+
+特首辦最終引述《公開資料守則》第2.14(a)、2.15及2.18段，指由於資料第三者持有、涉及個人私隱，及披露抵觸法律，未能提供資料。
+
+過程中，特首辦從未提及法官可能遭起底的風險。有別於7月時說會適時公開法官相關資料，特首辦只說，「會按需要繼續指定其他法官」。
+
+記者同時透過《公開資料守則》向司法機構政務處查詢。司法機構政務處7月23日原先說並無相關資料，內部複檢後，政務處與特首辦同日回覆說，司法機構認為應該依從（guided）特首處理，並引述特首辦認為有關資料應保密，故在司法機構而言，目前無法接納申請。
+
+值得注意的是，司法機構在內部複檢說：「當政府認為適當時候公開任命，司法機構隨時準備好公開相關資料」。（ As and when the Government consider it appropriate to disclose the appointments, the Judiciary stands ready to make public such information.  ）
+
+特首辦未進一步回覆有關指定法官查詢，而司法機構則著記者向特首辦查詢。
+
+### 陳文敏：「過程越秘密，公眾越缺信心」
+
+港大法律學院教授陳文敏批評，指定法官姓名不應視作個人資料，尤其在審訊時都會被公開，認為當局做法不合邏輯。他批評當局立下很壞先例，影響對司法獨立的信心，「過程越是秘密，公眾越缺乏信心」。
+
+他舉例說，目前憲法及行程法審訊表等法官也對外公開，國安法不應有任何分別，「因為這不應是政治，而是專門審理而已」。
+
+港大新聞及傳媒研究中心副教授傅景華也質疑，每日法庭審訊都公開法官的姓名，從來都是公開資料。他反問：「我們是否要投訴司法機構侵犯法官的個人資料呢？」
+
+他又表示，在《公開資料守則》下需要符合公眾利益，認為目前情況下，法官公開行事有凌駕性的公眾利益。「Open court係common law的一部分，國安法係話可以閉門，但依家唔係嘛。講唔通，因為係法庭公開的一部分，起碼至少知道由咩人去審。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726222420/https://www.hkcnews.com/aboutus/#subscribe)

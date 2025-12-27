@@ -1,0 +1,43 @@
+---
+title: "台灣政治獻金大戶企業大陸遭罰　學者：殺雞儆猴"
+date: "2021-11-23"
+last_updated: "2021-11-23 18:47:03"
+author: "中國組記者黃麗萍"
+category: "眾聞"
+tags:
+  - "國台辦"
+  - "韓國瑜"
+  - "台灣遠東集團"
+url: "https://web.archive.org/web/20220813024238/https://www.hkcnews.com/article/48046/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48054/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48046/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48054/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 台灣政治獻金大戶企業大陸遭罰　學者：殺雞儆猴
+
+台灣遠東集團在上海、江蘇等五省市的企業，被大陸當局指存在一系列違法違規行為，遭當局罰款及整改。台灣傳媒報道，台灣遠東集團是台灣政治獻金大戶，曾分別捐款予藍綠陣營。國台辦指，台獨頑固分子謀獨言行惡劣，呼籲台商台企與台獨分裂勢力劃清界限。有學者指，大陸的做法明顯是要殺雞儆猴，相信這會影響日後民進黨的募捐。
+
+新華社周一報道，上海、江蘇、江西、湖北、四川等五省市，有關執法部門開展執法檢查時，發現台灣遠東集團在當地投資的化纖紡織及水泥企業，在環保、土地利用、員工職業健康、安全生產及消防、稅務、產品質量等方面，均存在一系列違法違規行為。當局向該企業採取罰款、追繳稅款、限期整改等措施，並收回該企業閒置建設用地。
+
+<figure>
+<img src="https://web.archive.org/web/20220813024238im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/台灣遠東集團-國台辦-20211123170525_213e_large.jpg" alt="">
+<figcaption>台灣遠東集團在大陸的企業近日被當局處罰。</figcaption>
+</figure>
+
+遠東集團承認存在違法違規事實，已繳納或正按程序繳納罰款及稅款，罰款金額合共3650萬元人民幣，又指公司正常營運，並對違規事項逐一整改，目前已達到98%的改善進度，並又承諾將虛心面對，防止類似事件再發生。
+
+國台辦當日即出了答記者問。記者的問題是這次罰款與國台辦早前表示將依法對台獨頑固分子及其關聯企業和金主實施懲戒，這兩件事有無關聯?
+
+國台辦發言人朱鳳蓮無正面回應，只重申台獨頑固分子謀獨言行惡劣，嚴重破壞兩岸關係，對他們及其關聯企業和金主必須依法懲戒，強調絕不允許支持台獨，破壞兩岸關係的人在大陸賺錢，做「吃飯砸鍋」的事，呼籲台商台企要明辨是非，站穩立場，與台獨分裂勢力劃清界限。
+
+那遠東集團究竟做了甚麼？《環球時報》引述《台灣聯合新聞網》報道，指遠東集團堪稱台灣政治獻金大戶，在2020年台灣總統與立委選舉中，遠東捐了1000萬元新台幣予國民黨總統候選人韓國瑜，另有5800萬元新台幣分別給47位藍綠立委參選人。
+
+<figure>
+<img src="https://web.archive.org/web/20220813024238im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/韓國瑜-台灣遠東集團-20211123170514_d36e_large.jpg" alt="">
+<figcaption>《台灣聯合新聞網》報道，遠東集團在2020年台灣總統選舉中，捐了1000萬元新台幣予國民黨總統候選人韓國瑜。</figcaption>
+</figure>
+
+早前被國台辦列入台獨頑固分子的蘇貞昌，2018年競選新北市長時，其中一名金主亞東證券是遠東集團董事長徐旭東家族旗下企業之一。2016年，蘇貞昌女兒蘇巧慧第一次參選就拿到約2040萬元新台幣捐款，其中遠東集團捐了200萬元。
+
+台灣淡江大學中國大陸研究所榮譽教授趙春山表示，台灣企業一般藍綠陣營都會押注，很難確定是否支持台獨：「在台灣，企業界捐錢押寶不是押一方的，他捐錢不光是捐給民進黨，有時候也會捐給國民黨，所以很難說這個企業是支持台獨，你很難這樣講，因為誰來他都捐。」
+
+趙春山認為，大陸的做法明顯是要殺雞儆猴，即不容許入任何企業家，捐款給大陸認為是台獨的人士，相信這會影響日後民進黨的募捐：「會有殺雞儆猴的味道，以後他(企業家)要捐給民進黨的時候，你如果以後要在大陸做生意的話，他一定會小心一點，當然對民進黨會有影響。」

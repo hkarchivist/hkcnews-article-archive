@@ -1,0 +1,92 @@
+---
+title: "蓋茨Bill Gates 2.0"
+date: "2020-03-01"
+author: "Duncan Lau"
+category: "眾說"
+tags:
+  - "蓋茨"
+  - "比爾及梅琳達蓋茨基金會"
+  - "bill gates"
+url: "https://web.archive.org/web/20211202153353/https://hkcnews.com/article/27430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bill_gates-27430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/27430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-bill_gates-27430/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 蓋茨Bill Gates 2.0
+
+<figure>
+<img src="https://web.archive.org/web/20211202153353im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/蓋茨-比爾及梅琳達蓋茨基金會-bill%20gates-20200301061252_1d2d_large.jpg" alt="">
+<figcaption>微軟創辦人蓋茨Bill Gates。美聯社</figcaption>
+</figure>
+
+老實說，我一直對Bill Gates沒有好感。最近看到一篇關於他的文字，原來他在二十年前的一個決定，令他脫胎換骨，提升至另一水平，因此我稱之為蓋茨2.0。
+
+我在八十年代後期大學畢業，適逢其會，個人電腦開始進入巿場，越來越普及。之前蘋果電腦早已有幾款，但價格高昂，也不是人人需要。在大學時接觸電腦，只是每個學生有一個戶口，可以在校園內的終端機登入，也只限電腦系的學生做功課，仍未有私人的事情如電郵上網之類。
+
+我應該是89或是90年那時候購買第一部個人電腦，一部486DX，只有4mb記憶體，主要以DOS系統運作。只有幾個主要程式，如Word Perfect，Lotus 123等，當然也有好些遊戲。當時有些Shareware程式，放在一張小軟碟（floppy disk）內，大概99仙加元，但大部分多是從朋友處抄來。在DOS運作下，每次只可執行一個程式，要用另一個程式，便要先關掉正在使用的一個。後來朋友弄來視窗3.0給我，這個視窗介面令電腦操作變得容易和有彈性，可以同時打開幾個程式，不過那只是一個介面，背後仍然是DOS運作，一定是先安裝了DOS，才可再安裝視窗。
+
+當時的個人電腦（PC）大部分需要自己安裝程式，以及所謂的驅動程式（Drivers），例如滑鼠，光碟機，以至數據機modem，聲効咭，都要人手安裝驅動程式才可以用，雖然很多軟件在安裝時改動你啟動電腦設定（主要是Autoexec.bat和Config.sys兩個擋案），於是你每次啟動電腦時便自動啟動那些驅動程式。但如果有錯誤，程式間有衝突，便需要人手去查找原因，然後作出改動，一般用家是望而生畏的。自己對這方面有興趣，也有朋友可以幫忙，又經常改動硬件軟件，自己又常常遇到不同問題，有點久病成醫，還到電腦店當維修員，真是甚麼難題都起碼遇過一次，經驗越來越豐富。
+
+電腦軟件是比較特別的行業，不需要完全準確無誤便可推出市場，而一旦發現有問題，可以推出修補檔（Patch），也可以在推出後再一邊改善，將連串問題和漏洞一次過修正，稱之為升級版1.2，1.33等。而視窗系統如此龐大的軟件，一直都不停有升級版，行內人會知道內裏的問題多的是，也習以為常。
+
+而視窗95是微軟的一個里程，雖然仍然是建基在DOS之上，但電腦開機馬上進入視窗介面，感覺上比較用家友善，因此推出之時是全球性推廣，活動是一浪接一浪。最記得是他們用了滾石樂隊的一曲《Start Me Up》作宣傳，而電腦啟動時的一小節音樂則是岀自Brian Eno的手筆。在這種宣傳攻勢下，個人電腦的銷售量大幅提升，曾經佔了市場的近九成數字，從而令微軟一人獨大。
+
+
+{{< video src="https://web.archive.org/web/20211202153353if_/https://www.youtube.com/embed/SGyOaCXr8Lw" >}}
+
+
+
+{{< video src="https://web.archive.org/web/20211202153353if_/https://www.youtube.com/embed/miZHa7ZC6Z0" >}}
+
+
+但視窗系統並不是完美的產品，問題多多，而為了佔據市場，不惜和各硬件公司協議，電腦都先裝上視窗系統，用家幾乎沒有其他選擇。微軟是一家軟件公司，但很多軟件開發都落後於人。當時互聯網只是剛起步，但已有瀏覽器軟件岀現，當中發展迅速的是網景（Netscape），已佔了大部分市場。落後的微軟又重施故技，在他們的瀏覽軟件IE面世，一樣是預先安裝在新電腦內，後來用家們開始自製網頁，IE 可以有些獨特格式，只會在IE顯示，在其他瀏覽軟件卻會出現亂碼，不能正確顯示內容。大家還記得那時一些網站會有一個banner或button，說this site is best viewed in IE，然後按連結去下載IE吧。
+
+然而微軟的行事手法持續，一般用家大概懶理個中究竟，那個年代，人人都用盜版軟件，都不會覺得自己是受害人。但其他第三方的軟件開發公司便絕對感到壓力，生存不易，多次投訴不果，最終告上法庭。如果有追蹤這反壟斷官司的話，一定驚訝微軟無所不用其極的手法，幾乎誓要將對手置於死地。網景，Real Media，Word Perfect和Lotus 123都漸漸失去市場以至完全消失。最後裁定微軟敗訴，法庭命令微軟必須分拆為兩間公司，一間主要做視窗作業系統開發，另一間則發展其他軟件如辦公室軟件。微軟馬上提出上訴。
+
+<figure>
+<img src="https://web.archive.org/web/20211202153353im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/比爾及梅琳達蓋茨基金會-蓋茨-20200301061941_24bb_large.png" alt="">
+<figcaption>Bill Gates和太太Melinda。</figcaption>
+</figure>
+
+官司在1998年五月開始聆訉，判決在2000年中出來，但在那年初一月分，Gates卻宣布辭去行政總裁之職，而約兩星期後，他再宣布將他參與的所有慈善活動歸納為Bill & Melinda Gates Foundation，而且會主力工作在基金會的事務。當時我也不以為意，官司審訉過程中，揭露不少他有份參與決定的政策，是難辭其咎，他的離任大概是為微軟挽回名聲吧。微軟上訴結果是公司不用分拆，維持到現在，不過業務發展有點落後，尤其是過渡到手提裝置的軟件，現在市場上，流動裝置作業系統是由iOS和Android領先，視窗系統仍是以個人電腦為主。
+
+蓋茨不再參與任何微軟的管理和操作，當然他仍持有不少股份，但想不到他竟然在基金會找到第二事業，同樣搞得有聲有色。他的基金會項目眾多，而他自己聯同太太選擇做愛滋病的工作，這是個令人意外的選擇，試想像在華裔富豪中，有多少人願意為愛滋病做慈善工作？即使只是捐款也有點困難，而即使是在外國，這個議題仍有一定程度的污名化，有點吃力不討好。
+
+然而，他真的落手落腳地做，當時非洲地區是重災區，他也和太太經常岀入非洲各地，了解和做實事。在2006年，國際愛滋病研討會（International AIDS Conference）在多倫多舉行，那時我在一家服務亞裔社區的ASO（AIDS Services Organization）當網絡及媒體管理，因此有幸參與。這是全球最大的硏討會，來自世界各地的愛滋病專家、學者和服務機構濟濟一堂，交流經驗，而當年的主要講者就是兩個阿Bill，一個是前美國總統克林頓，另一個便是蓋茨。他們的對話在展館中最大的場地舉行，座無虛席。在近距離接觸下，蓋茨的表現是不可能含糊，而他詳細道來，從文化，經濟和教育的角度分析，是擲地有聲的。這是我對他的觀感改變的開始。
+
+
+{{< video src="https://web.archive.org/web/20211202153353if_/https://www.youtube.com/embed/6Af6b_wyiwI" >}}
+
+
+其後斷斷續續聽到他的消息和工作，在非洲以外，還有跟不同政府遊說，改善一些第三世界地區的設施等，而由愛滋病的工作中，延伸他的關注到世界的健康問題上。在2015年的一次TEDTalk中，他已警告大家，下次再有大型傳染病出現時，我們是絕對未及預備的。他也開始多看書，據說他一星期看一本書，還不停向大家推介書籍，近年更多岀席訪問，到校園和社區演講，跟年輕人交流。令我最有印象的一次是兩年前在紐約市亨特學院的一次，發言後透過Facebook Live跟觀眾進行了一輪答問環節。而Facebook創辦人克伯格據說是代朋友問道：「如果你能回去給年輕的自己一個忠告，那會是什麼？」
+
+成長的領悟多如牛毛，通常不少是老生常談，值得一說再說的也不少。蓋茨不假思索便回應說，他現在認識到，高智商不是成功的唯一因素。一個人要成功，需要有其他的技能，「我但願早些知道這個事實」。
+
+蓋茨的説法其實也反映出他的智慧，他懂得反省，知道自己的不足，然後改善。大部分人都會認為只要智商高（就是聰明），甚麼都能學會，而且比人學得快。蓋茨年輕時被譽為編碼神童，聰明絕頂，所以好勝，認叻，甚至有年少氣盛，不可一世的態度。但事實是，每個人的優點和長處都有不同，有些人理性，擅長數字理論，有些人感性，天馬行空，創意不斷。而當成人後，我們會發現社交技巧，溝通能力，人際關係，領導能力，以至幽默感，同理心等等，都足以左右一個人的事業發展。
+
+一個高IQ的人特別令人羨慕，我們常聽到一些十多歲的少年已拿到博士學位的故事，特別多讚嘆聲。但一旦到達一個年紀，高IQ的人並不見得有太大分別，你比人早十年拿到博士學位，現在他們也追上來了。除非你當上某種學術研究，否則你和你的同事其實差不了多少，各人有各人的長處和貢獻，因此，很少聽到一個成年人還經常提著自己的IQ有多高，年年考第一之類，霍金不用，更不會用，他只是發表他的硏究報告，幫大家眀白多一點宇宙的奧祕，就足以顯示他的才智。而發表「我如何節省22個口罩」，並不能算作是造福社會的學術論文。
+
+而蓋茨這一說，正好提醒年輕人，不要因為覺得自己不夠别人聰明而放軟手腳，一個人的成就還看其他方方面面的才能，每個人總有自己的長處，教育最終的目的便是將它找（或發掘）出來，能夠讓每個人發揮所長。
+
+
+{{< video src="https://web.archive.org/web/20211202153353if_/https://www.youtube.com/embed/f5NJQiY9AuY" >}}
+
+
+蓋茨在二十年前退下微軟崗位，他在微軟前後共廿四年，之後他專注在他基金會的工作，又廿年過去，可以見到他成熟轉變。華人社會普遍有發財立品的説法，不少富豪也會行善積德，甚至一樣有基金會組織，有系統（或有選擇性）地回饋社會。但全力投入，甚至親力親為地主理日常事務的，倒不多見。而能夠反思自己的過去，有所頓悟而身體力行去改變的，就更少了。
+
+做人，原來就是要活到老學到老，終身學習的態度就是知易行難。最近蓋茨在另一個訪問中表示，他現在每天都問自己，今天有沒有學到新東西，那是多麼簡單愉快的經驗呢。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202153353/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Duncan Lau](https://web.archive.org/web/20211202153353im_/https://hkcnews.com/uploads/avatars/582c0fa6-4072-4844-bec2-1b4888aa1e8a.png?1815252199)
+
+**博客 | Duncan Lau**
+
+【Duncan Lau・天涯曲此時】戲如人生，人生如戲，最大的分別就是不少人在生活裏忽略了音樂，如果在生活裏的某些時刻，配上音樂，會不會讓生命更多姿多采？如果生命能如電影般，做後期製作加入配樂，你會如何選擇？在此時此刻，你想起那一首歌？My FaceBook Page fb.me/DuncanLauHongKong

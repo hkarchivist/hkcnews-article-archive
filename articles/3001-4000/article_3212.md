@@ -1,0 +1,28 @@
+---
+title: "新特首的香港管治論壇：第二環節座談"
+date: "2017-04-08"
+last_updated: "2017-04-09 04:17:46"
+author: "公民記者有限公司"
+category: "眾聞"
+tags:
+  - "新特首的香港管治"
+  - "眾新聞"
+url: "https://web.archive.org/web/20210705045617/https://www.hkcnews.com/article/3212/%E6%96%B0%E7%89%B9%E9%A6%96%E7%9A%84%E9%A6%99%E6%B8%AF%E7%AE%A1%E6%B2%BB-%E7%9C%BE%E6%96%B0%E8%81%9E-3217/%E6%96%B0%E7%89%B9%E9%A6%96%E7%9A%84%E9%A6%99%E6%B8%AF%E7%AE%A1%E6%B2%BB%E8%AB%96%E5%A3%87%EF%BC%9A%E7%AC%AC%E4%BA%8C%E7%92%B0%E7%AF%80%E5%BA%A7%E8%AB%87"
+original_url: "https://www.hkcnews.com/article/3212/%E6%96%B0%E7%89%B9%E9%A6%96%E7%9A%84%E9%A6%99%E6%B8%AF%E7%AE%A1%E6%B2%BB-%E7%9C%BE%E6%96%B0%E8%81%9E-3217/%E6%96%B0%E7%89%B9%E9%A6%96%E7%9A%84%E9%A6%99%E6%B8%AF%E7%AE%A1%E6%B2%BB%E8%AB%96%E5%A3%87%EF%BC%9A%E7%AC%AC%E4%BA%8C%E7%92%B0%E7%AF%80%E5%BA%A7%E8%AB%87"
+---
+
+# 新特首的香港管治論壇：第二環節座談
+
+
+{{< video src="https://web.archive.org/web/20210705045617if_/https://www.youtube.com/embed/fktZih4l6xA" >}}
+
+
+林鄭月娥以777票獲選為第五任香港特首。《眾新聞》4月3日舉辦公開論壇，邀請四位重量級講者出席，剖析特首選戰及影響，探討香港未來的發展。《眾新聞》全程錄影，讓沒有到場的讀者，也不會錯過4位講者的演說和現場精采互動。看全部請到： [「新特首的香港管治」專頁](https://web.archive.org/web/20210705045617/https://www.hkcnews.com/event/30) 。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210705045617/https://www.hkcnews.com/aboutus/#subscribe)

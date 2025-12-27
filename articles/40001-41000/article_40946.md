@@ -1,0 +1,66 @@
+---
+title: "【倫常命案】42歲孝子中秋弒父　稱想減少父親受病痛折磨　親友形容疑犯內向脾氣好"
+date: "2021-05-04"
+last_updated: "2021-05-05 11:36:32"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "大陸"
+  - "天朝"
+  - "內地"
+  - "中國"
+  - "中華人民共和國"
+  - "倫常慘劇"
+  - "扶貧政策"
+  - "脫貧攻堅"
+url: "https://web.archive.org/web/20210725163824/https://www.hkcnews.com/article/40946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40987/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD42%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40987/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD42%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【倫常命案】42歲孝子中秋弒父　稱想減少父親受病痛折磨　親友形容疑犯內向脾氣好
+
+去年中秋發生了一宗倫常命案，42歲的常正才被揭發用繩索勒死了68歲的父親，事後更向親友謊稱父親是喝醉跌死。然而單獨肩負照顧父親的重任常正才卻被鄰里親戚形容為「內向孝順」，父子倆過去亦想一起參與村內的大小事，甚至幫忙打掃村子衛生。到底命案背後隱藏著怎樣的故事？
+
+<figure>
+<img src="https://web.archive.org/web/20210725163824im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/倫常慘劇-20210504152708_b60c_large.png" alt="">
+<figcaption>眾新聞中國組製圖</figcaption>
+</figure>
+
+在去年中秋節，42歲的常正才用繩索勒死了68歲的父親，再將屍體放入棺材埋葬，隨後通知親戚，父親喝醉跌死了。三天後，他再燒毀案發時身穿的衣服和父親生前的物品，然後到派出所註銷父親的戶口。他翌日就因為涉嫌故意殺人罪，被警方刑事拘留，最終在今年初被正式起訴。
+
+當地檢察院近日揭露這宗倫常命案，引起大眾熱議。有內地記者去到案發的華山村，了解到常正才本來是一家四口中的幼子，不過母親在32年前已經去世，哥哥亦入贅了同村的另一戶人家，因此要單獨肩負照顧父親的重任，亦是大家公認的孝子。
+
+<figure>
+<img src="https://web.archive.org/web/20210725163824im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/倫常慘劇-20210504152641_2d0c_large.png" alt="">
+<figcaption>常正才（左）與父親（中）的合照。紅星新聞</figcaption>
+</figure>
+
+堂哥形容常正才是一個內向話少的人，但對父親很好。嫂子得悉事件後，亦覺得非常震驚：「任何人都想不到他會做出這種事情，他從來都是一個老實人，不是甚麼會耍小聰明那種人。他脾氣是好的，平時對我們還是好的，也不是好暴躁。」
+
+父親年邁力衰，行動不便，作為家中唯一經濟支柱的常正才卻患有嚴重的支氣管炎，手部有殘疾，長期受頭痛所苦。而且他只有小學學歷，只能在家種種粟米、豌豆，去街上拾荒，補貼家用。
+
+<figure>
+<img src="https://web.archive.org/web/20210725163824im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/倫常慘劇-20210504152651_2c4b_large.png" alt="">
+<figcaption>常正才房子外的農田。紅星新聞</figcaption>
+</figure>
+
+雖然家境困難，父子倆仍經常參與村中的紅白事，亦會幫忙打掃村子衛生。幫助他們脫貧的扶貧幹部回憶與他們的互動：「父子倆關係還是挺好的，我接觸下來，覺得就是挺平和。然後也感覺他們真的就是挺善良，也懂得那種感恩，不會是那種貪得無厭的那種。」
+
+雖然他們在前年脫貧，但常正才的父親仍日漸消瘦。扶貧幹部形容他瘦得像皮包骨，亦曾向他們反映過自己已經睡不下，難受的時候會空腹喝酒，到去年，說話就連氣都上不來。
+
+堂哥則稱常正才的父親平時總說自己他得了「瘦死病」，吩咐他死後就把他挖埋了就行了。「常正才很聽他的話，真的說二叔叫他協助自殺？我們不清楚，而且我們也不在場。」
+
+常正才向當局供稱，因父親常年有病，以酒續命，想減少病痛給他帶來的折磨，所以決定勒死父親。案件目前仍未作出判決。
+
+<figure>
+<img src="https://web.archive.org/web/20210725163824im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/倫常慘劇-20210504152702_23eb_large.jpg" alt="">
+<figcaption>死者被埋葬的位置。紅星新聞</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210725163824/https://www.hkcnews.com/aboutus/#subscribe)

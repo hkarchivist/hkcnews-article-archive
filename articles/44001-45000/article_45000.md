@@ -1,0 +1,46 @@
+---
+title: "【拉丁舞導師抽脂亡】不覺罪成女西醫感悔疚　官籲醫學界審視美容醫生資歷規管問題"
+date: "2021-09-03"
+last_updated: "2021-09-03 16:47:10"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "高等法院"
+  - "美容院"
+  - "美容中心"
+url: "https://web.archive.org/web/20220123112632/https://www.hkcnews.com/article/45000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45006/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45000/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45006/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【拉丁舞導師抽脂亡】不覺罪成女西醫感悔疚　官籲醫學界審視美容醫生資歷規管問題
+
+重250磅的拉丁舞導師7年前在「重生植髮中心」接受抽脂療程，麻醉後伏床施手術期間昏迷，最終不治身亡。負責療程的女西醫關孝孜被控嚴重疏忽誤殺，上月被裁定罪成。法官李素蘭今聽取求情期間，對坊間美容療程醫生的資歷規管提出疑問，指現時制度是信任醫生不會做自己沒能力做的療程，顧客和病人只能相信醫生，籲醫學界審視情況。
+
+法官押後至本月21日判刑，等待為死者李嘉瑩(32歲)的家人索取創傷報告。李嘉瑩有「舞壇Lady Gaga」之稱，2014年6月26日在尖沙嘴重生植髮中心做背部抽脂後喪命。審訊證供指，李當時接受麻醉，伏在床上，其後呼吸困難和昏迷不醒，送院已無生命跡象。
+
+陪審團上月裁定被告關孝孜(38歲)誤殺罪成。關在抽脂期間離開手術室，留下沒有專業資格的助手觀察李，得悉李狀況有異後返回處理。關被指沒有遵循鎮靜程序指引 ，沒確保有足夠氧氣供應給李，亦沒有適當地監察李的狀況 ，後來未有及時和充分地搶救李。
+
+<figure>
+<img src="https://web.archive.org/web/20220123112632im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/06/高等法院-20170608110614_aba9_large.jpg" alt="">
+<figcaption>辯方今早在高等法院為被告女西醫關孝孜求情</figcaption>
+</figure>
+
+辯方大律師今為被告求情，被告從港大醫科畢業，有志從事美容療程，去過韓國、泰國、中國學習，工作時跟從有經驗醫生訓練。被告2012年加入涉案中心，案發後轉到院舍為長者服務，工作表現獲讚賞，惟經本案定罪，日後大概不能再行醫。本案在多年前發生，被告一直承受壓力，2018年被告罹患癌症，現時病情受控。
+
+法官李素蘭自言不太了解醫生規管制度，但按道理醫生應受過認可培訓，例如大學正式訓練，才可做美容手術，而非去過以美容技術聞名的地方上課、跟過師傅訓練就合資格。辯方指在香港，由非專科醫生在美容中心進行美容療程十分普遍，現在法律有所改變 ，但案發時情況如此。
+
+### 控方：若有能力一般醫生可做大部份美容手術
+
+其後控方補充，現時法例規管私人做美容手術的處所，但不限醫生資格，原則上美容屬於整形外科，但一般醫生只要有能力 ，其實可做大部份手術。
+
+法官表示醫學界需審視情況，否則會有缺乏技術的醫生做不受規管的手術；若醫生自稱有能力，市民一般只能相信。法官指，醫學界自我監管的制度，是信任醫生不會做自己沒能力做的事，建基於品德和信任。控方認同，謂隨著時代轉變，相信醫學界會審視。
+
+辯方亦提到，被告同死者一家相熟，為死者抽脂只收1萬元手術室租金，不收酬勞，不是為錢而做。被告在中心做過80多次抽脂療程，有其他客人像死者般伏床，一直沒出事，而死者亦非首次抽脂，可能令被告誤以為其做法安全，卸下警覺，判斷出錯。
+
+### 官：直至審訊被告才交待藥物份量
+
+辯方指被告有嘗試搶救死者，有向醫院交代用了何種麻醉藥，態度合作。惟法官表明不同意，指被告的搶救只是低水平，沒檢查呼吸，呼吸機是實習美容師為死者裝上，死者當場死亡；被告交代藥物但沒說份量，直到審訊時才交代。
+
+法官批評辯方，書面求情陳詞中一句表達悔意都沒有。辯方強調被告有指示他口頭陳詞致哀，法官反駁謂若被告有悔意，理應第一句就表達。辯方補充說事件乃悲劇，被告令好友喪命，悔疚一生，法官則指正常人類都會有如此感受。法官續說，被告有權要控方自行詳盡搜證，只是不見被告態度合作，看不到她有罪疚。
+
+【案件編號：HCCC200/18】

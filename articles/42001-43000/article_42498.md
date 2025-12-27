@@ -1,0 +1,70 @@
+---
+title: "台灣疫苗接種接獲11例死亡通報　醫師引述：長輩吃完飯「啊」一聲就倒下"
+date: "2021-06-17"
+last_updated: "2021-06-17 21:14:10"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "武漢肺炎"
+  - "新冠疫苗"
+  - "台灣疫情"
+url: "https://web.archive.org/web/20210801175258/https://www.hkcnews.com/article/42498/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42502/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42498/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42502/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD11%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 台灣疫苗接種接獲11例死亡通報　醫師引述：長輩吃完飯「啊」一聲就倒下
+
+台灣大規模施打阿斯特捷利康(AstraZeneca，下稱AZ)疫苗第三天，中央流行疫情指揮中心今(17/6)表示，已接獲11件疑似接種後死亡通報，其中8例為75歲以上長者，至目前為止，尚未有死亡個案被判定為與疫苗相關。台大醫院癌醫中心副院長 [王明鉅則在臉書引述](https://web.archive.org/web/20210801175258/https://www.facebook.com/permalink.php?story_fbid=4065488760195706&id=100002038652860) ，一名81歲奶奶打完疫苗回到家，原本還有說有笑，但用完餐坐到沙發上沒幾分鐘「啊」一聲就倒下猝死，家人都無比驚嚇。
+
+<figure>
+<img src="https://web.archive.org/web/20210801175258im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/台灣疫情-武漢肺炎-新冠疫苗-20210617194542_27f8_large.jpg" alt="">
+<figcaption>醫護人員為長輩施打疫苗。高雄市政府提供</figcaption>
+</figure>
+
+台灣這三天大規模施打AZ疫苗對象主要以85歲以上長者及洗腎患者、長照及護理之家住民為主，各縣市陸續傳出打完疫苗返家後不久猝死案例，根據媒體整理各縣市數據來看，全台累計已有23案例，不過，實際數據仍須以「通報疫苗不良事件通報系統(VAERS)」為主。
+
+指揮中心發言人莊人祥說，從英國、日本及韓國的施打經驗來看，一開始以年長者開始施打疫苗，通報死亡案件都會增加，須藉由回顧個案病歷資料或解剖，才能釐清死因，「目前死亡個案有時序相關性，但因果相關性仍有待確認」。
+
+莊人祥說，這11例通報疑似接種疫苗後死亡案件，其中2例已完成解剖，一人有動脈阻塞性心血管疾病和急性心肌梗塞，另一人則發現有3條動脈阻塞，研判死因與死者的潛在病史較相關。
+
+根據指揮中心統計，截至昨天為止，共計超過113.3萬民眾接種AZ疫苗，其中17.4萬為75歲以上長者，根據疫苗不良事件通報系統顯示，11例接種AZ疫苗後死亡報告中，其中8例為75歲以上長者，死亡個案絕大多數均為高齡長者且有慢性疾病。
+
+指揮中心副指揮官陳宗彥說，從去年至今，75歲以上長者染疫確診後死亡率為22.7%；莊人祥則以自然死亡率說明，若以去年台灣人口統計資料顯示，75歲以上死亡人數為95367人，意指即便未接種疫苗，預期每天仍會有261人自然死亡。不過，近日死亡人數是否高於平均值，目前尚無即時資料可供比對查證。
+
+<figure>
+<img src="https://web.archive.org/web/20210801175258im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/新冠疫苗-武漢肺炎-台灣疫情-20210617194601_2668_large.jpg" alt="">
+<figcaption>醫護人員為長者施打疫苗。高雄市政府提供</figcaption>
+</figure>
+
+台大癌醫中心副院長 [王明鉅今傍晚在臉書提到](https://web.archive.org/web/20210801175258/https://www.facebook.com/permalink.php?story_fbid=4065488760195706&id=100002038652860) ，收到一位之前在台大醫院心血管中心共事的護理師訊息，原來，她的婆婆就是在打完疫苗後48小時內死亡的11名長者其中一位。
+
+[王明鉅臉書提到](https://web.archive.org/web/20210801175258/https://www.facebook.com/permalink.php?story_fbid=4065488760195706&id=100002038652860) ，護理師的婆婆81歲，洗腎已兩年多。雖有糖尿病與衍生高血壓與腎衰竭的併發症，但平常健康狀況還可以，可以自己前往住家附近的診所進行血液透析，洗腎完後雖感覺較累，但生活都能自理。
+
+昨天早上，這位婆婆和平時作息相同，早上6點就獨自搭洗腎專車前往洗腎，同時在洗腎診所接受疫苗注射。她在上午11點20分回到家，據同住的公公說，回來的時候還有說有笑，約11點30分用餐，但沒想到，約10分鐘後吃了半碗粥午餐，吃完坐到沙發上沒幾分鐘，就「啊」一聲倒下。
+
+[王明鉅在臉書轉述](https://web.archive.org/web/20210801175258/https://www.facebook.com/permalink.php?story_fbid=4065488760195706&id=100002038652860) ，同住的公公立刻打了119，也打電話給家人，護理師趕回家是12點05分，已量不到脈搏，在現場的救護人員也問她們要不要急救。他寫道：「護理師同事一家人當然無比驚嚇。公公眼看著結婚60年的老伴就在自己面前猝死倒下，實在太嚇人了。」
+
+王明鉅提到，高齡長者染疫後死亡率高達20%以上的確很高，但是全體的高齡長者在自己與社會層層限制與保護之下，也作好各種保護自己的動作，例如減少出門、購物、努力多洗手等，因此，沒打疫苗所面對的染疫死亡率約0.0172%。
+
+他提到，為了避免這個0.0172%的死亡風險，以及染疫後20%以上高致死率，鼓勵高齡長者和洗腎病人去打疫苗，但若從17萬人75歲以上的高齡長者打了疫苗之後有11位猝死的風險來看，這個風險並不比0.0172%、不打疫苗染疫而死亡的風險低上許多。
+
+他說，護理師同事問：「打疫苗前要作什麼評估？有沒有注意到什麼風險？洗腎的病人適合打嗎？」他原本回答，為保護洗腎病人，還希望讓他們先打！但他現在也害怕，因為打疫苗也是有風險的醫療行為，「要求常常也有著一種甚至更多種慢性病知的他們，去打AZ疫苗真的是是利大於弊嗎?」他說自己也沒有答案，「到底要不要打疫苗，真的只能由承擔風險的人，自己來決定」。
+
+<figure>
+<img src="https://web.archive.org/web/20210801175258im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/新冠疫苗-台灣疫情-武漢肺炎-20210617194633_cfef_large.jpg" alt="">
+<figcaption>台灣前二天疫苗施打對象以85歲以上長者和洗腎病患、長照及護理機構長者為主。屏東縣政府提供</figcaption>
+</figure>
+
+指揮中心醫療應變組副組長羅一鈞今在疫情記者會上對此說明，高齡年齡層的糖尿病、高血壓或其他心血管疾病等盛行率都很高，在考量接種疫苗可以預防重症和死亡的前提下，仍強烈呼籲有慢性病、甚至多重慢性病的病患，要趕緊接種疫苗，不要看到打完後有死亡的報告，還未釐清因果關係，也未超過自然死亡率的背景值情況下，就卻步不去施打。
+
+羅一鈞說，每個國家開始針對高齡長者接種疫苗時，都會因媒體報導死亡案例而引起社區擔憂與恐慌，但英國自春天接種AZ疫苗以來，藉由提高疫苗接種率，成功控制死亡與重症個案數，長期來說，接種疫苗涵蓋率提升後，對自己、家人和社區都可以產生群體保護力，「病毒不會等我們打好疫苗，才爆發群聚，早點接種疫苗，連第二劑都打完，才可以早點建立完整的群體免疫。」
+
+針對死亡案例頻傳，雖尚未釐清因果關係，但是否已引發疫苗緩打潮？莊人祥說，從這兩天接種數都約14萬人來看，並無發現有緩打潮。不過，新北市長侯友宜今在記者會上表示，今天施打率也從前兩天的60%降至47%，會再持續觀察。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210801175258/https://www.hkcnews.com/aboutus/#subscribe)

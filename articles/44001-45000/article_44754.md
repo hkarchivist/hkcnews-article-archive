@@ -1,0 +1,52 @@
+---
+title: "浙15歲少年精密計劃 篡改室友高校志願遭行政拘留"
+date: "2021-08-25"
+last_updated: "2021-08-26 18:07:30"
+author: "實習記者梁穎欣"
+category: "眾聞"
+tags:
+  - "校園霸凌"
+  - "行政拘留"
+  - "浙江"
+url: "https://web.archive.org/web/20211203013215/https://www.hkcnews.com/article/44754/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44754/%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44754/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44754/%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 浙15歲少年精密計劃 篡改室友高校志願遭行政拘留
+
+浙江溫州上個月2日公布初中考試派位結果，考生小林遭室友惡意篡改志願，導致分數達標但不獲第一批招生錄取學校取錄。事件被揭發後，該名室友因未滿16歲而受法律保護，僅被行政拘留六日。小林父親林先生不滿涉事學生沒有道歉，並表示會追究其責任。   
+   
+ 考獲580分的小林，本以為分數足以令他被第一批學校取錄，但派位結果公布後，他只獲第二批、錄取分數較低的巨人中學取錄，他和父親都大感詫異。其父林先生覺得事有蹺蹊，到教育局要求翻查數據，教育局後來確認有陌生的IP地址登入帳戶並修改報考志願。
+
+<figure>
+<img src="https://web.archive.org/web/20211203013215im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/校園欺凌-浙江-20210825182417_11f4_large.png" alt="">
+<figcaption>小林在中考中考獲580分，本以為能順利進入第一批招生錄取學校，但遭室友篡改志願而不獲取錄。</figcaption>
+</figure>
+
+### 篡改志願經精密部署 涉事學生曾多次霸凌受害人
+
+小林事後回想，自己一個姓許的室友，在中考前兩天曾聲言要把他的志願改掉。經追查後發現，許同學曾八次登入小林的帳戶，並刪除小林填寫的十多個報考高中志願。為了防止小林在報考截止前發現事件並將志願重新填寫，許同學在截止時間前兩個多小時才更改小林的選擇，並將密碼也更改了，林先生表示：「孩子（報考截止）那天早上7點多他還登上去看了一下，是自己的填報的志願，後來就沒管了，我大概到了三四點一直就登不上去，以為是志願填報要結束，教育局的系統問題。」
+
+涉事的許同學以往亦曾多次欺凌小林，包括在小林睡覺時將水潑到床上，或者關上寢室房門不讓小林入內，甚至幾次毆打小林。林先生指小林因為在學校被恐嚇，但又不敢向父母求助，以致一直名列前茅的小林近半年成績一直下滑。
+
+<figure>
+<img src="https://web.archive.org/web/20211203013215im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/浙江-校園欺凌-20210825182412_2e53_large.png" alt="">
+<figcaption>許同學將小林填寫的十多個報考志願刪掉，只留下巨人中學，最終小林被這所中學取錄。</figcaption>
+</figure>
+
+### 涉事學生被行政拘留 受害人家長不滿對方家長不道歉
+
+事件揭發後，許同學被捕，但因為未滿16歲，根據內地的《未成年保護法》，當局從輕發落，處以行政拘留六日。雖然小林獲教育局根據他原先報考的志願重新分配學位，但林先生仍感不滿，「發生了這麼大的事情了，對方家長一個道歉電話都沒有，（後續）我肯定會去追責的，那個孩子不處理的話，我肯定也沒辦法接受。」
+
+<figure>
+<img src="https://web.archive.org/web/20211203013215im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/青年-行政拘留-20210825182406_d848_large.png" alt="">
+<figcaption>許同學篡改他人志願，但因未滿十六歲，僅被處以行政拘留六日。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203013215/https://www.hkcnews.com/aboutus/#subscribe)

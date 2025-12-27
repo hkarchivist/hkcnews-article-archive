@@ -1,0 +1,60 @@
+---
+title: "國際特赦被嚇走　林鄭說原因不明"
+date: "2021-10-26"
+last_updated: "2021-10-26 23:41:51"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "國際特赦組織"
+  - "國安法"
+url: "https://web.archive.org/web/20211128182547/https://www.hkcnews.com/article/46931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46938/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46931/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46938/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 國際特赦被嚇走　林鄭說原因不明
+
+
+{{< video src="https://web.archive.org/web/20211128182547if_/https://www.youtube.com/embed/Q6VgHNlzP9k" >}}
+
+
+### [【香港這一天】結集](https://web.archive.org/web/20211128182547/https://bit.ly/2Cj8v4t)
+
+中央去年7月實施《香港國安法》，法例不但直接影響在港人士， 亦適用所有機構，其中一項危害國家安全罪行是勾結外國勢力， 直接影響在港國際人權組織，活動會否違反國安法， 有很多不明朗地方。國際特赦組織在港設有香港辦事處， 亦設立地區總部，國安法生效後，政治及法律風險大增， 外間估計不排除要撤離避險。
+
+國安法實施15個月，國際特赦昨日宣佈香港分會本月底停止運作， 年尾再搬走地區總部。國際特赦是全球人權組織， 推動人權保障和教育，最終以腳表態， 對香港基本人權保障投下不信任一票。
+
+聲明說，有關決定是基於國安法實施後， 人權組織不可能在香港自由運作，亦不可能無懼政府的報復。 國安法下的香港，恐懼滲透生活大小環節， 一個以推動人權的全球組織亦被恐懼嚇走， 不少港人在過去一年已舉家移民，國際特赦撤離， 對仍留港的港人再加添一分憂慮。
+
+中央出手實施國安法，兩地官員初期不斷強調只針對「一小撮人」， 實施不久，前運房局局長張炳良已公開呼籲，政府慎防國安法「 武器化」，當時特首林鄭月娥不點名稱對此說法「很驚訝」， 反駁國安法是「儆惡懲奸」。 張炳良強調法例定要用在國家安全有關的事上。
+
+官員已少再講只針對「一小撮人」，因為打擊面不斷擴大， 包括可以無所不包的「軟對抗」，官員亦沒有放軟手腳， 不斷尋找新目標，走私澳洲龍蝦亦涉及國安。 中央領導層感到國際大環境滿佈敵人，危機四伏， 香港一直是國家安全短板，國安法實施，調派以千計人手執法、 進行情報工作仍未感安心， 港府官員近日要加快為基本法23條立法，針對間諜、 竊取國家機密等罪行，目的是再加強維護國家安全法律「武器」 的威力，與張炳良開呼籲慎防國安法「武器化」，走完全相反方向。
+
+林鄭今早被記者問到對國際特赦事件的看法將時表示， 國安法生效後，有不同組織和人士都以法例為由離港， 但無人可以證實這是真正的原因，因此不能評論該組織的說法。 她強調，基本法保障市民的言論、集會和結社等自由， 又指實施港區國安法是為了預防和遏止危害國家安全的行為， 並非單只為了作出懲罰和拘捕。她認為任何組織如果是合法運作， 就毋須擔心會受影響。
+
+林鄭又說，根據統計處在今年6月公布的數據， 在香港設立辦事處或總部的內地和海外公司數目並無減少， 更破紀錄地超過9,000間， 有國際和區域法律機構也在香港設立辦事處， 反映國安法並無對合法的商業活動作出阻嚇。新增機構以內地為主， 來自西方國家數字明顯下跌，林鄭有誤導之嫌。
+
+假如國際特赦已違反國安法，相信國安部門早已拉人封舖。國安法「 紅線」飄移，執法受政治主導，個人及機構無從捉摸及評估， 不想在恐懼下生活和運作的，唯有選擇走，清楚不過。 林鄭是扮作不知道，或是在裝著睡，她心知肚明。
+
+林鄭日前接受港台節目訪問時表承認，港區國安法落實後， 香港在國際上的聲譽受到一些損害，因為有很多外國政客、組織、 外部勢力及西方傳媒「放大了」國安法下「很正路」的執法工作， 以此等同為壓制人權及自由等， 特區政府在這方面要做多些解說工作。
+
+國際特赦組織因為未能保障自己在港僱員的人權及自由，無法留低， 說明一切。講完！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128182547/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20211128182547im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

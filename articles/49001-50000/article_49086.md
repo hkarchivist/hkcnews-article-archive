@@ -1,0 +1,42 @@
+---
+title: "Uber Eats將停運包鐘車手未獲公司賠償　有車手受傷才發現無工傷、勞保"
+date: "2021-12-15"
+last_updated: "2021-12-15 16:46:50"
+author: "實習記者陳子敏"
+category: "眾聞"
+tags:
+  - "Uber"
+  - "送外賣"
+  - "外賣員"
+url: "https://web.archive.org/web/20221129204746/https://hkcnews.com/article/49086/uber-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49109/uber-eats%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49086/uber-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49109/uber-eats%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# Uber Eats將停運包鐘車手未獲公司賠償　有車手受傷才發現無工傷、勞保
+
+有Uber Eats包鐘車手今早於服務業總工會協助下舉行記者會，表達對Uber Eats停運發放遣散費或長期服務金的訴求。有車手指只能透過手機應用程式及電郵向公司查詢，至今公司沒有回應賠償安排。包鐘車手劉生於日前（十二月十二日）發生交通意外，才發現公司沒有工傷保障，更因為未能於一小時內提交醫生紙請病假被封鎖工作帳戶，至今未被解封無法工作。包鐘車手阿健亦表示無法以合約追究勞工福利或賠償「簽完（合約）之後，我亦都要求公司比合約副本比我哋，公司嘅答覆係，對唔住，我唔可以比合約嘅副本比你哋，每一位同事都係呢個答案。」
+
+<figure>
+<img src="https://web.archive.org/web/20221129204746im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/外賣員-Uber-20211215110841_2933_large.jpg" alt="">
+<figcaption>包鐘車手未獲Uber Eats回應遣散費安排，手上亦無合約副本追究。陳子敏攝。</figcaption>
+</figure>
+
+Uber Eats香港早前宣布將於十二月三十一日停運，車手表示他們由申報停運第一日（30／11）已經開始追問公司遣散安排。被問到車手有否向負責Uber Eats員工提出問題，車手劉生指由聘請到日常請假批核只有一位叫Emma的員工聯絡，而提出賠償事宜時Emma沒有正面回應。Uber Eats另外有專屬Telegram群組宣佈重要事項，但車手們於群組內沒有發言權限，未能接觸Uber Eats員工。服務業總工會自由工作者分會主席王師樂指，已經有約一百名Uber Eats包鐘車手向他們求助，若Uber Eats未回應，他們會向勞工處求助。
+
+車手們亦申訴Uber Eats包鐘車手工作條件苛刻，送餐及工作時間均設有懲罰機制。包鐘車手有固定工作時間和指定工作範圍，每星期最少工作六天，每日最少工作十二小時，時薪由七十五至八十元，每週例假由公司安排。如果車手想請病假要向公司申請，有車手聲稱如果當日車手供應不足，病假可能不被批准。如果無合理解釋就當曠工，除了被扣除當日時薪，車手亦會從薪金扣去至少四百元。阿健指合約上列明車手取餐兩公里、送餐三公里範圍內，要在一定時間完成。但實際上車手阿健曾由紅磡到又一村再往九龍灣送餐，單單由紅磡到又一村已經超過五公里路程。阿健怒斥公司沒有因為路程時間加長而改變送餐懲罰機制「一知道穿區就會塞車，公司就會話超過平均（時間）」。車手每星期會收到「每週表現報告」，如果車手的平均送餐時間比同區車手慢多於五分鐘，公司最少會扣四百元，阿健最高被扣一千五百元薪金。
+
+阿健強調自己簽約時沒有說明是以自僱形式聘請，「上到公司見工嘅時候係指明我係見長工嘅，簽合約嗰時，佢就比咗分英文合約我簽，我都唔係好識睇。簽完之後，我亦都要求公司比合約副本比我哋，公司嘅答覆係，對唔住，我唔可以比合約嘅副本比你哋，每一位同事都係呢個答案。」阿健亦向記者展示Telegram群組名稱，為「HK Uber Eats 全職包鐘車手專屬頻道」，但阿健稱公司從未傾談過強積金供款事宜。
+
+<figure>
+<img src="https://web.archive.org/web/20221129204746im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/外賣員-Uber-20211215110754_2b99_large.jpg" alt="">
+<figcaption>Uber Eats 車手Telegram群組名稱為「HK Uber Eats 全職包鐘車手專屬頻道」。陳子敏攝。</figcaption>
+</figure>
+
+車手劉生就因為一次交通意外才發現，Uber Eats沒有為車手提供全面勞工及工傷保障。劉生於十二月十二日發生交通意外，因為地面有油漬騎電單車時滑到膝頭受傷，送院治理。意外約下午十二時發生而劉生即時向公司通報，公司為他分配原先訂單予其他司機後並未有提供其他援助，並要求他於一小時內提供醫生紙證明。劉生於急症室等候多時於大概下午六時提交文件，而隨後帳戶更被封鎖，直至今天十二時仍未解封，令他無法如常工作。他多次透過電話程式接觸公司但應未有回應。
+
+眾新聞亦有電郵Uber詢問包鐘車手會否獲得遣散費或長期服務金及其金額多少、要求解釋車手工傷後帳戶被封鎖原因、公司為何不容許包鐘車手簽合約時取走合約副本及包鐘車手的受僱型式。但Uber暫時未有回應。
+
+<figure>
+<img src="https://web.archive.org/web/20221129204746im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/外賣員-Uber-20211215110819_209f_large.jpg" alt="">
+<figcaption>（左）包鐘車手阿健 （右）受傷包鐘車手劉生。陳子敏攝。</figcaption>
+</figure>

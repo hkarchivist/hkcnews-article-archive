@@ -1,0 +1,56 @@
+---
+title: "見字飲水、是因為我們要學懂好好活著"
+date: "2021-04-06"
+last_updated: "2021-04-06 12:17:33"
+author: "殷琦"
+category: "眾說"
+tags:
+  - "香港人"
+  - "見字飲水"
+url: "https://web.archive.org/web/20211027163835/https://hkcnews.com/article/40030/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/40030/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 見字飲水、是因為我們要學懂好好活著
+
+為欺騙自己並沒有與時代脫節，我閒不時都會多了解網絡潮語溫故知新。香港人天生就有周星馳的無厘頭基因、越無厘頭越出名，但這個 **#見字飲水** 一開始真的來得有點莫名。乜潮語都會提人養生咁Old School架咩？聞說這還衍生出「見字坐直 ∕見字儲錢／見字運動」之類的說法。翻查之下，原來「見字飲水」真係Literally「見到呢幾隻字就飲水」，藉提人飲水希望大家身體健康。我卻覺得，更重要的不單是「飲水」咁簡單、而是要懂得愛護自己、學懂好好活著。
+
+<figure>
+<img src="https://web.archive.org/web/20211027163835im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/見字飲水-香港人-20210406120749_23c6_large.jpg" alt="">
+<figcaption>網絡圖片</figcaption>
+</figure>
+
+「見字飲水」的「典故」來自於由版主Terence成立的 [「見字飲水協會」](https://web.archive.org/web/20211027163835/https://www.facebook.com/SeeThisDrinkNow) ，每日以一張無聊迷因（meme）呼籲讀者多喝水。原來版主雖然年紀輕輕、之前卻因工作過勞患上腎石，由此明白「飲水」重要（ [參考報導](https://web.archive.org/web/20211027163835/https://hk.appledaily.com/lifestyle/20200912/EHV5H37XCBDKRCIKLXPZPLJVQU/) ）。「見字飲水」一詞，現衍生出「祝你身體健康」、甚至是「關心你、Care你」之意－例如當你在面書MeWe中抒發個人生活苦處時，樓下朋友寫下「見字飲水」、不單是想提醒你「見字飲水」、而是請你在這刻「愛護自己、好好活著」。
+
+見字飲水，背後蘊藏的深意似乎有點悲涼。香港人本來就生活節奏急速，水都飲唔多啖、覺又瞓唔多。這幾年港人除工作外、在不同層面更受盡風吹雨打，人心惶恐不安。「見字飲水」，似乎又含有「還有什麼可以做？唯有『見字飲水』，在這刻『愛護自己、好好活著』就好——反正我這刻能夠做的，就只有這樣而已啊。」是的，遙遠的夢想我們都無法掌握、能夠掌握的，就只有眼前的水杯而已。
+
+水、都係水，不過是水杯。最後借用周柏豪那篇水杯潮文（ [參考資料](https://web.archive.org/web/20211027163835/https://evchk.wikia.org/zh/wiki/周柏豪) ）略為修改變成如下：
+
+> **看見短短的見字飲水四字**   
+ **算是今天我思緒最安穩的時間**   
+ **飲水的一刻**   
+ **是我今天感受過最美好的東西**   
+ **而飲水咕嚕咕嚕的一聲**   
+ **是聽過最美好的聲音**
+
+
+  
+ 見字飲水、是因為我們要學懂好好活著。
+
+反正我們這刻能夠做的，就只能是這樣而已。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027163835/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 殷琦](https://web.archive.org/web/20211027163835im_/https://hkcnews.com/uploads/avatars/2d741b5c-2478-4f90-be1d-c617771b50da.png?1594224226)
+
+**博客 | 殷琦**
+
+【殷琦．殷琦專欄】一舊蕃薯般的孤獨文青，也許是讀書太多，總活在迷霧之中。怨氣太多，希望太少，與你和我一樣，在小小的香港同受壓抑、同唱悲歌、每天僅為生活掙扎求存。為註冊藝術（表達藝術）治療師。興趣在表達藝術治療、哲學、心理學、生活、音樂、藝術、政治、宗教等。FB專頁：https://www.facebook.com/YanKiHongKong/

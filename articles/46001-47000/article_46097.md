@@ -1,0 +1,40 @@
+---
+title: "黃惠沖調任法改會秘書長　表面平調實質削權"
+date: "2021-10-03"
+last_updated: "2021-10-03 19:55:24"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "律政司"
+  - "DOJ"
+  - "department of justice"
+  - "黃惠沖"
+  - "梅基發"
+url: "https://web.archive.org/web/20211204044154/https://www.hkcnews.com/article/46097/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46107/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46097/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46107/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 黃惠沖調任法改會秘書長　表面平調實質削權
+
+政府電話簿顯示，本身掌管律政司憲制及法律專業政策的法律政策專員黃惠沖，調任法律改革委員會秘書長，其原有職務由曾負責修改選舉制度的副法律政策專員（憲制事務）梅基發接管，並升任為署理法律政策專員。據悉，任命由10月1日起生效。
+
+今次調職表面上為平調，但黃過去掌管的憲制及政策事務科其中一個範疇正是法改會範疇，故實質上是「削權」，甚至「發配邊疆」。法改會秘書長本身屬於首長級薪級表第3級（D3），但 [今年9月獲立法會財委會通過法改會秘書長「升格」至D6級](https://web.archive.org/web/20211204044154/https://www.legco.gov.hk/yr20-21/chinese/fc/esc/papers/e21-13c.pdf) ，「安置」黃的意味甚重。此外，法改會秘書處去年12月不再隸屬黃掌管的憲制及政策事務科，直接向鄭若驊匯報。
+
+<figure>
+<img src="https://web.archive.org/web/20211204044154im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/12/律政司司長-黃惠沖-20171209175752_c4b4_large.jpg" alt="">
+<figcaption>黃惠沖一度傳有機會成為律政司司長。資料圖片</figcaption>
+</figure>
+
+根據鄭若驊今年6月向立法會 [司法及法律事務委員會匯報](https://web.archive.org/web/20211204044154/https://www.info.gov.hk/gia/general/202106/21/P2021062100781.htm) ，日後法改會加入一個新的檢討成文法職能，檢討710條條例及1616條附屬法例，鄭若驊當時舉例說要修改法律中「女皇陛下」、整合法律、檢討目前禁止牛羊豬帶入遊樂場地等過時條文。法改會近期正處理強制通報虐兒、檔案法、電腦網絡罪行等範疇，意味日後黃調離選舉事務、中國法律在港應用及與法律專業發展等範疇。
+
+黃惠沖被形容為律政司的「親生仔」， [2017年一度有傳他接任律政司司長](https://web.archive.org/web/20211204044154/https://www.hkcnews.com/article/4021/%E5%BE%8B%E6%94%BF%E5%8F%B8%E5%8F%B8%E9%95%B7-%E9%BB%83%E6%83%A0%E6%B2%96-4023/%E6%8E%A5%E4%BB%BB%E5%BE%8B%E6%94%BF%E5%8F%B8%E9%95%B7%EF%BC%9F%E9%BB%83%E6%83%A0%E6%B2%96%EF%BC%9A%E7%84%A1%E5%92%81%E5%98%85%E5%85%AC%E5%B8%83%E5%96%8E%EF%BC%8C%E9%83%BD%E4%BF%82%E7%AD%89%E5%85%AC%E5%B8%83%E5%96%87) 。黃惠沖於1993年在港大畢業後取得大律師資格，同時成為首批律政司培訓律政人員，加入律政司至今超過27年。回顧其過去職務，初期曾短期出任時任律政司司長梁愛詩的助理，2011年出任副刑事檢控專員，2013年成為資深大律師。他在2015年調任法律政策專員，主責監督立法議程及提供《基本法》、人權法及內地法工作提供法律意見。
+
+至於接任黃惠沖職務的梅基發，原任副法律政策專員（憲制事務），是事務律師出身，將有機會成為首批在律政司工作而獲委任為資深大律師的律政人員。梅在修改選舉制度草案提交立法會期間，破例無經立法會批准下擔任署理律政專員（特別職務）。鄭若驊在去年律政司舉辦《基本法》三十周年高峰論壇閉幕禮上， [點名感謝籌辦的梅基發](https://web.archive.org/web/20211204044154/https://www.info.gov.hk/gia/general/202011/17/P2020111700853.htm) ，論壇當時邀請基本法委員會前主任喬曉陽、港澳辦前副主任馮巍等發言。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204044154/https://www.hkcnews.com/aboutus/#subscribe)

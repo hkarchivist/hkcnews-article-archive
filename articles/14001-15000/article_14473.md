@@ -1,0 +1,53 @@
+---
+title: "薩爾瓦多與台灣斷交轉投北京　蔡英文：中國造成全球局勢不穩　台灣要走出去"
+date: "2018-08-21"
+last_updated: "2018-08-21 16:26:32"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "薩爾瓦多"
+  - "薩爾瓦多共和國"
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "兩岸外交戰"
+url: "https://web.archive.org/web/20211202150333/https://hkcnews.com/article/14473/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-14480/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/14473/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-14480/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 薩爾瓦多與台灣斷交轉投北京　蔡英文：中國造成全球局勢不穩　台灣要走出去
+
+<figure>
+<img src="https://web.archive.org/web/20211202150333im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/兩岸外交戰-中國-薩爾瓦多共和國-20180821143401_19ee_large.jpg" alt="">
+<figcaption>中薩兩國外長今早在北京簽署建交文件。美聯社</figcaption>
+</figure>
+
+中美洲國家 [薩爾瓦多](https://web.archive.org/web/20211202150333/https://zh.wikipedia.org/zh-hk/%E8%81%96%E8%96%A9%E7%88%BE%E7%93%A6%E5%A4%9A) 與台灣斷交，改與北京建交，令到台灣的邦交國減至17個。 [台灣總統蔡英文發表講話](https://web.archive.org/web/20211202150333/https://www.president.gov.tw/NEWS/23602) 稱，斷交不是單一事件，是中國連串文攻武嚇的一環，包括軍機繞台、要求國際航空公司改名、取消台中市東亞青運主辦資格，以及最近的85°C事件，打壓從來沒有改變。她又說，中國的在世界各地所做的，已造成全球局勢不穩定，又指兩岸問題不再是兩岸之間的問題，是區域問題的一環，矢言台灣要「走出去」。
+
+在北京，薩爾瓦多與台灣斷交公布後不久，外長卡斯塔內達與中國外長王毅簽署建交文件。卡斯塔內達表示，薩爾瓦多承認「一個中國」原則，台灣是中國不可分割的一部分。王毅則指，全球已有178個國家與中國建交，充分證明堅持「一個中國」原則是符合國際大義，順應時代潮流的正確選擇。他說，對於中方來說，在拉美和加勒比地區多了一位新朋友，在推進「一帶一路」建設和構建人類命運共同體的事業，多了一個新伙伴。
+
+<figure>
+<img src="https://web.archive.org/web/20211202150333im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/吳釗燮-台灣外交部長-兩岸外交戰-20180821154025_f1c5_large.jpg" alt="">
+<figcaption>台灣外交部長吳釗燮今晨在記者會表示，台灣沒答應薩爾瓦多大量金援開發聯合港的要求。三立新聞網</figcaption>
+</figure>
+
+薩爾瓦多成為多明尼加、布吉納法索之後，4個月內第3個與台灣斷交的國家，也是蔡英文上任至今，第5個與台灣斷交的國家。台灣外交部表示，今年6月與薩爾瓦多溝通，一個月後，外長吳釗燮曾赴當地，已沒法繼續維持外交關係。吳釗燮在今晨的記者會稱，薩爾瓦多去年向台灣要求援助大量資金，以助開發當地的聯合港，但台灣沒有答應。
+
+此前，薩爾瓦多將與中國建交的傳聞，一度引起美國關注。台灣傳媒報道，美國駐薩爾瓦多大使馬內斯曾表示，薩爾瓦多的聯合港可能改建為軍事基地，引發美國對中國在該地區活動的擔憂。他表示，美國擔心的不僅是中國對港口的投資，而是中國以及中國的軍方想要在該處擴展在區內的影響力，這是一個戰略問題，美國要密切關注。
+
+<figure>
+<img src="https://web.archive.org/web/20211202150333im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/蔡英文-兩岸外交戰-薩爾瓦多-20180821162257_1519_large.jpg" alt="">
+<figcaption>蔡英文指摘北京打壓，稱台灣要走出去。蔡英文facebook</figcaption>
+</figure>
+
+剛結束中南美洲訪問、回到台灣不到12小時的蔡英文表示，現在的中國，不只是兩岸和平的威脅，中國現時在世界各地所做的，無論是干涉各國內部事務，破壞國際市場秩序，已經造成全球局勢高度不穩定。她說，台灣要再一次地提醒國際社會，這不只是台灣的事，情勢的迫切，已經不容許我們有任何一點姑息。
+
+她最後說，要再次強調，愈是打壓，愈要團結；愈是打壓，愈要走出去。台灣不會因為壓力而屈服，台灣會更團結更堅強，走出去的決心更堅定。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211202150333/https://hkcnews.com/aboutus/#subscribe)

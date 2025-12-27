@@ -1,0 +1,78 @@
+---
+title: "被民主派叫「PK鄧」　中西區通過解僱鄧炳強動議　政府不認同"
+date: "2020-01-17"
+last_updated: "2020-01-17 02:48:48"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "鄧炳強"
+  - "警暴"
+  - "中西區區議會"
+url: "https://web.archive.org/web/20221003102603/https://www.hkcnews.com/article/26165/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDpk%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/26165/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-26175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDpk%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 被民主派叫「PK鄧」　中西區通過解僱鄧炳強動議　政府不認同
+
+警務處處長鄧炳強出席中西區區議會質詢，被會上大多數民主派議員多番質問警暴問題，會上被多人稱呼作「PK鄧」。有議員動議譴責鄧炳強監管警隊不力，要求政府成立獨立調查委員會，並解僱鄧炳強。在席的鄧炳強和多名政府官員隨即離席，議案最後獲得通過。政府隨後發新聞稿指，動議對警方作出不實指控，政府不認同區議會的做法和動議的立場。
+
+鄧炳強指，在反修例事件中被捕人數有7019人，當中已檢控1092人，其中包括547人被控暴動罪，已定罪的有38人。會上有議員要求鄧辭職，他回應：「多謝，我理直氣壯做得好，只係一啲懼怕我正義的人想我辭職啫。」
+
+早前一名少女指在荃灣警署內被強姦，鄧炳強在會上提到，調查員正循誤導警務人員或俾假口供方向調查，及後他補充稱，是指控與錄影帶片段不符合。
+
+<figure>
+<img src="https://web.archive.org/web/20221003102603im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/鄧炳強-中西區區議會-20200116225632_1a4b_large.png" alt="">
+<figcaption>鄧炳強首次出席換屆後的中西區區議會會議。香港電台截圖</figcaption>
+</figure>
+
+中西區區議會會議昨午2時舉行，開始前，過百名撐警人士在舉行會議的中環海港政府大樓地下，高舉橫額及叫喊「支持警察」口號，等候鄧炳強。社民連成員則站在對面馬路叫口號反對警暴，期間有撐警者企圖取去社民連橫額，場面一度混亂。
+
+<figure>
+<img src="https://web.archive.org/web/20221003102603im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/撐警-鄧炳強-中西區區議會-20200116225708_176d_large.jpg" alt="">
+<figcaption>過百撐警者叫喊口號表示支持警察。鄭靖而攝</figcaption>
+</figure>
+
+議會內的公眾旁聽席坐滿大批撐警人士，另外亦有不少便衣警員在場。中西區區議會主席、民主黨鄭麗琼在會議開始時，要求在場的便衣警員掛上委任證。其後一名警員被發現未有出示委任證，被鄭麗琼要求離開。鄧炳強進場時，旁聽的撐警者隨即拍手高呼「支持警察」，並向鄧炳強遞信。其後會議進行時，旁聽席多次有人叫囂被趕離場。
+
+民主派議員稱呼鄧炳強時，都用上「PK鄧」、「PK先生」或「鄧先生」等名稱，主席鄭麗琼介紹鄧炳強時，也是以「PK鄧」稱呼。
+
+鄧炳強先發言，他提到在反修例事件中被捕人數有7019人，當中已檢控1092人，其中包括547人被控暴動罪，已定罪的有38人，當中12人被判監，2名15歲少年被判入更生中心。鄧續指，被捕人士中有2847人報稱學生，佔總數約4成，又指去年9月開學後被捕學生的人數比例增加。至於理大事件，警方拘捕了1382人，當中80多人是理大學生，整體大專學生佔約4成。
+
+鄧炳強指，去年發生的多場「暴亂」對社會治安有很大影響，又指網上流傳很多假消息，抹黑警隊，例如831打死人就是假的指控，稱警方「清者自清」，最後他著區議員要以身作則，不要犯法及不要包庇破壞行為。
+
+唯一建制派山頂區議員、自由黨楊哲安，發言時聚焦修補警民關係，「有暴徒放火打人，我都睇到，同時我透過唔同傳媒，都睇到警方拉人嗰時，係咪真係下下根據住守則做呢，我都有合理懷疑。」他指，如今社會撕裂，警方的行為是導火線的一部分，要求鄧炳強解釋如何令市民對警方重拾信心。鄧炳強回應指，社會許多人想犯法，「唔想警隊執法能力高嘅，就會用好多假新聞假消息打擊我哋。」指警方會多作澄清及增加透明度，亦會多與各界溝通。
+
+<figure>
+<img src="https://web.archive.org/web/20221003102603im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/梁晃維-中西區區議會-20200116225814_18c0_large.png" alt="">
+<figcaption>觀龍區議員梁晃維戴上面巾發言，他說自己除了是區議員外，亦是一個香港人。香港電台截圖</figcaption>
+</figure>
+
+民主派議員大多聚焦在警暴問題，多次問及發生在中西區的6.12衝突。石塘咀區議員葉錦龍提到，當天中信大廈外正舉行一個已獲批不反對通知書的集會，警方卻在中信大廈外發射催淚彈，險釀人踩人。鄧炳強則稱，不同意警方是向和平示威者施放催淚彈。被追問當時的不反對通知書是否失效，鄧指，監警會正進行調查，此為其中一個調查重點，不便述說詳情，但指有些重要枝節「唔講唔得」：「當日中信橋嘅情況，係由於主辦單位呼籲啲人入去中信大廈，造成混亂。」
+
+水街區議員何致宏質疑，警方將所有已拘捕的人稱呼為暴徒，未審先作判斷。鄧炳強指，暴徒不在於能否在法院定罪，用暴力破壞的就是暴徒。何又質疑，鄧炳強是否有能力控制和管理警隊，要求他下台。鄧說：「唔好意思喇，我唔係問責官員，我冇得問責下台。」有議員要求他辭職，鄧回應：「多謝，我理直氣壯做得好，只係一啲懼怕我正義的人想我辭職啫。」
+
+<figure>
+<img src="https://web.archive.org/web/20221003102603im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/中西區區議會-黃永志-20200116225839_bfad_large.png" alt="">
+<figcaption>黃永志拿出一條生豬肉，著警方不要再「砌市民生豬肉」。香港電台截圖</figcaption>
+</figure>
+
+西營盤區議員黃永志拿出一條生豬肉，著警方不要再「砌市民生豬肉」。鄧炳強則說，對毫無事實根據的指控表示遺憾。正街區議員張啟昕，拿出數張蒙面人的相片，著鄧炳強辨認哪些是警員。鄧炳強看了後說，其中一張相中人他事後知道是警察，其餘則不知道。張啟昕質問市民應如何區分警員，鄧指，警員在切實可行的情況下要拿委任證，否則確實有不完美的地方，不過又指單看相片很難知道情況，「可能對面啱啱有人準備掟汽油彈，咁防禦掟汽油彈，重要過拎委任證。」
+
+葉錦龍提出臨時動議，譴責鄧炳強監管警隊不力，縱容警員濫權濫暴，要求政府成立獨立調查委員會，並解僱鄧炳強，議案獲得通過。葉錦龍甫提出動議，鄧炳強即離場，在席的民政事務專員及其他政府代表亦離開。
+
+政府晚上發稿，表示不認同中西區區議會針對警方和警務處處長作出的臨時動議，指動議對警方作出不實指控，政府不認同區議會的做法和動議的立場，故此所有列席的政府人員均離席。
+
+行政長官林鄭月娥晚上在Facebook指：「安排一些指定部門的首長要在四年一屆的區議會親自到18區出席會議，介紹部門的最新發展和回答議員的提問，是我在2006年負責檢討地方行政的其中一項建議，多年來都運作良好。今日警務處處長鄧炳強就率先履行政府承諾，出席中西區區議會會議。令人遺憾的是非建制派的區議員用各種手法對處長和警隊作出不實指控、出言侮辱、動議譴責，破壞議會應有的規矩和議員和官員應互相尊重的基礎。鄧Sir的不卑不亢，據理力爭，是日後其他須出席區議會會議的部門首長的一個好榜樣。我今日出席立法會會議亦受到來自非建制派議員的同樣對待。這兩級議會什麼時候才可回到正軌，為市民做實事呢？」
+
+<figure>
+<img src="https://web.archive.org/web/20221003102603im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/01/鄧炳強-中西區區議會-20200116225731_2800_large.jpg" alt="">
+<figcaption>鄧炳強會後接受訪問，回應有關警隊研究引入電槍的消息。鄭靖而攝</figcaption>
+</figure>
+
+鄧炳強其後向傳媒指，大部分區議員的發言都是情緒式發洩，並非實則問題，指感到遺憾，又說會上許多發言是基於錯消息，例如被捕人被強姦、被送返內地、警隊混入公安等，表示感到無奈及擔憂。
+
+有報道指警隊正研究引入電槍，鄧炳強被問到此事時未有直接回答，僅表示警隊選擇新武器方面有數個原則，包括安全及增加行動效率，亦希望找到武器替代真槍。他稱，有人誤解警方提升武力，但警方其實是想找新型武器替代真槍，減低整體武力使用。他表示，警方正研究不同武器，處於研究階段。
+
+至於有市民就警方用法庭手令搜查警總內物品，以取得被捕者交出的手機及電腦資料，入稟申請司法覆核。鄧炳強指，警方以往是根據《警隊條例》搜查被捕人士手機後，用警方一些「工具」取閱手機的內容，從而獲取證據，「但之前法庭指引就話，我哋要拎法庭手令，先可以用我哋工具去開啟電話，咁我哋過往正正係根據法庭指引，用法庭手令嘅方式拎資料。」
+
+另外，警方周二首次在香港檢獲「水喉通土製炸彈」，在旺角通菜街一間劏房，檢獲一個重1.5磅，由8寸長金屬水喉通製成的土製炸彈，拘捕3名年齡介乎21至22歲的大專生。警方之後在上水河壩村一間村屋，破獲相信是製作爆炸品的場所，再拘捕一名29歲男子；警方周三再以涉嫌非法集結、串謀製作爆炸品和藏毒等罪名，拘捕6名男子。警方昨日再到上水河壩村搜查，在農田下搜出懷疑烈性炸藥，以涉嫌串謀製造炸藥拘捕男疑犯的53歲母親、27歲太太及外傭。新界北總區刑事高級警司陳天柱表示，相信爆炸品會用於大型公眾活動，意圖襲擊警務人員。

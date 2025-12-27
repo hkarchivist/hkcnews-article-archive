@@ -1,0 +1,94 @@
+---
+title: "加拿大駐港總領事：六四記憶重要　盼港恢復可和平集會"
+date: "2021-05-10"
+last_updated: "2021-05-10 03:53:48"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "六四"
+  - "六四事件"
+  - "64 事件"
+  - "天安门事件"
+  - "89事件"
+  - "8964"
+url: "https://web.archive.org/web/20210919132331/https://www.hkcnews.com/article/41126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDjeff_nankivell-41146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41126/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDjeff_nankivell-41146/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 加拿大駐港總領事：六四記憶重要　盼港恢復可和平集會
+
+**六四燭光晚將連續第二年被拒在維園舉行，首批承認未經批准參與集會者更被判4至10個月不等。加拿大駐香港及澳門總領事南傑瑞（Jeff Nankivell）在裁決前接受眾新聞專訪時說，加拿大當局深信保留六四記憶重要（important to keep that memory alive），並希望港人可以盡早恢復參與和平集會及示威。**
+
+**5月中將卸任離港的南傑瑞曾經前後派駐北京共十一年，他形容千禧年曾經是中國最開放的時期，當時可開放討論經濟及司法改革，可是近十年大陸再走封閉回頭路。至於香港也在2019年後經歷翻天覆地根本改變，他慨嘆曾經向港府官員公開及當面建議溝通解決爭議，可惜最後無採用對話解決紛爭。他強調加拿大仍非常關注本港言論自由受局限，及國安法控罪模糊等問題。**
+
+<figure>
+<img src="https://web.archive.org/web/20210919132331im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/南傑瑞Jeff%20Nankivell-加拿大-20210508212448_1b81_large.jpg" alt="">
+<figcaption>南傑瑞2016年擔任加拿大駐香港及澳門總領事，因疫情關係，本來4年多任期延長了，他笑言目前是外國領事中留港時間第二長。黎家威攝</figcaption>
+</figure>
+
+南傑瑞的外交歷程及個人經歷映襯中港大時代的變遷。他在六四屠城一年後來港並在中文大學新亞書院修讀中文，與其他外交官同學一樣準備派駐北京，一年間日復日搭天星小輪然後入沙田，他說自己對香港有獨特的感情。南傑瑞回憶，天安門事件發生後，香港仍好緊張，面對著97年未知的證據。1990年初正是移民的高峰，包括一年約4萬人移民到加拿大，創下當時的高峰。當時很多人感到不穩定、悲觀，很多人決定走，氣氛是很奇怪。
+
+> **（九十年代）香港有堅實新聞自由，大學也是學術自由的堡壘，當時全國中國大陸，沒有地方像這裏可以學習中國大陸，有這樣的討論和書籍……**
+
+
+他在1991年首次派駐加拿大駐北京大使館，在發展援助部一駐就是五年，2000年至2004年再次駐京，其後2008年至2011年升任加拿大駐華副使。
+
+### 2000年的中國最開放
+
+「我會說北京的氣氛和人們的交往，好似一個弧形。」南傑瑞伸了手，比劃了一個由升轉跌的上弧形。他說以跟中方及當地人親身交流經驗，2000年是記憶中北京最開放的時期，甚至比2008年北京奧運時更甚。
+
+> **當時北京智庫百家爭鳴，可以討論各種經濟政策、管治政策或司法改革。那個年代，我們提出法律改革的合作計劃。我會說，在我人生經歷中，這是開放的頂點。**
+
+
+近十年大陸又走向封閉，他慨嘆，二十年前外交官走入大學、與律師或普通人討論，今日變得更為困難。
+
+<figure>
+<img src="https://web.archive.org/web/20210919132331im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/中國駐美大使崔天凱-加拿大-南傑瑞Jeff%20Nankivell-20210508212338_26a8_large.jpg" alt="">
+<figcaption>2010年中國外交部慶祝中加建交四十周年，中方出席主禮的是當時的外交部副部長崔天凱。中新網圖片</figcaption>
+</figure>
+
+這種大幅改變或許正在香港上映。
+
+2019年香港經歷反修例示威，然後是北京訂立國安法。南傑瑞說兩者都是任內最深刻的事，一方面示威規模及持久驚人，國安法則根本上改變香港的管治模式。
+
+### 2019年曾多番建議港府對話解困局
+
+南傑瑞強調，2019年時一直呼籲以和平方式進行集會遊行，並公開及當面會見港府官員時，都有提出願意分享加拿大過去處理社會動盪及達至和解的經驗，但最終港府不幸地未充分以對話途徑解決困局。
+
+他形容：「中央政府透過行動，繞過香港人做決定，例如實施國安法、修改選舉制度，重塑香港的制度。我們永遠不會知道，如果選擇了另一條路，會不會有不同的結果。」
+
+<figure>
+<img src="https://web.archive.org/web/20210919132331im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/加拿大-南傑瑞Jeff%20Nankivell-20210508212353_2115_large.jpg" alt="">
+<figcaption>南傑瑞說，香港過去不會列入中加外交議程，現在則是雙方外交關係很重要的一環。黎家威攝</figcaption>
+</figure>
+
+對外國領事館更直接而言，是有持外國國籍的在囚港人自今年1月起被要求「二選一」申報，直接改變香港主權移交以來，外國領事探視權。雖然中國《國籍法》不承認雙重國籍，但中國與加拿大等承認雙重國籍國家的協議都列明領事探視權，即使中國大陸公民持加拿大護照入境一般都獲探視。南傑瑞說，當時有加拿大公民因「二選一」新安排被拒領事探視，領事館方面向有關當局表達意見，但至今也未得到滿意的答覆，只能呼籲在香港的加拿大人申報加拿大國籍，避免不幸被捕無法獲領事探視。
+
+南傑瑞也說，在中方及港府官員溝通中，就一國兩制、人權、香港自治侵蝕的根本性的分歧也較過去數年多。
+
+「很多時候我們提出這些議題，得到的答覆就是強烈不認同，然後說這些是（中國的）內部事務，我們不應該有意見。」
+
+> **我們表達了作為國際社會的一員，國際上我們有責任就侵犯人權發聲，有責任見到國際協議不履行時發聲。我們認為中國對香港一國兩制及港人治港承諾，是理應履行的國際承諾。**
+
+
+### 持續表態悼六四　保留記憶好重要
+
+加拿大早前就新疆問題制裁中國官員，至於加拿大政府有否考慮就香港問題採取制裁，南傑瑞不評論未訂立的政府政策，加拿大並無有關措施。
+
+加拿大駐港澳總領事館歷年也在社交網站表態悼念六四，可是本來「行禮如儀」的六四悼念日益困難。去年支聯會突破封鎖堅持維園悼念，加拿大駐港領事館同日上載一張六四燭光晚會舊照說：「在過去的30年，香港是一個可以讓人們公開集體悼念天安門廣場六四事件的地方。今天，我們與香港人一起悼念這段歷史，及支持人權和民主。」
+
+**南傑瑞說，加拿大持續地全球表達悼念六四訊息，包括在中國大陸及香港，認為要保留記憶非常重要。他又希望，港人可以盡早恢復和平示威，不論議題為何，也不應受約束。**
+
+> **我們明白目前公共衛生措施，限制參與集會的人數，但我們希望這些措施不會任意使用，令港人可像全球其他地方的人享有應有的集會自由。**
+
+
+> **我們希望，香港可以回到這種的情況。**
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210919132331/https://www.hkcnews.com/aboutus/#subscribe)

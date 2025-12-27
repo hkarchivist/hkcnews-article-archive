@@ -1,0 +1,98 @@
+---
+title: "【快必發表煽動文字案】引習近平提「廁所革命」《星島》用「港府六招光復上水」作例　辯方專家：「光時」無單一意思"
+date: "2021-10-19"
+last_updated: "2021-10-19 21:35:07"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "譚得志"
+  - "煽動文字"
+  - "梁曉姿"
+url: "https://web.archive.org/web/20220119235722/https://www.hkcnews.com/article/46668/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46673/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46668/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46673/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【快必發表煽動文字案】引習近平提「廁所革命」《星島》用「港府六招光復上水」作例　辯方專家：「光時」無單一意思
+
+人民力量副主席譚得志「快必」被控發表煽動文字等14罪，案件今（19日）在區域法院續審。辯方語言學專家證人梁曉姿繼續作供，重申「光時」口號並無單一意思；「光復」一詞只概括解作「恢復」，並非只得控方專家劉智鵬所謂「造成原著領土從國家分離出去」的意思。梁引用《星島日報》於2012年一篇關於政府打擊水貨客的報道，以「港府六招打擊水客『光復上水』」為題，但並非指港府要將北區分離出去，僅用來描述政策如何恢復該區秩序；國家主席習近平亦曾提出「廁所革命」，卻不是要推翻政權。
+
+<figure>
+<img src="https://web.archive.org/web/20220119235722im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/譚得志-煽動文字-快必-20210729220757_2982_large.png" alt="">
+<figcaption>譚得志「快必」被控14條控罪，橫跨去年1月至7月、共7個街站及集會。譚得志Facebook直播截圖</figcaption>
+</figure>
+
+控方由主理唐英傑案件、署理副刑事檢控專員（特別職務）周天行代表，辯方由資深大律師蔡維邦、大律師譚俊傑及崔浩泉代表，交由國安法指定法官、區院法官陳廣池審理。辯方專家證人、港大語言學教授梁曉姿今接受控方盤問，就「光復」、「革命」及「光復香港　時代革命」三組字詞作爭議。
+
+### 「光復」
+
+控方說法   
+ 梁曉姿在報告引用8本詞典解釋「光復」一詞，包括「恢復已亡國家」、「收回失去國土」等意思，大部分與劉智鵬的歷史分析一致。
+
+辯方說法   
+ 梁曉姿澄清，8個解釋的唯一共同點是「恢復」，控方忽略其他像「黑暗中重見光」的抽象解釋；「光復」詞義上只有「恢復」的概括意思，「失去國家」只是例子而非定義。
+
+＊＊＊＊＊＊＊
+
+梁曉姿列舉了近代（2012年至2010年間）的例子，周天行特別關注2012年「光復上水」、「光復屯門」等針對內地水貨客事件，又稱本地居民受訪時使用「佔領」、「踩上心口」等字眼。
+
+梁反駁指該些用字為隱喻，「光復」在各種民生議題中靈活運用，包括有關無牌導遊問題的「光復東涌」活動。她強調，若全部情況都套用劉智鵬說法，語意只會與事件格格不入，例如「光復屯門公園」並不等於居民要將公園獨立出去。梁並引用《星島日報》在2012年報導政府打擊水貨客的新政策時，標題為「港府六招打擊水客『光復北區』」，但並非意指港府要將北區分離出去，僅用以描述政策如何恢復該區秩序。
+
+周天行再指出，梁天琦在2016年新東補選提出「光復香港」時是有港獨意思。梁表示不清楚梁天琦心裡想甚麼，但即使他有此主張，亦不代表其他人「3、4年後使用，都係同一語境去考慮」。
+
+<figure>
+<img src="https://web.archive.org/web/20220119235722im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/煽動文字-梁曉姿-20211018194454_1476_large.jpg" alt="">
+<figcaption>辯方專家證人、港大語言學教授梁曉姿。資料圖片</figcaption>
+</figure>
+
+### 「革命」
+
+控方說法   
+ 劉智鵬認為解作「以推翻政權為目的」
+
+辯方說法   
+ 梁曉姿認為基本意思只為「重大改變」，即使放在政治語境亦不一定解作「推翻」，譬如國家主席習近平亦曾提出「廁所革命」，卻不是要推翻政權。
+
+周天行以2014年「雨傘革命」及2016年「魚蛋革命」為例，指事件均演變成不合法的暴動。梁曉姿不爭議事件發展，但重申以她觀察，兩件事都是由西方媒體帶起「革命」一詞，並非示威者「拎住banner話要帶起（革命）」。
+
+周天行另質疑梁曉姿批評劉智鵬報告時，未有先事細閱劉所參考、警方就「光時」口號與暴力事件出現次數的統計，分析並不全面。梁曉姿表示從未收過相關統計文件，但強調她另有參考2019年示威活動的網上片段。以她觀察，「光時」口號也有在和平場合出現；部分暴力事件發生時，「光時」以外口號還有「香港人加油」，亦有出現黑衫、黃頭盔等。梁表示，不同事件同時出現只代表它們「相關」，而非必然有關。
+
+### 
+
+<figure>
+<img src="https://web.archive.org/web/20220119235722im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/煽動文字-劉智鵬-20211019200256_6fbe_large.jpg" alt="">
+<figcaption>控方專家證人、嶺南大學歷史系教授劉智鵬，乘坐控方安排私家車離開。邢穎琦攝</figcaption>
+</figure>
+
+### 官質疑辯方專家引傳媒街訪　「同學」可能是「阿伯」
+
+控方專家證人、嶺南大學歷史系教授劉智鵬早前指出，「光時」的基本主張和意思是「造成原著領土從國家分離出去」，即將香港從中國分裂。梁曉姿庭上重申，「光時」可包含劉智鵬所指意思，但不同意是基本主張，因為口號並無單一清晰意思。她引用《美國之音》的街頭訪問，以佐證「光時」口號在坊間的定義不一，但法官陳廣池質疑受訪者「全名都冇」，為何要倚重坊間人士無法核證的說法。梁回應指現時無法「返去兩年前同佢哋傾計」，重申報告並非依賴單一資料，亦有參考其他社科學者當時的研究。
+
+控方：「劉同學」係邊個、咩情況講，你都唔知。   
+ 梁：如果你認為對新聞專業無信心，覺得佢哋⋯⋯（遭官打斷）   
+ 法官：唔係話新聞從業員水準，係你要有出處，佢有可能係阿伯，唔係同學。   
+ 梁：係Voice of America（美國之音）的報道。   
+ 法官：但你連全名都唔畀我，「劉同學」、「譚同學」，佢話姓譚但可能唔係姓譚，查證唔到，點解仲要用？點解倚重坊間人士說法？   
+ 梁：仲有夾埋其他知名人士一併考慮。   
+ 法官：作為專家、傳媒人士，應該要謹慎處理，連全名都冇，要「譚乜乜」。
+
+<figure>
+<img src="https://web.archive.org/web/20220119235722im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/煽動文字-譚得志-20211019201504_248e_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+梁曉姿另參考中大新聞與傳播學院教授李立峯的研究，重申「光時」口號在2019年的定義並不清晰。周天行質疑梁不了解調查方法，參考並無作用。
+
+控方：（李立峯的研究）牽涉1.2萬多個受訪者，你不知佢哋背景。   
+ 梁：呢個唔係focus group，抽樣調查係唔知（背景）。   
+ 控方：即係你唔知。   
+ 梁：係唔會知。   
+ 控方：佢哋諗咩你點知？   
+ 梁：係佢哋抽樣調查嗰時講。   
+ 控方：點樣抽樣？   
+ 梁：佢報告有寫，我唔係做嗰個，只係引用。
+
+梁曉姿作供完畢。案件押後至12月14日結案陳詞。
+
+本案14條控罪橫跨去年1月至7月、共7個街站及集會，其中8項為發表煽動文字或串謀發表煽動文字；其餘控罪包括在公眾地方作出擾亂秩序、舉行或召集、煽惑他人參與未經批准集結等。
+
+【案件編號：DCCC927、928、930/2020】

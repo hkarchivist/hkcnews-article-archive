@@ -1,0 +1,46 @@
+---
+title: "警方721版本不會成為歷史公論"
+date: "2020-09-02"
+last_updated: "2020-09-02 15:35:19"
+author: "王永平"
+category: "眾說"
+tags:
+  - "鄧炳強"
+  - "721元朗恐襲"
+  - "陳天柱"
+url: "https://web.archive.org/web/20220123094144/https://www.hkcnews.com/article/33517/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33517/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33519/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD721%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警方721版本不會成為歷史公論
+
+香港製作的警匪片享譽全球。劇情描述警黑難分的《無間道》更獲荷李活以重金買下版權重拍，依然取得極高的票房。想不到上星期香港警隊的真人演出，高潮迭起，然後峰迴路轉，由久未露面的警務處長鄧炳強壓軸出場，嘎然煞停。我無意評論整個鋪排的戲劇性，只想集中討論箇中的主題，就是絕大多數港人記憶猶新，亦有少數人不想提起或試圖改變的721元朗白衣人恐怖襲擊，導致不少無辜市民受傷以及產生對警方處理手法充滿疑慮的案件。
+
+時隔13個月，警方突然以涉嫌暴動罪拘捕在721現場被白衣人打至頭破血流的報案人、民主黨立法會議員林卓廷。當市民對警方此舉尚未平伏震驚時，負責此案的高級警司陳天柱昂首出場。這位主角不僅解釋林卓廷被捕原因，而是有備而來（例如播放不問自取的傳媒影片，包括剪裁和放大相片），向在場記者解釋整個721事件的「真相」。陳警司的「真相」包括警隊只花18分鐘到達現場，不是之前他的上級、新界北總區副指揮官曾正科說的39分鐘。更令市民難以置信的是，他稱這宗襲擊案不是由白衣人發動，而是黑衣人與白衣人兩幫人打鬥，「勢均力敵，旗鼓相當」，不存在「白衣人無差別襲擊市民」。
+
+
+{{< video src="https://web.archive.org/web/20220123094144if_/https://www.youtube.com/embed/5tbjploO-BM" >}}
+
+
+陳警司恍如身在現場、繪影繪聲地描述事件（事實是警員在襲擊完結後才到達現場），期間更屢次以質問和反問回應記者的提問。看完他的表演後，我連忙上網找出今年5月監警會發表的專題審視報告，仔細重讀一遍。這份監警會按警方提供的資料撰寫，被特首林鄭月娥高度評價為「真相」的報告，其中一個章節講及721事件。即使是完全接受警方供詞，監警會的結論起碼包括警方在事前沒有對明顯已構成公共安全威脅（甚至收到許多市民報案）的近200名手持藤條和旗杆集結的白衣人採取任何行動。此外，雖然監警會沒有使用「無差別襲擊」這詞，但報告提到：
+
+> **白衣人衝入港鐵車廂，用棍棒、雨傘和木棍襲擊黑衣人以及正在車廂內的立法會議員，車上其他乘客亦遭到襲擊。**
+
+
+<figure>
+<img src="https://web.archive.org/web/20220123094144im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/鄧炳強-721元朗恐襲-陳天柱-20200827213443_1bb7_large.jpg" alt="">
+</figure>
+
+在全城對警方的721版本感到譁然後，警務處長鄧炳強終於出來否定陳警司的「評論」。他也重提警方接受三十多分鐘的延誤是不理想的。幸好鄧處長一錘定音，否則監警會可能要再重新寫一份721真相再現的報告。
+
+**鄧處長說歷史自有公論，這話沒錯。不過，除非政府和警方願意就721以至整個反修例事件成立獨立調查委員會，否則無論隔幾多年或警方做幾多動作，721的歷史真相，不會是警方的版本。**
+
+本文原載於筆者在 [am730專欄](https://web.archive.org/web/20220123094144/https://www.am730.com.hk/column/新聞/警方721版本不會成為歷史公論-233252)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20220123094144im_/https://www.hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

@@ -1,0 +1,56 @@
+---
+title: "今年頭十個月罪案數字上升　鄧炳強發言批評《立場新聞》報道妖魔化智慧監獄　《立場》： 傳媒的責任是監察權力"
+date: "2021-12-03"
+last_updated: "2021-12-04 03:05:34"
+author: "記者郭日朗"
+category: "眾聞"
+tags:
+  - "立場新聞"
+  - "立場"
+  - "stand news"
+  - "the stand news"
+  - "懲教署"
+  - "鄧炳強"
+url: "https://web.archive.org/web/20220117153600/https://hkcnews.com/article/48544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48552/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48552/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 今年頭十個月罪案數字上升　鄧炳強發言批評《立場新聞》報道妖魔化智慧監獄　《立場》： 傳媒的責任是監察權力
+
+保安局局長鄧炳強今日（3日）在撲滅罪行委員會會議後會見傳媒，交代今年一月至十月期間整體罪案情況後，在開場發言中特別提及幾個事項，除了近期受關注的大麻二酚（CBD）、選舉保安及野豬問題外，亦特別點名批評《立場新聞》，指其早前有關大潭峽懲教所智慧監獄的報道偏頗、誤導，是在「妖魔化一些好事」， 並稱任何人或組織，無論用媒體或非政府組織包裝，只要是違法，想危害國家安全，必定會尋找證據證明其犯法。但對於是否已掌握《立場新聞》犯罪證據展開調查，鄧炳強卻表示不就個別案件回應，並稱有關警告不是級特定的人，是給所有組織及個人。
+
+[《立場新聞》編輯部回應](https://web.archive.org/web/20220117153600/https://www.facebook.com/standnewshk/photos/a.720050934747196/4804238772995038/) 指，有關報道刊出前，曾尋求懲教署回應，懲教署指不就個別個案作出評論，亦重申：「傳媒的責任是監察權力，並呈現社會各界持份者的意見，包括弱勢社群聲音。我們深信，唯有充分的言論及新聞自由，讓多元的觀點互相交流交鋒，方有助社會進步，長治久安。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117153600im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/懲教署-stand%20news-鄧炳強-20211203220839_28de_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+《立場新聞》於上月中，一連三集以「智慧監獄實驗記」，報道大潭峽懲教所被羈留人士的情況。報道中提到，耗時四個月採訪18名大潭峽懲教所的羈留者，絕大部份轉移自青山灣入境事務中心，其中逾十人於該院所曾遭單獨囚禁，並指該院所以高科技監控羈留者。懲教署早前 [發表聲明](https://web.archive.org/web/20220117153600/https://www.info.gov.hk/gia/general/202111/25/P2021112500235.htm) 譴責《立場新聞》，鄧炳強今日再度點名批評有關報道偏頗、誤導，是在「妖魔化一些好事」。
+
+鄧炳強反駁指，免遣返聲請人士當中，有干犯嚴重罪行的才會被羈留在大潭峽懲教所。他強調該院所不是難民營，「不是大家可以見到一家大細煮飯食嘅難民營」，亦不是更生院所，而是「扣留住佢，盡快將佢哋掟走」。他並指出，智慧監獄所有的設施，都是為了更方便管理羈留人士，其中閉路電視設有人工智能，目標是為了監察有否人群聚集、打架暴力行為及有人在飯堂倒地不起等，目的亦是為了在囚人士的安全，而不是《立場新聞》所說要監控羈留人士。
+
+對於報道將智慧手帶描繪成戴至手部潰爛，他指該類手帶與日常的運動手錶一樣，其作用主要是協助懲教人員了解被羈留者的身體狀況，生命跡象會否突然有異樣，亦便利其在院所內的生活，例如打電話、使用儲物櫃等服務。他同時指責有人污名化智慧監獄的設施，指將羈留人士當成白老鼠。他解釋，選擇大潭峽懲教所是因為懲教所剛剛裝修完畢，能夠更有效率地設置智慧監獄的設備。
+
+期間，他再度提及《立場新聞》不是第一次發布偏頗及誤導的報道，重提該網於上月11日有關中大衝突事件，指其引述幾位匿名人士說當時目睹警方如何攻入中大， [警方事後亦發聲明](https://web.archive.org/web/20220117153600/https://www.facebook.com/hkcnews/photos/a.384058221937593/1584230878586982/) 指出有關報道與事實不符之處。鄧炳強解釋，警方當時是守衛着二號橋，從來沒有入過中大。他指有關報道與事實不符，亦在美化暴力行為。
+
+<figure>
+<img src="https://web.archive.org/web/20220117153600im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/立場新聞-鄧炳強-20211203214010_5d29_large.jpg" alt="">
+<figcaption>保安局局長鄧炳強批評《立場新聞》妖魔化智慧監獄，並警告任何人或組織只要想違法、危害國家安全，當局一定會尋找證據證明其犯法。黎家威攝</figcaption>
+</figure>
+
+鄧炳強最後亦警告，任何人或組織，只要想違法、想危害國家安全，當局一定會去找證據證明，「任何犯咗法嘅人，我哋都會搵證據，今日搵唔夠，聽日搵，聽日搵唔夠，後日搵，只要你係犯法，我哋就會搵到證據，證明你犯法。」
+
+被問及局方有否掌握了《立場新聞》的犯罪證據，該媒體的情況會否與《蘋果日報》相似，鄧炳強表示不就個別案件回應，並數度強調有關最後的警告說話，不是給特定的人，而是給所有組織及個人。
+
+面對鄧炳強的點名批評，《立場新聞》編輯部在其Facebook專頁公開回應指，有關報道刊出前，曾尋求懲教署回應，懲教署指不就個別個案作出評論，報道中亦有刊載部門說法，編輯部亦重申，「堅持報道真相，傳媒的責任是監察權力，並呈現社會各界持份者的意見，包括弱勢社群聲音。我們深信，唯有充分的言論及新聞自由，讓多元的觀點互相交流交鋒，方有助社會進步，長治久安。」
+
+此外，鄧炳強亦有主動提及近日的野豬問題，他指野豬襲擊香港市民的情況不斷惡化，2020年只有3宗野豬襲擊事件，但今年截至11月已有18宗野豬襲擊人類事件，並指過去十年間，已有54名被野豬襲擊的傷者，當中包括8名長者和2名兒童。他亦特別提到一名婦人及一名執法人員受到野豬襲擊，傷勢亦十分嚴重。所以近日才會有相關行動移除對香港市民的危險。
+
+鄧炳強指，野豬在山上生活是沒有問題的，但牠們不是寵物，「佢地唔係嗰啲睇卡通片好可愛嘅小肥豬」，而野豬一到市區就會襲擊人類，亦會傳播疾病。他更提到在電台聽到有愛護野豬人士意見，要把野豬納入城市規劃，他自稝不是城市規劃專家，但身為一個在香港生活50年的人，質疑為何要把對香港市民構成危險的動物納入城市規劃，並反駁指，「我係咪要將老鼠都納入城市規劃入邊呢？」
+
+至於是否支持漁護署把野豬人道毁滅，他表示對漁護署相關行動表示支持，認為這是為香港市民移除危險，但他否認保安局在漁護署有關行動中存在角色。
+
+鄧炳強今日在記者會上交代了今年一月至十月的整體罪案情況，整體罪案數字為53,340宗，上升0.9%。有關上升的罪行主要是詐騙案，15,636宗，較去年同期上升21%。鄧炳強指，接近七成的詐騙案都和網上騙案有關。另外，涉及大麻的案件有348宗，較去年同期上升148宗，增幅達74%，被捕人數為484人，較去年同期上升接近一倍。至於一些嚴重罪行則有所下跌，行劫今年頭十個月有105宗，下跌了137宗。
+
+他指出，大麻二酚（CBD）暫未被列入為毒品，但近期有很多宣稱只含CBD的物品，其實含有四氫大麻酚（THC），即是含有毒品，故當局早前展開拘捕行動，並檢獲相關物品。另外，有記者關注虛假訊息的立法，鄧炳強表示相關法例會由民政事務局研究，保安局全力協助，並稱可能會從行政或立法處理相關事件，但現時只在研究階段，會參考外國的假新聞法。

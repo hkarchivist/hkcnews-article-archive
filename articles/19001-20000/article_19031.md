@@ -1,0 +1,131 @@
+---
+title: "寫出香港現況？你自己去詮釋——潘源良"
+date: "2019-03-17"
+last_updated: "2019-03-17 10:19:31"
+author: "陳零"
+category: "眾說"
+tags:
+  - "廣東話"
+  - "粵語"
+  - "cantonese"
+  - "潘源良"
+  - "填詞"
+url: "https://web.archive.org/web/20220119035758/https://www.hkcnews.com/article/19031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19129/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19031/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19129/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 寫出香港現況？你自己去詮釋——潘源良
+
+當電影《十年》談到只懂廣東話的士司機被邊緣化，當小學生在校內說廣東話要罰抄，當「撐廣東話」成為網絡關鍵字 …… 跨世代填詞人潘源良對以廣東話為演出主題如是說：「創作不一定懷有目的，主題是觀眾會關心的，與他們『click到』（溝通），引發出感受，那樣才會有趣；與觀眾的關係往往是建基於此。」一代名填詞人哪會自評作品？說是出世入世，皆不置可否，唯一答得肯定是：「先預備好自己。」順勢而為，機會來到，就交出最好的自己，那是一個境界。
+
+<figure>
+<img src="https://web.archive.org/web/20220119035758im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/潘源良-填詞-20190312175626_735a_large.jpg" alt="">
+<figcaption>潘源良不愛直白，能做的，就去做。謝騰峰攝</figcaption>
+</figure>
+
+### 創作人的崗位就是創作
+
+潘源良第二首填詞 **［註1］** 的 《邁步向前》是港產片《英倫琵琶》主題曲，由林子祥主唱，人紅歌紅，他算是贏在起跑線。再說，上世紀80及90年代是廣東歌的黃金時代，他亦可謂適逢其會，經典作品數之不盡，雖然讓人馬上想起的都是情歌 — 林子祥《最愛是誰》(1986)、王傑《誰明浪子心》(1989)、蘇芮 《憑著愛》（1989）、王菲《容易受傷的女人》(1992)。
+
+以為他只顧情情塔塔，他1988年為達明一派寫下 《你還愛我嗎？》、《沒有張揚的命案》和《今天應該很高興》、《同黨》，然後於1989年再向達明一派交出《十個救火的少年》。當《你還愛我嗎？》看來像首淺白的情歌，有人解說為質問中英雙方對香港的愛；《今天應該很高興》寫當年的移民潮；《十個救火的少年》寫隔岸觀火的心態，戴耀廷更曾於2017年撰文以「救火」喻作參與香港的民主運動。
+
+> **十個決定去救火的少年**   
+ **來到這段落只得七勇士集合在橋邊**   
+ **為了決定去救火的主見**   
+ **其中三位竟終於反了臉**   
+ **謾罵著離開 這生不願見**
+
+
+> **尚有共四個穩健成員**   
+ **又有個願說卻不肯向前**   
+ **在理論裡 沒法滅火跟煙**   
+ **被撇下了這三位成員**   
+ **沒法去令這猛火不再燃**   
+ **瞬息之間 葬身於這巨變**
+
+
+
+{{< video src="https://web.archive.org/web/20220119035758if_/https://www.youtube.com/embed/ALMEyL94738" >}}
+
+
+潘源良於1981年中文大學新聞系畢業，但他原本是修讀歷史的，是在第二年轉系。「中學喜歡讀歷史，所以（大學）選修這科；後來轉讀新聞系，是因為今天的新聞，會是未來的歷史，覺得很有興趣。」大學期間，他曾跟隨無綫電視新聞部主管梁天偉實習，畢業後擔任外電翻譯員。
+
+沒跑過新聞嗎？「都跑過兩年。」以為他是那種熱血新聞記者？又不盡是。「發覺自己喜歡創作，那你不會創作新聞呀，而且想學多些，所以轉職麗的電視（亞洲電視前身）當助導。」他說本身更熱愛製作：「尤其是把創作的想法，變成實體。」其後，他轉投香港電台當助導及編劇，隨後加入新藝城任編劇，並參與電影《英倫琵琶》的劇本創作，當時就主動向監製泰迪羅賓及主角林子祥自薦填寫主題曲《邁步向前》的歌詞。
+
+隨後的黃金時代，他每年數十首作品中，雖以情歌為主，但亦有個別作品如《十個救火的少年》所呈現的社會意識和批判。他笑著說：「那只是你們的發現。我是在做自己，我的經歷、取向，大家要怎樣理解，我不會知道；就如廚師出品，出完雞、出牛，食客怎樣去品評，不是廚師可以決定，也不代表他的想法。」他強調創作人的崗位就是創作，作品的詮釋留給大家：「我不是有使命感，要去改變世界，改變香港。」
+
+<figure>
+<img src="https://web.archive.org/web/20220119035758im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/填詞-潘源良-20190312175552_133e_large.jpg" alt="">
+<figcaption>《生炒廣東話之有辣有唔辣》音樂會唱盡香港現況。受訪者提供</figcaption>
+</figure>
+
+### **創作信息 　自行接收**
+
+他跟大家一樣，每天都與社會連繫，但所謂的社會意識，卻不是自發去思考：「香港這麼細小的一個地方，很多事情在短時間內密集地出現，這個是長期的特點。」在近期《生炒廣東話之有辣有唔辣》音樂會中的《香港製造》，談到的大白象工程、普選、DQ、官商鄉黑、住院、細路學普通話、英文等，都是在這狀況下誕生。
+
+> **今年又嚟區選　大家鍊過先**   
+ **當年話明普選　普選去咗邊**   
+ **擺明係唔俾面　開會瞌覺先**   
+ **選完又嚟 DQ　點可以避免**   
+ **泛民又告急　急急一票淚中獻**   
+ **突然又到建制急　急啲乜野先**   
+ **選完又嚟補選　到底咁算點**   
+ **幾時實行普選　四七都怕未見**
+
+
+
+{{< video src="https://web.archive.org/web/20220119035758if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FCantoNightmare%2Fvideos%2F379991995891792%2F&show_text=0&width=560" >}}
+
+
+「我不是目標為本，只覺得（生炒廣東話）未有人試過，創作上很吸引，創意得以發揮，觀眾可以跟我們有溝通。」他沒有旗幟分明大談音樂會的信息：「不是為了要標明立場，而是如果那個創作有信息，就應當在創作中接收；當然你接收到的，又未必是我的想法，因為中間有許多變化，但並不重要，傳播就是有這麼多變化和可能性。」他以交響樂演出為喻，指揮和樂團本來就不是這樣演奏，但引發觀眾的意念，接觸到不同的層次，「是你自己去演繹，令其言之成理，那與我無關。」
+
+他自言對集體行動甚有保留，覺得跟自己格格不入，所以不僅沒有直接參與社會運動，平日即使對去看演唱會亦會卻步，但他深信各人在自己崗位可以發揮力量：「我不喜歡直白，如其說出來，不如實際去做一件事；做了不用說，說了做不到，不如不要說。有意義，就去做。」
+
+可有擔心創作空間收窄？「未發生的，不能過於擔心；發生了，再去想怎樣處理。現階段，網上或演出上，可以表達，就去做。你怎能預知明天的香港會怎樣？不由得你去擔心。」他說了兩次「塞翁失馬焉知非福，塞翁得馬焉知非禍」：「先做好本份，先關心可以關心身邊的人，再談其他。」
+
+<figure>
+<img src="https://web.archive.org/web/20220119035758im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/填詞-潘源良-20190312175716_208a_large.jpg" alt="">
+<figcaption>潘源良形容《生炒廣東話之有辣有唔辣》音樂會未有人做過，覺得很有趣，所以落實籌辦。受訪者提供</figcaption>
+</figure>
+
+### **我得到是一半 　你得到亦一半**
+
+潘源良去年9月再婚，太太 Rita 也是創作人。問他兩個創作人走在一起，可會更有創作力量，他笑著說不會理性分析箇中化學作用，但「開心是事實，現在很幸福。」
+
+倒是Rita吐露了「小秘密」：「我不知道他是識笑的，也不知道他可以這樣開心。」她說認識的他，一直性格寡言、冷靜：「結婚當晚，以為他是很冷靜地答謝賓客；見他笑得那麼開心，是自己意料之外的。」開心也在生活中散發：「以前他很沉默，未必會表達自己，現在他很願意交流想法。」在《生炒廣東話之有辣有唔辣》創作過程，Rita 偶然在車上哼了一句歌，卻又觸發他的創作，「都很隨意，有趣，不是大家約出來，談怎樣寫、怎樣改那種。」
+
+長居加拿大的 Rita 說，這次音樂會更大意義是，讓他們遇上很多愛錫香港的人：「他們不一定是名人，但都很熱心付出的，例如教師要給學生灌輸正確的價值觀，去建設這個社會；我們 (對香港的未來) 又不是那麼悲觀。」
+
+2017年，潘源良以筆名「袁兩半」填寫《緣・兩半》（Gin Lee 主唱），據知在二人婚禮亦有播放：
+
+
+{{< video src="https://web.archive.org/web/20220119035758if_/https://www.youtube.com/embed/emVhQgTwji4" >}}
+
+
+> **各自走過半段路　就似半首歌**   
+ **今天心聲說出了　才找到你我**   
+ **誰能解釋心底　萬語千言**   
+ **回頭那怕愛意　尚藏懸念**   
+ **情路在轉動時　自然兜圈**   
+ **圓或正是緣**   
+ **明明只差一點　再不牽連**   
+ **然而這晚再見　又同懷念**   
+ **才明白每份緣　自成兩段**   
+ **我得到是一半　你得到亦一半**   
+ **愛是緣全**
+
+
+<figure>
+<img src="https://web.archive.org/web/20220119035758im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/03/填詞-潘源良-20190312175655_1ab2_large.jpg" alt="">
+<figcaption>Rita說跟潘源良很有默契，就連喜歡的顔色本來就相近。謝騰峰攝</figcaption>
+</figure>
+
+**註1：** 潘源良第一首發表的填詞作品是港台節目《溫馨集》主題曲《濁世暖流清》，由雷安娜主唱。潘源良形容，當時港台節目收視平平，主題曲不算流行，所以沒有「一炮而紅」。
+
+---
+
+![博客 | 陳零](https://web.archive.org/web/20220119035758im_/https://www.hkcnews.com/uploads/avatars/da99a5d6-72e3-4ac8-beea-53aaf684512c.png?413514422)
+
+**博客 | 陳零**
+
+【陳零．由零開始】曾職財經日報，現為中英媒體一點 (http://little-a-little.com) 記者。

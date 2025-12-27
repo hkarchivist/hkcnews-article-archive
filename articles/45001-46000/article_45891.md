@@ -1,0 +1,46 @@
+---
+title: "年輕地盤工涉暴動開審　警員供詞寫漏自言「我唔專業囉咁」　「有分重要唔重要㗎咩」"
+date: "2021-09-27"
+last_updated: "2021-09-27 23:38:56"
+author: "記者袁楚楚"
+category: "眾聞"
+tags:
+  - "暴動罪"
+url: "https://web.archive.org/web/20211203013613/https://hkcnews.com/article/45891/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45893/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45891/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45893/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 年輕地盤工涉暴動開審　警員供詞寫漏自言「我唔專業囉咁」　「有分重要唔重要㗎咩」
+
+前年11月中市民持續發動「三罷」堵路示威，發展成理大激烈衝突，其間多人被捕。年輕地盤男工被指在旺角蒙面參與暴動，案件今日於區域法院開審。拘捕被告的警員出庭作供，被質疑書面口供與庭上口供不一時，屢次回應自己書面口供「寫漏又寫錯」，更自言「我唔專業囉咁」，「寫漏咗有分重要唔重要㗎咩？」
+
+<figure>
+<img src="https://web.archive.org/web/20211203013613im_/https://hkcnews.com/news_新聞/hk-discuss/2021/06/區域法院-20210607141022_1d49_large.jpg" alt="">
+<figcaption>案件在區域法院審理。（資料圖片）</figcaption>
+</figure>
+
+24歲地盤工人葉家明否認暴動及非法集結時使用蒙面物品兩罪。控罪指他於2019年11月16日，在旺角彌敦道與山東街交界參與暴動，並使用相當可能阻止識辨身份的蒙面物品，即一個口罩。案件由暫委法官李志豪審理。
+
+主控開案陳詞指，前年11月16日凌晨時分，約70名示威者在山東街及彌敦道交界附近集結，有人用雷射筆向警方照射，部分路段亦有磚陣，車輛無法行駛。警方與示威者對峙，多次發出警告，有人向警方投擲磚塊，亦有人投擲一枚汽油彈，警方開始掃蕩。
+
+警員12568與隊員到達旺角滙豐銀行中心時，約30名大部份穿深色衫、戴防毒面罩的人士迎面跑來。他看見首被告走在人群最前，突然轉身跨過馬路中央的分隔欄，向西洋菜街南跑去。警員12568與警長2084亦跨欄追截首被告，在銀行中心將他截停制服。當時首被告穿黑衫黑褲白鞋，戴黑色帽、藍色口罩，在警誡下表示：「我無嘢講。」
+
+### 警員稱拘捕時間由警長告知  警長則稱供詞未提及
+
+負責拘捕被告的警員12568 溫定康（譯音）接受辯方盤問。他本年3月為案件補錄口供，提到當日2時39分在車上候命，2時44分收到通知落車掃蕩。不過，他在庭上改稱2時39分應是在車上作出警告；另提到2時44分制服被告，稱此時間由一同制服被告的警長2084告訴他。
+
+辯方大律師多次質疑，溫的補充口供中的時間與庭上出入有差異，而兩份書面供詞均沒提及制服被告的時間，如此重要的資料直至庭上才提出，「唔通你特登補充啲錯嘅資料？」溫則回應稱「我寫錯」、「唔好意思，我寫錯咗」、「我唔專業囉咁」、「我寫錯咗囉，我答咗你喇」、「你唔使再問，你繼續啦」。溫隨後更直認自己口供「寫漏又寫錯」，更稱：「寫漏咗有分重要唔重要㗎咩？」
+
+至於警長2084李俊傑（譯音）作供時，則稱自己的供詞從沒有提及過2點44分這個時間。他供稱有份追捕被告，並率先從後制服被告。
+
+控方案情完結，辯方明日將作中段陳詞。審訊明續。
+
+【案件編號：DCCC 539/20】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203013613/https://hkcnews.com/aboutus/#subscribe)

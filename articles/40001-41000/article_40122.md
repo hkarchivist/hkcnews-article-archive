@@ -1,0 +1,45 @@
+---
+title: "石不能言"
+date: "2021-04-09"
+last_updated: "2021-04-18 15:00:24"
+author: "香港地貌岩石保育協會"
+category: "眾說"
+tags:
+  - "塞拉利昂"
+  - "塞拉利昂共和國"
+  - "獅子山共和國"
+  - "獅子山"
+  - "香港地貌岩石保育協會"
+  - "地貌岩石"
+url: "https://web.archive.org/web/20210926190645/https://hkcnews.com/article/40122/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40402/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/40122/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40402/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 石不能言
+
+「花如解語還多事，石不能言最可人。」這兩句詩，乃出自南宋著名詩人陸遊之《閒居自述》。 陸遊以花和石作比喻，花能解語或會使人煩惱；不若恬靜的石頭，雖然不言不語，若能和它心領神會，那對它訴說心事，也不怕秘密被洩露。全詩表達了詩人生活的寫意，我們若能抽閒欣賞在大自然或城市的岩石，就會發現當中樂趣！
+
+石雖不能言，卻以不同的特徵、物質、顏色、形態及它們所處的環境向你細說它們上幾百萬至數十億年數不盡、說不完的經歷和故事。它是所有生態系統之本；影響了人類聚居和發展；人們利用各種不同的岩石，改變了我們的生活。以香港為例，香港的岩石就為大家寫下約四億年蒼海桑田的故事；本會的標誌獅子山，亦訴說幾許變遷！
+
+<figure>
+<img src="https://web.archive.org/web/20210926190645im_/https://hkcnews.com/news_新聞/hk-discuss/2021/04/地貌岩石-香港地貌岩石保育協會-20210409020035_1748_large.jpg" alt="">
+<figcaption>獅子山相片：香港地貌岩石保育協會提供</figcaption>
+</figure>
+
+雖然香港管轄總面積只有2,755.03 平方公里（其中陸地1,105.6平方公里，水域面積1,650.64平方公里），但地質多樣，亦擁有珍貴的地質遺址。本會希望在這專欄「代石發聲」，給大家述說石頭的故事。除了科普知識，也希望以不同角度為大家介紹與石頭相關的、有趣的資訊，使大家認識與我們息息相關的地貌岩石；也希望能藉着這平台，讓公眾更加了解、欣賞香港地質多樣性和保育地貌岩石的重要性。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210926190645/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 香港地貌岩石保育協會](https://web.archive.org/web/20210926190645im_/https://hkcnews.com/uploads/avatars/4d3ec196-0084-4ffc-bf27-cfdf12f7a2c9.png?1230109561)
+
+**博客 | 香港地貌岩石保育協會**
+
+【香港地貌岩石保育協會・石不能言】香港地貌岩石保育協會是一慈善機構，成員全屬義務性質。香港地質多樣並擁有珍貴的地質遺址，協會的使命是保護香港的地貌岩石；普及地球科學知識；促進可持續地質及生態旅遊，讓香港成為一個更美好的居所。協會工作包括舉辦研討會、地質導賞、推廣活動及出版刊物宣傳地質保育、監察發展及工程項目，以免破壞珍貴的地質遺跡；並與政府及保育團體合作保育香港地貌岩石。

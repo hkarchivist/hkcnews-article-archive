@@ -1,0 +1,81 @@
+---
+title: "容不下一朶小白花的城市　市民由日至夜到崇光門口：悼念沒犯法"
+date: "2021-07-02"
+last_updated: "2021-07-02 22:43:22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "警員被刺傷"
+  - "2021七一"
+  - "刺警男子"
+url: "https://web.archive.org/web/20211127231805/https://hkcnews.com/article/43008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43008/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2021%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43021/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 容不下一朶小白花的城市　市民由日至夜到崇光門口：悼念沒犯法
+
+這年七一，再沒遊行也沒街站的銅鑼灣，卻留下血的回憶。昨日（1日）一名警員被中年男子在崇光百貨門外以刀刺傷，男子其後亦自插胸口，送院不治。
+
+事發翌日，不少市民自發到現場悼念，放置白花哀悼死者。不過有別於兩年前市民到太古廣場為梁凌杰獻花，警方今日態度顯然強硬得多。市民放置的白花被警收走或丟棄，有人手持鮮花即被截停及搜查身份證，更有人遭警以違反限聚令而票控。
+
+容不下燭光，也容不下白花，崇光門外由早到晚，有人默站流淚，有人相擁嚎哭，城內容得下的聲音，可會只剩連綿不絕的哭聲？
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702185815_5877_large.jpg" alt="">
+<figcaption>一對好姐妹在事發地點相擁，互相支持。她們指昨夜心情難以平復，因此今早對方一句「出來」，二人都放下工作到銅鑼灣悼念。黃子榮攝</figcaption>
+</figure>
+
+多名市民這天特地來到崇光門外，以不同方法悼念。有市民表示，昨日看到新聞後，感覺「心噏」和難過，特地前來悼念。
+
+年輕男子L.S（化名）今早帶同印有「Free Hug」和「風雨中相擁」的紙牌到SOGO門外默站，冀為市民送上擁抱，一度被警方截查和驅趕。多名市民上前和他擁抱，亦有市民送上清水或消暑物資，互相勉勵。L.S表示︰「佢哋支持緊嘅係香港人，唔係我，我只係代表一個好細嘅聲音，想同大家講我哋仲喺度。」
+
+現時就讀大學的梁先生穿着黑衣、拿着政治哲學的書本，坐在銅鑼灣鬧市，用另一種方式表達悼念，成為一幅獨特的風景。梁先生說，希望藉此鼓勵港人多點思考︰「港人要（改變）現狀，唔好盲目去接受人哋俾你嘅嘢，要多啲思考」。
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702185624_2d15_large.jpg" alt="">
+<figcaption>李小姐接受訪問期間難掩悲傷情緒，一度哽咽。黃子榮攝</figcaption>
+</figure>
+
+手持白花的李小姐表示，對於死者的離去深感難過，接受訪問期間難掩悲傷，一度哽咽。她沒有將白花放在地上，免被警方控以亂拋垃圾罪名，但形容自己身處現場後，能感受死者當時那份絕望情緒，認為死者為了香港人而犧牲自己。市民Tet先後兩次被警方截查及登記身分證，她表示：「我只是想拜祭死者，昨夜看到死訊後徹夜難眠，若這麼基本都不能夠接受，不要再說甚麼言論自由，但希望香港人能夠堅持下去。」
+
+沙田區議會趙柱幫認為，有警察收走白花、將白花掉入垃圾桶的行為不近人情，又指保安局局長鄧炳強昨形容事件為恐襲，是只站在道德高地，沒有尊重死者。
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702185654_2bbb_large.jpg" alt="">
+<figcaption>市民Tet兩度被警方截查。黃子榮攝</figcaption>
+</figure>
+
+越來越多市民下午手持白花前來銅鑼灣悼念，不少拿著白花的市民都被警察截查及搜身。拿著小束白菊花的歐小姐，獨自在SOGO門口哭了近十分鐘，不相識的市民紛紛上前安慰及送上紙巾。她表示沒有理由感到害怕：「簡單悼念為甚麼要感到害怕，盡做。」上班族林小姐則認為：「我不能因為恐懼而不去做我想做的事情，況且悼念又沒有犯法。」
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702185933_7663_large.jpg" alt="">
+<figcaption>林小姐認為：「我不能因為恐懼而不去做我想做的事情，況且悼念又沒有犯法。」黃子榮攝</figcaption>
+</figure>
+
+住在屯門的中學生仇同學，放學後獨自帶上白色小菊花到場，一度被警員截查。他說，與香港人建立了深厚感情，香港是他的家，盼港人不要忘記死者。
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702192730_1cd0_large.jpg" alt="">
+<figcaption>仇同學說，香港是他的家，盼港人不要忘記死者。黃子榮攝</figcaption>
+</figure>
+
+陳女士帶着5歲小女兒各拿一束白花，到崇光百貨門外鞠躬，但到場後隨即一同遭警員帶進橙帶內截查，並被警告禁止聚集。二人事後獲准離開，但據現場了解，女童及其母親被警方以違反限聚令發告票。
+
+<figure>
+<img src="https://web.archive.org/web/20211127231805im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/刺警男子-20210702200813_1bec_large.jpg" alt="">
+<figcaption>女童及其母親被警方以違反限聚令發告票。鄭嘉晴攝</figcaption>
+</figure>
+
+傍晚時分，有市民繼續身穿黑衣及持花悼念，大量身穿戰術背心的警員圍封並截查市民。一名黑衣女士持菊花到場，被警圍封在橙帶內，期間情緒激動跪地，之後激動嚎哭大喊︰「我究竟做錯了什麼？」情緒雖未平伏，只能淚流披面帶著花束離開。
+
+
+{{< video src="https://web.archive.org/web/20211127231805if_/https://www.youtube.com/embed/qtFeQ9XUGTI" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211127231805/https://hkcnews.com/aboutus/#subscribe)

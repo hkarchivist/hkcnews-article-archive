@@ -1,0 +1,131 @@
+---
+title: "何以這恐懼抹不走"
+date: "2020-03-28"
+last_updated: "2020-03-28 22:41:56"
+author: "讀者來論"
+category: "眾說"
+tags:
+  - "勇武抗爭"
+url: "https://web.archive.org/web/20211203010609/https://hkcnews.com/article/28353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28355/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/28353/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-28355/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 何以這恐懼抹不走
+
+【翻譯：挪威讀者】
+
+**譯者自我簡介：平民，仍有良知。本篇文章是挪威一本基督教雜誌Korsets Seier三月頭的專訪。今年二月下旬至三月上旬期間，民主黨、公民黨，香港眾志和前線抗爭者組團到北歐三國進行游說。他們在挪威參與國會聽證會、游說及爭取不同組織的支持，期間接受了此基督教媒體的訪問。**
+
+**原文標題：Jeg er alltid redd（何以這恐懼抹不走）**   
+ **記者：Karl Andreas Jahr**   
+ **受訪者：29歲的大衛既是香港教會領袖，同時是一位前線抗爭者，他到挪威爭取國際支持（香港的人權及民主）。**
+
+<figure>
+<img src="https://web.archive.org/web/20211203010609im_/https://hkcnews.com/news_新聞/hk-discuss/2020/03/國會聽證會-挪威-反送中-20200328205148_2846_large.jpg" alt="">
+<figcaption>Korsets Seier封面</figcaption>
+</figure>
+
+**你認為現正訪問挪威的香港抗爭運動代表團成員中有教會領袖是理所當然的事。為什麼？**   
+   
+ 因為教會，至少部份教會人士，在去年夏天反修例運動中扮演了重要角色。   
+   
+ **什麼角色？**   
+   
+ 起初政府仍然尊重舉行宗教集會無需申請的法例。在同時6月12號的凌晨，抗爭集會的基督徒在街上通宵持續唱讚美詩以維持集會，去守護其他集會民眾不被驅散。在6月12號日間，教牧們在警察與群眾中間手牽手組成人鏈，把他們分開以避免衝突。另外教會也開放供人休息，提供避難所及糧水，因為法例亦曾經能夠防止警察隨意進入宗教建築物搜查。   
+   
+ **你説「曾經能夠防止」，所指的是什麼？**
+
+政府及警方現在已不介意違反法規。訪問團中有人告訴我，「現在教會也無能為力。」很不幸，她所言不差。   
+   
+ **即是教會現在已沒有辦法做些什麼？**   
+   
+ 事實上教會內部已經嚴重分歧。在內爭議不休，在外也畧有火花。   
+   
+ **有一半人支持修例？**   
+   
+ 許多人默不作聲。他們不能、不會、不敢發聲，或不信修例所帶來的負面影響。   
+   
+ **教會內意見分歧的原因是什麼？**   
+   
+ 大教會要顧全的是比小教會多很多，一般都趨向與政府及中國妥協，因為他們害怕影響內地宣教工作、怕被列入黑名單。所以，非常明顯地，投身運動的人以年輕人居多。   
+   
+ **為什麼？**   
+   
+ 也許年輕人真的比較無懼，也沒有那麼多包袱及顧慮？另一方面，年長的信徒相當虔誠，又認為當權者是正確的，所以他們以為青年人都在搞事，又認為耶穌不沾政治、不會抗爭，而且保羅也教導我們要順服掌權者。我覺得這是相當荒謬的。   
+   
+ **耶穌會出來抗議嗎？**   
+   
+ 若有人在面對不公義時仍然迎難而上的話，那非耶穌莫屬：在同胞當中、或在羅馬人面前，都一樣。掌權者以制度行惡，違反神的心意時，我們必須堅持跟從神。美國黑人起來反抗，不作奴隸難道是錯的嗎？甘地以非暴力抗爭（帶領印度）脫離英國統治，難道是違背聖經的麼？   
+   
+ **有人認為你們並不是非暴力抗爭。**   
+   
+ 在自己教會也有人這樣批評我們。他們只想討論耶穌會怎樣做，恍惚是神學理論的假設性問題。但事實上我們卻親身陷於水深火熱，是個切身處地的應變問題。況且，事實上香港抗爭者人真的沒有什麼暴力，衝擊與殺害根本不能相提並論。   
+   
+ **你驚嗎？**
+
+驚，每次都好驚。初嘗催淚氣體的時候好突然，估不到是如此強烈、甚至不能呼吸，需要離開人群恢復。但我們會堅持下去絕不放棄，一旦放棄就會失去自由。身為基督徒在捍衛真理、團結、自由、公義等事上是責無旁貸的。   
+   
+ **你相信香港仍有自由嗎？**   
+   
+ 相信。我必須選擇去相信仍有盼望，因為我是教會領袖。   
+   
+ **你是什麼教會的領袖？**   
+   
+ 我是一間保守教會的執事，這可能是最恰當的描述，亦是青少年的導師。   
+   
+ **有沒有帶領他們出去抗議？**   
+   
+ 我有與他們一起去示威。教會內也有不少爭議。我們與其他教會一樣：分裂。   
+   
+ **為什麼要帶他們出去？**   
+   
+ 其實是他們主動要出去的，他們認為生於亂世有種責任，我無法剝削或否定他們。   
+   
+ **你有慫恿他們嗎？**   
+   
+ 我會將自己的觀點告訴他們，並且盡力以身作則。   
+   
+ **基督徒在不同的地方都有不同的角色及影響力，例如中國、南韓、日本等，香港人又怎樣看他們？**   
+   
+ 我的父母不是基督徒，不過他們認為基督徒是誠實可靠的人，也關心弱勢。可惜，我認為近年來基督教已經聲譽不保。衣冠楚楚、沒有生命、養尊處優的教會領袖，以道德立場發表政見，令人反感。   
+   
+ **但過去一年基督徒的參與可能挽回不少聲譽吧？**   
+   
+ 也是，大部份人觀感是改善了。但也有教會讓抗爭者進去，然後報警，很難一概而論。
+
+**如果中國全面接管，基督徒會擔心嗎？**   
+   
+ 一定會。我不明白為什麼仍有基督徒能夠說「冷靜吧」、「總會無事的」。我明白他們想平安無事，但若中國全面接管(香港將會如中國一樣)，傳教被禁、教堂被拆、基督徒普遍都會受到迫害。
+
+**附錄：**
+
+1) ["Korsets Seier" 報道](https://web.archive.org/web/20211203010609/https://www.korsetsseier.no/magasin/sporsmalogsvar/2020-03-03/–-Jeg-er-alltid-redd-864613.html?fbclid=IwAR34T8jcfTHm3Bb7TAWGQny0Cv_Xnz3gM8A30TdoaOHycKQKlluLTqDNe6c) （須付費訂閱）   
+ 2) ["Korsets Seier" Facebook Post](https://web.archive.org/web/20211203010609/https://www.facebook.com/korsetsseier/photos/a.545499228803654/2996836277003258/?type=3&theater) (Cover):   
+ 3) [《蘋果日報》報道：【抗暴之戰】三黨北歐訪問團游說制訂《人權破壞者制裁法案》 瑞典對中國反彈最大](https://web.archive.org/web/20211203010609/https://hk.appledaily.com/local/20200306/JDO6GJCCHRNKURHQL4VEA2DBQU/) （2020.3.6）   
+ 4) [挪威國會香港人權狀況聽證會　許智峯：盼國際為香港人權狀況倒退發聲](https://web.archive.org/web/20211203010609/https://www.facebook.com/huichifung913/posts/1438140469701478?__tn__=K-R) （民主黨成員、立法會議員許智峯Facebook）   
+ 5) [岑敖暉：挪威國會聽證會抗議警暴](https://web.archive.org/web/20211203010609/https://www.thestandnews.com/politics/挪威國會聽證會抗議警暴/) 在（《立場新聞》2020.2.28）   
+ 6) [【國際戰線】北歐三國游說團](https://web.archive.org/web/20211203010609/https://www.facebook.com/AlvinYeungCP/posts/2829335703826482/) （公民黨成員、立法會議員楊岳橋Facebook）   
+ 7) [香港眾志成員黃奕武Facebook](https://web.archive.org/web/20211203010609/https://www.facebook.com/yikmowong)   
+ 8) [攝影記者Laurel Chor Twitter](https://web.archive.org/web/20211203010609/https://twitter.com/laurelchor/status/1234136377312317441?s=21) :   
+ 9) [時任挪威國會議員Guri Melby Twitter](https://web.archive.org/web/20211203010609/https://twitter.com/gurimelby/status/1233322184266993664)   
+ 10) 2020-02-28在挪威奧斯陸國會大廈的聽證會直播
+
+
+{{< video src="https://web.archive.org/web/20211203010609if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Fvenstre.no%2Fvideos%2F622558981623885%2F&show_text=0&width=560" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211203010609/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 讀者來論](https://web.archive.org/web/20211203010609im_/https://hkcnews.com/uploads/avatars/8bd6baf7-e90b-4ec4-be4c-cae03b96fcef.png?1272509898)
+
+**博客 | 讀者來論**
+
+【讀者來論・眾聲】這個專欄開放讀者來論，不設稿酬，稿件請電郵至[email protected]，主旨請註明：投稿【眾聲】。稿件是否採納由《眾新聞》編輯部決定。來稿請說明刊登時採用的名字。

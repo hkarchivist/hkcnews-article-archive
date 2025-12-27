@@ -1,0 +1,55 @@
+---
+title: "宣誓在即　兩日近150區議員辭職　3區已失主導權"
+date: "2021-07-09"
+last_updated: "2021-07-10 00:19:01"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "區議會"
+  - "區議員宣誓"
+  - "區議員辭職"
+url: "https://web.archive.org/web/20210916104246/https://www.hkcnews.com/article/43223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43246/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD150%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43246/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD150%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-3%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 宣誓在即　兩日近150區議員辭職　3區已失主導權
+
+區議員宣誓在即，自昨日（8日）起出現民主派區議員辭職潮。眾新聞統計，直至今（9日）晚10時半，短短兩日已有147名民主派區議員辭職，包括7名區議會主席。在辭職潮下，民主派已失去灣仔、九龍城和北區的區議會主導權。
+
+<figure>
+<img src="https://web.archive.org/web/20210928111523im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/區議員辭職-區議會-20210709231020_2809_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+眾新聞統計，星期四（8日）有至少81名區議員辭職，星期五（9日）再多至少66人辭職。今日辭職的民主派議員，包括深水埗區議會主席楊彧、東區區議會正副主席黎志強、趙家賢、油尖旺區議會副主席余德寶、北區區議員蔣旻正等。另外，曾因煽動罪被捕，最終被改控「藐視法庭」罪成的中西區區議會主席鄭麗琼亦已辭職。
+
+辭職比例最多為南區區議會，全區共有七成議員辭職，目前僅剩5名區議員。另外在辭職潮下，民主派在九龍城和北區區議會的議席均少於建制派，在灣仔區議會的議席則與建制相同，意味民主派已失去3區的控制權。
+
+連同早前已辭職和被DQ的民主派區議員，目前共有191個區議會議席懸空，佔2019年當選的民主派49%。
+
+今日辭職區議員名單（截至晚上10時半）
+
+南區（10人）：俞竣晞、黃銳熺、陳炳洋、陳欣兒、潘秉康、黎熙琳、嚴駿豪、徐遠華、林德和、林浩波   
+ 黃大仙（9人）：莫綺霞、陳俊裕、莊鼎威、尤漢邦、鄭文杰、張茂清、岑宇軒、張嘉宜 ；另區議會網頁顯示沈運華、莫嘉嫻昨（8日）已辭職   
+ 葵青（8人）：劉子傑、王天仁、吳劍昇、韓俊賢、許祺祥、黃俊達；另區議會網頁顯示梁國華、黃炳權昨（8日）已辭職   
+ 東區（7人）：麥德正、黎志強、梁兆新、魏志豪、郭志聰、趙家賢、何偉倫   
+ 沙田（5人）：趙柱幫、麥梓健、陳運通、陸梓峂、許銳宇   
+ 深水埗（4人）：楊彧、江貴生、徐溢軒、甄啟榮   
+ 灣仔（3人）：邱汶珊、羅偉珊、陳鈺琳   
+ 北區（3人）：郭㙟豐、蔣旻正、張正皓   
+ 九龍城（3人）：馬希鵬、黎廣偉、周熙雯   
+ 元朗（3人）：方浩軒、李俊威、郭文浩   
+ 中西區（2人）：鄭麗琼、伍凱欣   
+ 西貢（2人）：馮君安、張偉超   
+ 屯門（2人）：楊智恒、巫堃泰   
+ 觀塘（1人）：馮家龍   
+ 荃灣（1人）：劉志雄   
+ 油尖旺（1人）：余德寶
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928111523/https://hkcnews.com/aboutus/#subscribe)

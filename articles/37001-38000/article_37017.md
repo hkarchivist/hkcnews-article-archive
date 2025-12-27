@@ -1,0 +1,52 @@
+---
+title: "8警涉通州街襲擊露宿者及刑事損壞提堂　涉損一包米、九罐頭、兩膠箱、一膠櫃"
+date: "2021-01-06"
+last_updated: "2021-01-06 16:58:03"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "警暴"
+  - "八警案"
+  - "通州街公園襲擊露宿者"
+url: "https://web.archive.org/web/20210726171849/https://www.hkcnews.com/article/37017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37023/8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/37017/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37023/8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 8警涉通州街襲擊露宿者及刑事損壞提堂　涉損一包米、九罐頭、兩膠箱、一膠櫃
+
+8名警員去年2月於深水埗通州街公園執勤時，涉嫌襲擊露宿者及破壞露宿者財物，被控刑事毀壞、傷人、妨礙司法公正及公職人員行為失當等罪名，今早在東區裁判法院提堂。案件押後至下月2日再訊，各人准以現金一千元保釋，期間不得接觸控方證人，不能踏足案發的通州街公園，並要居住在報稱地址。據悉，8名被告全部隸屬深水埗特別職務隊，早前已全被停職。
+
+涉案的8名被告，依次為男警郭展昇（30歲）、男警韓廷光（29歲）、男警梁飛鵬（29歲）、女警龐雋詩（29歲）、男警長林華嘉（44歲）、男警莫志成（25歲）、女警尹栢詩（25歲）及男警陳守業（27歲），控罪書顯示各人的職業現時均報稱為「其他職業」，八名被告共面對五項妨礙司法公正罪、兩項在公職中行為失當罪、一項對他人身體加以嚴重傷害罪，以及兩項刑事損壞罪。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171849im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/八警案-通州街公園襲擊露宿者-20210106153528_ca60_large.jpg" alt="">
+<figcaption>首被告郭展昇(左)涉及數項控罪，除了一項傷人罪，亦被控兩項刑事損壞罪；第五被告林華嘉(右)則被控兩項「妨礙司法公正」罪。   曾港深攝</figcaption>
+</figure>
+
+8 名警員今日首度提堂，事情發生在去年 2 月，便衣警兩次到深水埗通州街公園掃蕩，有露宿者投訴被警員襲擊及砸爛家當。其中以藏毒罪名被捕的越南裔露宿者黎民十 (阿十），早前被指在小欖精神病治療中心以「長褲纏頸自殺」不治，其中 3 名警員被控意圖妨礙司法公正，包括在其記事冊中作虛假指稱，以管有危險藥物罪誣陷黎民十。
+
+控罪指，警員郭展昇、梁飛鵬及陳守業於去年2月4日在深水埗通洲街公園涼亭，非法及惡意對露宿者阮文山的身體加以嚴重傷害；亦指警員梁飛鵬及龐雋詩在同一地點，企圖遮蓋閉路電視攝錄鏡頭，以防止它拍下警方在現場進行調查時所發生的事情，涉嫌妨礙司法公正；又指另一在場警員韓廷光知悉毆打事件而故意或蓄意地不履行職責，涉公職人員行為失當。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171849im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/通州街公園襲擊露宿者-八警案-20210106153523_20cc_large.jpg" alt="">
+<figcaption>第二被告韓廷光(左)被控兩項公職人員行為失當罪；而第四被告龐雋詩(右)則被控妨礙司法公正罪。    曾港深攝</figcaption>
+</figure>
+
+男警長林華嘉、警員莫志成及尹栢詩則被控「作出傾向並意圖妨礙司法公正的作為」，控罪指他們於去年2月4日及5月21日，意圖妨礙司法公正，即身為香港警務人員，在其記事冊中作虛假指稱，以管有危險藥物罪誣陷黎民十。亦指警員林華嘉及陳守業在同一地點，企圖遮蓋閉路電視攝錄鏡頭，以防止它拍下警方在現場進行調查時所發生的事情，涉嫌妨礙司法公正。
+
+當中首被告郭展昇涉及最多控罪，除了一項傷人罪，亦被控兩項「刑事損壞」罪，指他於 2020 年2月24日，在通州街公園涼亭，損壞屬於阮文山的一個黑色膠箱，及損壞屬於不知名人士的一包米、九罐罐頭、兩個膠箱、一個膠櫃連抽屜，意圖損壞財產或罔顧該財產是否會被損壞。另一警員韓廷光被指見證或知悉郭展昇在他面前干犯的「刑事損壞」罪，而未加阻止，被控公職人員行為失當。
+
+主任裁判官錢禮指本案涉及多項控罪，問辯方需否在庭上宣讀，辯方律師表示不需要，各被告亦點頭，表示不用在庭上宣讀控罪。及後主任裁判官應控方申請，案件於 2 月 2 日在東區裁判法院再提堂，控方將交付轉介案件至區域法院的文件。控方不反對下，各被告獲准以 1000 元保釋，不得騷擾 45 名控方證人，不得前往案發地點通州街公園，須住在報稱地址，以及在更改住址前通知警方。
+
+<figure>
+<img src="https://web.archive.org/web/20210726171849im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/八警案-通州街公園襲擊露宿者-20210106153525_2d04_large.jpg" alt="">
+<figcaption>通州街公園露宿者家當被毀事件，八名警員(穿西裝數名人士)被控傷人、妨礙司法公正等罪名。   曾港深攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726171849/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,57 @@
+---
+title: "香港絕對不可以像緬甸人般敲碗敲水桶"
+date: "2021-02-08"
+last_updated: "2021-02-08 17:59:17"
+author: "一悠"
+category: "眾說"
+tags:
+  - "公民抗命"
+  - "緬甸政變"
+  - "作出具煽動意圖的作為"
+url: "https://web.archive.org/web/20211208210838/https://hkcnews.com/article/37997/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38007/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37997/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38007/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 香港絕對不可以像緬甸人般敲碗敲水桶
+
+現在香港搞到連緬甸也遠遠不如。
+
+大把後生仔女不知道緬甸曾經也是英國殖民地，當年在仰光大學畢業，是英聯邦承認的學位， 同Hong Kong U平起平坐，昂山素姬的老豆就在哪裏畢業，以前緬甸的幾十年首都仰光，是拍得住新加坡的東南亞出曬名鳥語花香的大城市。
+
+但自從1948年緬甸脫離英國獨立後，什麼——「緬甸軍政府」，好像成日都是在開槍開炮 ，人民又唔係食得好飽，又要爭取民主，冇乜好日子過 ，前輩們講返——當時好在香港仍是英國統治，有馬仔賭，有自由，有得搵食，有安全。
+
+<figure>
+<img src="https://web.archive.org/web/20211208210838im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/緬甸政變-公民抗命-仰光-20210208172747_2f14_large.jpg" alt="">
+<figcaption>緬甸人民以敲打鍋蓋鐵盒水盆等物品發聲，抗議軍政府接管。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20211208210838im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/緬甸政變-公民抗命-20210208175022_10f8_large.jpg" alt="">
+<figcaption>網絡照片</figcaption>
+</figure>
+
+現在唔同啦！自從緬甸軍佬拉咗昂山素姬之後，緬甸人日日在家中敲碗敲碟敲水桶抗議，愈演愈烈，跟住呢幾日仲萬人上街遊行，今天仲話要準備——全民大罷工⋯⋯好似比香港自由得多喎，今日我們竟然要羨慕緬甸人有遊行的自由！
+
+你想想今天如果在香港你落街用棍敲碗敲樽敲水桶，分分鐘俾特區政府借機鋤你幾條罪——「藏有攻擊性武器」、「公眾地方行為不檢」，還有可能像告傑斯那樣——「作出具煽動意圖的行為」！你夠膽遊行，馬上鋤你衰599G限聚令，罰你五千玩殘你，跟住還有國安法⋯⋯
+
+一向自由的香港人，竟然今日要羨慕緬甸人有得遊行。
+
+而緬甸軍佬，也是——絕不手軟之輩，分分鐘——讓子彈飛，血流成河。而緬甸人卻也非常英勇，視死如歸，氣壯山河，原來民主、自由，對全人類係咁重要的。
+
+講返轉頭，香港現在搞到連——「作出具煽動性意圖的行為」，咁嘅罪名都告得出，不是仲衰過緬甸是什麼！
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211208210838/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 一悠](https://web.archive.org/web/20211208210838im_/https://hkcnews.com/uploads/avatars/2c58e158-9035-4161-92ef-b4b56f5e3747.png?873536568)
+
+**博客 | 一悠**
+
+【一悠・到此一遊】喜歡談古論今，也常談股論金。心理、鋼琴、股票、教育，交义感染，交流一下。學歷：香港中文大學文學士，研究院教育文憑，澳洲新南威爾斯大學碩士（堅有證書㗎，卻無野雞大學博士，也不必請律師去找證書）

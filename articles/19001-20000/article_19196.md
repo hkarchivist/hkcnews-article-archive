@@ -1,0 +1,76 @@
+---
+title: "叮噹叮......以音樂活動增進幼兒語言前技巧"
+date: "2019-03-27"
+last_updated: "2019-03-27 19:15:23"
+author: "與孩子同行之道"
+category: "眾說"
+tags:
+  - "音樂"
+  - "語言前技巧"
+url: "https://web.archive.org/web/20210922072538/https://hkcnews.com/article/19196/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19389/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/19196/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19389/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 叮噹叮......以音樂活動增進幼兒語言前技巧
+
+【撰文：吳珏琳姑娘】   
+ ***作者為聖雅各福群會樂寧兒童發展中心言語治療師***
+
+家長常常希望孩子贏在起跑線，各式各樣的興趣班早在孩子半歲大已經可以參與了，其中音樂班也是家長的熱門選擇。孩子年幼，上音樂班的目的並不是望子女成為音樂家吧？其實音樂活動除了能讓孩子學習到唱歌或演奏的能力，也是讓孩子發展語言前技能的一個好媒介！
+
+先解釋一下甚麼是語言前技能吧！語言前技能就是兒童能明白別人的說話或自己說話前所建立的技巧，包括建立溝通的基礎和探索世界的能力。以下讓我來介紹兩個可提升語言前技能的簡單音樂活動吧！
+
+### 語言前技能（一）共同專注
+
+溝通是需要兩個人一起談及相同的事情才能成事的，如果一個人在說：「我好口渴」，但另一個人說：「我頭先搭巴士」，明顯他們並非在進行有效的溝通。因此孩子也要建立與其他人專注於同一個活動的能力！
+
+**音樂活動：咚咚四圍打**
+
+<figure>
+<img src="https://web.archive.org/web/20210922072538im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/音樂-語言前技巧-20190327190341_337e_large.jpg" alt="">
+<figcaption>咚咚四圍打</figcaption>
+</figure>
+
+孩子拿著鼓棍，大人拿著鼓。先把鼓放在孩子前面，讓他練習一下如何用鼓棍打鼓，之後大人把鼓與孩子的距離拉遠，要孩子留意大人把鼓移到那裡才打下去。如孩子能留意鼓的位置，大人可以同時唱歌，要孩子在歌曲中特定位置才打鼓。
+
+### 語言前技能（二）輪流作轉
+
+溝通除了需要共同專注，還要懂得輪流作轉。如果兩個人同時說話，又或者一個人不停說話，不給予對方任何回應的機會，這些情況下，我們都沒有可能成功地交流。因此，孩子也要學懂與別人輪流互動的能力啊！
+
+**音樂活動：你我齊齊碌**
+
+<figure>
+<img src="https://web.archive.org/web/20210922072538im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/語言前技巧-音樂-20190327190246_d741_large.jpg" alt="">
+<figcaption>你我齊齊碌</figcaption>
+</figure>
+
+孩子和大人面對面坐著，把雨聲筒打橫放在桌上。大人先推動一下雨聲筒以沙沙聲吸引孩子的注意。孩子注意到雨聲筒後，大人把雨聲筒推向孩子，著孩子也同樣地把雨聲筒推回給大人。為加強給孩子的語言輸入，大人在自己推出雨聲筒前，也先說「推」，讓孩子明白這動作就是「推」。如孩子已掌握互相推筒的動作，大人可以同時唱歌或播放音樂，大人和孩子在歌曲中特定位置才推筒。
+
+家長也可以自製雨聲筒啊！找個圓型樽，加入米或豆後緊閉樽蓋，放在桌子上推也能有同樣效果呢！
+
+無論你的孩子是否已懂得說話，家長也可以讓孩子試試以上的活動啊！因為以上都是非語言溝通的能力，在我們日常生活的交流中都不可缺少的。希望孩子可以在享受音樂活動之餘，溝通技巧也獲得提升吧！
+
+**如對言語治療有任何查詢，歡迎致電2596 2500或電郵 [[email protected]](/web/20210922072538/https://hkcnews.com/cdn-cgi/l/email-protection) 查詢。**
+
+**言語治療師　吳珏琳   
+ 理學士（言語及聽覺科學）   
+ 文學碩士（音樂）   
+ 學位教師教育文憑（音樂教學專業）   
+ 音樂治療專業證書（特殊需要兒童）   
+ 奧福音樂教學法（第一及第二級證書）**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210922072538/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 與孩子同行之道](https://web.archive.org/web/20210922072538im_/https://hkcnews.com/uploads/avatars/f75a67ae-df88-4561-9478-a8890cad0546.png?1991682236)
+
+**博客 | 與孩子同行之道**
+
+【與孩子同行之道】本欄作者是樂寧兒童發展中心同工。樂寧中心由聖雅各福群會一群關心兒童成長發展的專業人員於2005年成立，致力為有發展障礙的兒童及正在輪候服務的家庭提供支援。我們期望透過適切及全面的一站式服務，令兒童得到幫助。中心的專業團隊包括社工、臨床心理學家、言語治療師及職業治療師等，多年來已為超過一萬多名兒童及其家長提供服務。歡迎聯絡：[email protected]

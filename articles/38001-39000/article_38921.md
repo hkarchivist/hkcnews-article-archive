@@ -1,0 +1,33 @@
+---
+title: "唐英年引述韓正指　修改選舉制度非刻意剔除任何人"
+date: "2021-03-06"
+last_updated: "2021-03-06 14:33:34"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "眾新聞"
+  - "唐英年"
+  - "韓正"
+url: "https://web.archive.org/web/20210928130439/https://www.hkcnews.com/article/38921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38927/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/38921/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-38927/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 唐英年引述韓正指　修改選舉制度非刻意剔除任何人
+
+主管港澳事務的副總理韓正早上在北京的政協禮堂，接見出席全國政協會議的香港政協委員。全國政協常委唐英年在會面後表示，韓正未有提及完善香港選舉制度的細節，但有提到會擴大選委會和立法會的人數；又表示制度的改革，並不是想刻意剔除任何人。
+
+會面時間約2小時，韓正的發言約1小時。唐英年在會面後表示，韓正在會上解釋，經過2019年的反修例運動，香港國安法出台後由亂到治，下一步要修改選舉制度，否則會危害到一國兩制，呼籲政協要向社會多解說。不過他指韓正未有提及具體的細節，只表示會擴大選舉委員會及擴大立法會，屆時委員人員會增加，立法會議員人數會增加，以代議政制而言，人數代表會更多，因此代表會更加好。
+
+唐英年又表示，制度的改革並不是想刻意剔除任何人，希望修改後香港仍能維持多元聲音的優勢，又不認為制度的修改會與雙普選的目的相違背。
+
+唐英年稱自己在會上向韓正表達希望盡快通關，韓正指只有香港控制好疫情，總可以通關，又以澳門做例子，指澳門多個月沒有個案出現，因此可通關，呼籲香港盡心盡力，做好一點。
+
+昨在人大開幕式上跌倒的全國政協副主席董建華，今早亦有出席會議。唐英年指未見其有任何異樣，但因為自己距離較遠，沒有機會上前問候。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928130439/https://www.hkcnews.com/aboutus/#subscribe)

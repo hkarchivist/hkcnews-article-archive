@@ -1,0 +1,58 @@
+---
+title: "極權化管治扭曲人性　胡志偉奔喪申請被拒　林鄭政府施政非人性化"
+date: "2021-05-05"
+last_updated: "2021-05-06 01:29:16"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "胡志偉"
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "奔喪"
+url: "https://web.archive.org/web/20210924092645/https://www.hkcnews.com/article/41002/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41020/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41002/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41020/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 極權化管治扭曲人性　胡志偉奔喪申請被拒　林鄭政府施政非人性化
+
+
+{{< video src="https://web.archive.org/web/20210924092645if_/https://www.youtube.com/embed/aeTmLyTY0Zw" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20210924092645/https://bit.ly/2Cj8v4t)
+
+民主黨前主席胡志偉因參與去年民主派初選，被指控違反《國安法》 中的「顛覆國家政權罪」被捕，後因未按另一宗涉及七一遊行案件的要求交出所有旅遊證件（BNO），被指違反保釋條件而不獲准保釋，至今已被還押在荔枝角收押所超過4個月。胡志偉的92歲父親上月中離世，喪禮本周五晚上舉行，胡志偉早前申請外出奔喪，懲教署拒絕申請，只答應安排以視像方式讓胡考慮。
+
+港版國安法實施後，特區政府管治走向極權化，基本人道精神價值迅速消失，胡志偉奔喪申請被拒，是禮崩樂壞另一個例子。胡志偉無法親身送別至親最後一程令人感到難過，官僚冷漠、 喪失人類基本關懷憐憫之心，更令人感到悲哀、憤怒。
+
+懲教署回應傳媒時強調會一視同仁，按現行保安機制處理在囚人士申請。根據《監獄規則》第17條，署方會考慮在囚人士的所犯罪行、保安風險、押解路線、地點安全等各項保安因素。署方近日亦留意到喪禮的日期、時間及地點較早時被社交媒體廣泛報道，網上亦有人士號召喪禮當日到場支持。經保安評估後，為保障懲教人員、在囚人士及公眾人士的安全，署方決定不批准有關申請。
+
+聲明說，署方對於在囚人士家人離世深表同情，所以希望提供其他可行途徑作出協助。近年， 署方致力發展智慧監獄，傳輸視像訊息是其中一項主要發展範疇。有見及此，署方決定應用有關科技，首次安排以視像方式參與喪禮讓在囚人士考慮。
+
+懲教署的回應充滿僵化冷漠的官樣文字，沒半句「人話」，借一些來源不明、真假難分的網上訊息「過橋」，製造奔喪存在安全風險的所謂「評估」，是執法部門常耍的把戲，侮辱常人智慧。
+
+懲教署、保安局、警方，可能包括國家國安部門，是否真的相信胡志偉支持者會逼爆殯儀館？搶走胡志偉？送別胡父時叫喊「五一」、「光時」口號？胡志偉會借奔喪「搞事」？這是「人」做的，抑或是機器做的「評估」？
+
+聲明中一句「深表同情」沒有半點同情，只有虛偽，更有「抽水」之嫌。借胡志偉宣傳甚麼「智慧監獄」，可「首次安排」胡志偉視像告別，camera前「三鞠躬」，隨時變相為懲教署真人宣傳，令人齒冷！林鄭政府「官恩」浩蕩，胡志偉一家人是否要衷心謝禮？還有更荒唐的事情嗎？
+
+林鄭上台時，曾作出施政「人性化」的承諾。民主派人士初選案3月份申請保釋案，連續4天的審訊，令一眾被告沒有時間睡眠、休息、梳洗，甚至不能換內衣褲，導致有人在庭上暈倒或不適送院。香港社會講文明、人道，港人被不人道對待，令香港蒙羞。
+
+在囚人士應得到合情合理及有尊嚴的對待，假如林鄭「人性化」不只是口號，請推翻懲教署、保安局（國安公署？）的決定。特區政府之首，特區之首，敢嗎？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924092645/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210924092645im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

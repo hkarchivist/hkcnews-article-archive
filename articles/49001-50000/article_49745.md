@@ -1,0 +1,58 @@
+---
+title: "至今15人遭控串謀發布煽動刊物罪　僅一人准保釋"
+date: "2021-12-29"
+last_updated: "2021-12-29 16:59:36"
+author: "記者張旭珊"
+category: "眾聞"
+tags:
+  - "煽動刊物罪"
+url: "https://web.archive.org/web/20221007183644/https://hkcnews.com/article/49745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49751/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/49745/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-49751/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 至今15人遭控串謀發布煽動刊物罪　僅一人准保釋
+
+今次國安處引用「串謀發布煽動刊物罪」拘捕《立場新聞》6名前董事及總編輯，是繼《蘋果日報》昨日被加控相同罪名後，第二間傳媒機構被指涉嫌干犯有關罪名。自去年起，已有15名男女被起訴相同控罪，共涉4宗不同案件，包括《蘋果日報》案、《羊村》繪本案等，當中僅得一人獲准保釋外出。
+
+<figure>
+<img src="https://web.archive.org/web/20221007183644im_/https://hkcnews.com/news_新聞/hk-discuss/2021/12/煽動刊物罪-20211229164916_11f4_large.jpg" alt="">
+</figure>
+
+15名被告分別於2020年8月至2021年7月期間被捕，；他們所涉控罪的案發日期，最早追溯至2019年4月，即反修例運動爆發前。而15人當中，僅得一人獲准保釋外出。4宗案件詳情如下：
+
+  
+ ⚫️ **黎智英與《蘋果》6位高層（47-74歲）**
+
+被捕日期：2020年8月10日、2021年6月17日、6月28日、7月21日   
+ 控罪日期：2019年4月1日至2021年6月24日   
+ 涉案刑物：《蘋果日報》
+
+⚫️ **言語治療師工會5名成員（25-27歲）   
+** 被捕日期：2021年7月22日   
+ 控罪日期 ：2020年6月4日至2021年7月22日   
+ 涉案刑物：《羊村守衛者》、《羊村十二勇士》、《羊村清道夫》
+
+⚫️ **曹（45歲，文員）、黃（17歲，中四學生）   
+** 被捕日期：2021年6月6日   
+ 控罪日期 ：2020年5月至12月11日   
+ 涉案刑物：「港獨」文宣單張   
+ *男學生獲准保釋
+
+⚫️ **鍾翰林（20歲）   
+** 被捕日期：2020年10月27日   
+ 控罪日期 ：2020年4月29日至10月27日   
+ *鍾早前承認分裂國家罪，經答辯磋商後煽動刊物罪獲撤控
+
+### 物管經理因管有及展示文宣遭控
+
+另外，一名41歲物業管理經理涉在本年6月，在上水一間幼稚園外及高等法院大樓外張貼海報；其電話內同時藏有48張文宣，遭控「管有及展示煽動刊物」罪，現獲准保釋候訊。
+
+根據《刑事罪行條例》第9條，「煽動意圖」即引起對香港政府和香港司法的憎恨、意圖煽惑他人使用暴力、意圖慫使他人不守法。第10條則表明，任何人作出或與任何人串謀作出煽動意圖的作為；或發表煽動文字；或刊印、發布、出售、要約出售、分發、展示或複製煽動刊物；或輸入煽動刊物，即屬犯罪。首次定罪可處罰款$5,000及監禁2年，其後定罪可判監3年；煽動刊物則予以沒收並歸予官方。
+
+### 條例只於六七暴動被引用
+
+上述條例於1938年引入香港，當時主要針對反英國殖民地的左派行為，包括針對「憎恨英女皇」，或「加深香港不同階層居民間的敵意」等，被控傳媒機構包括《大公報》、《人民日報》、《田豐日報》等左派報章。惟自六七暴亂後至2019年間，政府未曾動用條例，故案例絕無僅有。
+
+六七暴動期間，聖保羅書院中七學生曾德成，在課室派傳單、掛布條反對港英「奴化教育」，批評政府不許學生愛國、以「法西斯手段」鎮壓愛國同袍。曾最終被拘捕，被裁定「放置煽動標語罪」罪成，判囚兩年。回歸後，曾德成在2007年出任民政事務局局長，2015年離任並退休。2018年，曾接受《信報》訪問時表示，控以煽動罪是殖民管治下侵犯人權的迫害，「罪名是強加於我的」。他又認為，《基本法》下有言論自由，「何來派發煽動性傳單？」   
+   
+ 資料顯示，暴動後期，多名左派記者與左報高層被捕，記者黃澤被控「非法集會」及「發表煽動性演說」等罪成，入獄五年；警方大舉搜查左派報館，三份左報被飭令停刊，之後有兩名高級警官罕有地向《晶報》發律師信，控告報章在五月動亂的報道失實，要求報館道歉及賠償。

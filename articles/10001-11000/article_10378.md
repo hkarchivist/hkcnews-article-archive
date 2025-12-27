@@ -1,0 +1,53 @@
+---
+title: "馬來西亞大選前瞻（二）：腐敗政治的制度因素"
+date: "2018-02-27"
+last_updated: "2018-05-13 23:16:15"
+author: "鄺健銘"
+category: "眾說"
+tags:
+  - "馬來西亞"
+  - "馬來西亞聯邦"
+  - "大選"
+  - "馬哈蒂爾"
+url: "https://web.archive.org/web/20210925024433/https://www.hkcnews.com/article/10378/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12119/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/10378/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-12119/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 馬來西亞大選前瞻（二）：腐敗政治的制度因素
+
+馬來西亞向被視為｢選舉威權政體｣案例，其鄰國新加坡是另外一例。2015年新加坡大選過後，我曾在評論大選結果的文章寫道：「很多人可能認為，對執政黨有利的選區劃分(gerrymandering)，是選舉威權主義的一大魔鬼細節。但很可能這只是果，而非因；更具決定性的因素，大概在於選民的文化性格與取態。」馬來西亞新一屆大選將近，這自然是觀察選舉威權政體如何運作與延續的另一珍貴時機──特別是當 [前文提過](https://web.archive.org/web/20210925024433/https://www.hkcnews.com/article/10360/%E9%A6%AC%E4%BE%86%E8%A5%BF%E4%BA%9E-%E7%B4%8D%E5%90%89-%E5%A4%A7%E9%81%B8-10360/%E9%A6%AC%E4%BE%86%E8%A5%BF%E4%BA%9E%E5%A4%A7%E9%81%B8%E5%89%8D%E7%9E%BB%E4%B8%80%EF%BC%9A%E5%9F%B7%E6%94%BF%E9%BB%A8%E6%B0%91%E6%9C%9B) ，縱然政治醜聞纏身，2017年執政黨仍然在三場選舉勝選。
+
+<figure>
+<img src="https://web.archive.org/web/20210925024433im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/News-大選-馬來西亞-20180227155855_3e6f_large.jpg" alt="">
+</figure>
+
+2016年馬來西亞出版社出版的學者文集《馬來西亞大崩壞：從1MDB看國家制度腐敗》提供了很詳盡的背景分析，闡明馬國歷年的政治變化、國家政體發展至何種狀態，著力從制度層面去分析「選舉威權政體」，但書中對選民文化因素的影響與角色著墨較少。從書中對馬國國家制度的分析引伸而論「選舉威權政體」其實是一個涉及權力分配與運用的政治package，而這個package並非只關乎選舉制度安排。
+
+於馬國政治脈絡裡，Package的第一個重點，在於首相的超然權力。馬來西亞自由撰稿人唐南發在章節〈納吉：馬來西亞史上權力最大的首相〉提出了很有意思的一點：前英國殖民地馬來西亞與其宗主國英國雖然同樣採用內閣制，但兩國內閣制的執行方式並不一樣。例如，在英國乃至澳洲，首相與閣員平起平坐，財長甚至被視為用以制衡首相權力的一個職位。但不論在新加坡還是馬來西亞，總理／首相的權力都在擴大、凌駕於閣員之上。馬來西亞首相權力獨大的一個表徵，是首相同時出任財長一職，這也是 [1MDB](https://web.archive.org/web/20210925024433/https://en.wikipedia.org/wiki/1Malaysia_Development_Berhad) 醜聞出現的一個重要背景。
+
+馬來西亞首相權大，固然有歷史原因——曾任馬來西亞三位首相的閣員、著有Cabinet Governing in Malaysia的Rais Yatim認為，馬國建國獨立之時，因著馬來人居少數、馬共等因素，首相被賦以絕對權力；但擴大首相權力的關鍵人物，是前首相馬哈蒂爾──一方面，他任內不斷修憲，擴大了首相權力，另一方面，他在任內最後兩年同時出任財長一職，此後的首相阿都拉與納吉將之變成馬來西亞政治慣例。2016年，媒體《亞洲金融》考量1MDB案等因素後，將納吉評為亞洲最差財長。
+
+<figure>
+<img src="https://web.archive.org/web/20210925024433im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/02/馬來西亞-馬哈蒂爾-首相-20180227161153_2272_large.jpg" alt="">
+<figcaption>馬來西亞前首相馬哈蒂爾是首相擴權的關鍵人物。美聯社</figcaption>
+</figure>
+
+Package的第二個重點，在於警權被濫用、被政治化，這與首相權大也有一定關係。關於這點，1MDB案是具象徵意義的例子。從事大馬人權與民主社會發展工作的葉瑞生，在章節〈首相縱容，警隊桀驁不馴〉提到，2015年7月底，媒體報導總檢察署就1MDB案計劃提控首相納吉之後，警察部隊隨即突擊搜查反貪會。同年9月，總檢察署配給反貪會副檢察司Kevin Morais被發現死於藏有石灰的石油罐內，按其弟作供稱，其兄死前曾調查涉及納吉與其夫人的案件。
+
+當然，馬國「選舉威權政體」的形成，總離不開選舉制度這個因素——在馬來西亞實行 [First Past the Post](https://web.archive.org/web/20210925024433/https://en.wikipedia.org/wiki/First-past-the-post_voting) 、對細小政黨生存不利的選舉制度，自有壓制馬國政治多元的意味，而且馬國也有透過劃分選區方便執政黨勝選的問題。但當曾在台灣與上海留學的政治學者潘永強於書中導論指，制度曾經成熟一時的馬來西亞，在馬哈蒂爾年代已褪變為擁有蘇丹式威權(sultanistic authoritarianism)的攫奪形國家(predatory state)﹑1MDB案是攫奪形國家制度崩壞自然結果的時候，我們便應該意識到，關於「選舉威權政體」形成與運作的重點，其實不只限於選舉。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925024433/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 鄺健銘](https://web.archive.org/web/20210925024433im_/https://www.hkcnews.com/uploads/avatars/1a5455ad-eecd-477e-9a49-011a38eb780e.png?802952252)
+
+**博客 | 鄺健銘**
+
+【鄺健銘專欄】曾負笈新加坡李光耀公共政策學院、在新加坡從事研究工作。著有《港英時代：英國殖民管治術》與《雙城對倒：新加坡模式與香港未來》。文章散見於The Diplomat、Asian Survey、香港《信報》、《明報》、《經濟日報》、《亞洲週刊》、《立場新聞》、《端傳媒》、《評台》、Breakazine、新加坡《聯合早報》、馬來西亞《當代評論》、《燧火評論》、台灣《故事》、《風傳媒》、《關鍵評論網》、中國《參差計劃》等。

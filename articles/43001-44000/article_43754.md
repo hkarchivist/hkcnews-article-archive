@@ -1,0 +1,85 @@
+---
+title: "【留下來的人】張錦雄拒辭區議員：寧為自己做過的事後悔　不為自己沒做過的事遺憾"
+date: "2021-07-28"
+last_updated: "2021-07-28 05:01:13"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "區議員"
+  - "區議員宣誓"
+  - "張錦雄"
+url: "https://web.archive.org/web/20210922091308/https://hkcnews.com/article/43754/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43760/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/43754/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43760/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【留下來的人】張錦雄拒辭區議員：寧為自己做過的事後悔　不為自己沒做過的事遺憾
+
+> **寧願為了自己做過的事後悔，都不寧願為自己沒做過的事而遺憾。**
+
+
+這句說話在張錦雄的專訪中出現了不少於三次，這句說話是他的座右銘，也解釋了張錦雄為何願意繼續留守，不辭職。區議員宣誓在即，政府較早前放風將大舉DQ議員，並有傳會追討上任至今薪津，涉款過百萬，觸發過去兩周民主派區議員大規模辭職潮。去或留，各人有各自的想法。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091308im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/張錦雄-區議員-20210727225157_26ff_large.jpg" alt="">
+<figcaption>「香港加油」及黃、黑色，已成為了張錦雄的代表識辨。曾港深攝</figcaption>
+</figure>
+
+訪問當日身穿鮮黃色「香港加油」T-shirt的張錦雄，他的議助向記者透露，張基本上每天工作都是穿着同一款衣服，最多只是由黃色變成黑色，因為張錦雄認為這款衣服及顏色能夠成為他的「Symbol」，就算街坊只是看到他的背後，也能立即認得出是張錦雄。
+
+經常接受訪問的張錦雄，早已猜想到記者會詢問關於留任的問題，他在訪問開始不久後，便向記者娓娓道來：「唔辭職有幾個原因啦，第一我覺得仲要睇定啲啦、第二政府又未有澄清同正式公佈；第三區議會仲有好多project值得去批錢俾啲NGO去發展，再加上咁啱我係7月13號約咗個全身身體檢查，所以無辦法係7、8、9號同啲同事一齊辭職，如果唔係我就Claim唔到啲錢。不過最重要嘅都係，《大公報》等親中媒體早前公佈咗一份傳說中嘅DQ名單，就列咗邊啲民主派議員有做過邊四樣負面清單嘅嘢，其實都係一啲朋友轉發俾我，我就發現原來我唔喺個名單裡面，所以我相對地就安心啲囉。」他表示，自己既沒有簽署「墨落無悔」聲明，亦沒有借出辦事處作初選票站，相信屬於低風險人士，而且現時的區議會仍有很多重要的事情需要處理，他不想就此拋棄議會，故思前想後，還是決定成為留下來的人。
+
+他形容政府的風聲「五時花六時變」，「之前又話如果啲會被DQ嘅區議員係負面清單發出之前辭職嘅話，就唔會追討佢哋嘅薪金；但隔咗一個禮拜之後，林鄭又話如果區議員嘅個人行為係違反，就算主動辭職都會繼續追究。你根本就唔知呢個政府會出咩招數，呢頭話如果你唔一早辭職就會太遲，嗰頭又話就算你辭咗職都係會被繼續追究，所以我真係知道有個別區議員其實後悔咁早遞信，因為反正如果政府一定要追你，咁點解唔做多半個月或者一個月呢？」
+
+張錦雄坦言不懼怕破產，因為他從事地區工作二十多年，財政狀況一直都屬赤貧狀態，就算當選了區議員，他亦不時購買日用品等物資，讓區內有需要的人使用，強調「取之於民、用之於民」。他又透露自己從來都不富貴，以前試過做臨時演員及餐廳侍應去維生，其餘時間則用來做一些自己覺得有意義、對社會有貢獻的事情，「我個人離地面好近，所以就算跌落地下都唔會好痛」。張直言一定會堅持到底，就算被取消議員資格和追討薪津，也會申請法援打官司，據理力爭，他強調自己的選區以往屬於親建制的鄉郊地區，不希望如此輕易把議席拱手相讓。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091308im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/區議員-張錦雄-20210727231030_1603_large.jpg" alt="">
+<figcaption>張錦雄表示他享受在地區深耕細作的感覺。張錦雄Facebook圖片</figcaption>
+</figure>
+
+他又質疑，有關當局在5月才修例，卻有可能追討過往一年多的薪津，這並不合常理，特別是政府是確認了他們的議員資格，一直也有發出薪津，又指以一般的法律常識理解，如果要追討，政府方面也難以就過往的「誤判」有合理解釋。而對於議會內大量民主派離開，張錦雄坦言在原已被矮化的議會內，抗爭已十分困難，如果要兼顧其他辭任區議員的工作，相信負擔會更大，但強調絕對理解各人各自有家庭和經濟壓力。
+
+過往20年都在推動社運的張錦雄，今年46歲，1998年與其他同性戀者及同志平權人士共同創辦香港彩虹，及後開始接觸社區工作。2003年、2007年及2011年先後三次挑戰區議會選舉均鎩羽而歸，事隔9年後捲土重來，再次「空降」出戰，終於一嘗當選滋味。四年任期未到一半，面對着去與留的掙扎，「我諗佢話會凍結個消息流出頭幾日係最掙扎，但心底裡都係覺得唔甘心，所以都係本住『睇定啲先』嘅心態唔遞信住，點知隔多幾日林鄭又出嚟講第二個版本，之後我就再無掙扎過，決定一定要堅持到底。」
+
+張錦雄是屯門鄉郊的區議員，但其議員辦事處則設立在相隔距離十個輕鐵站的屯門友愛邨。他解釋，因為在他上任的頭半年，都曾經努力嘗試在屯門藍地一帶尋找鋪位，但藍地大街是商業區，商鋪租金就很昂貴，就算遇到有業主想平租給他的時候，後來都總會有些擔心，怕租給張錦雄設立議員辦事處後會惹來麻煩，最終還是不了了之，「但始終做得議員都希望有個辦事處、有個瓦遮頭，有個地方放吓文件、影吓印、擺吓物資咁，所以就開始就諗吓屯門其他地方。」他在選舉期間認識了林健翔，於是他便建議掛個聯名辦事處在其選區的友愛邨，讓屯門鄉郊的街坊有需要便能過來求助，而與他合租辦事處的林健翔已辭職，因此辦事處即將關閉，他也在本月中已遣散其職員。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091308im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/張錦雄-區議員-20210727225207_1d3a_large.jpg" alt="">
+<figcaption>訪問當日是張錦雄議員助理的Last Day，他正向議助交待最後的工作。伍銘熙攝</figcaption>
+</figure>
+
+身為同志組織香港彩虹創辦人的張錦雄又表示，性小眾的身份亦是令他選擇留下的原因，因為現時香港願意在媒體為性小眾社群發聲的人不多，而作為少數公開出櫃的議員，如果自己離開，他擔心將無法利用議會資源討論有關議題，所以他認為自己有責任堅持下去。
+
+張舉例指，無論同樂運動會、同志遊行、康文署有關同志的書下架等，現時只要談論到有關同志的議題，大部分記者及傳媒都會只能詢問他的意見，「有時都幾無奈，因為前立法會議員陳志全被囚禁咗、另一位區議員岑子杰亦囚禁埋，但香港芸芸幾百個區議員都唔係話無同志，男同志同女同志都有，只不過好多都唔能夠come out（出櫃）。所以我有時會諗，我唔係淨係做一個屯門鄉郊區議員，其實某程度上我有個使命感，我都係要為性小眾發聲。」他指假若所有人都入獄，所有人都不願意出櫃，還有誰能夠為性小眾發聲？所以他很珍惜現時的崗位，產生動力希望堅持到最後一秒。
+
+即使最後要面臨破產，甚至入獄，也真的在所不辭嗎？他向記者緩緩道出他的人生座右銘：「寧願為了自己做過的事後悔，都不寧願為自己沒做過的事而遺憾。」
+
+<figure>
+<img src="https://web.archive.org/web/20210922091308im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/張錦雄-同志遊行-岑子杰-20210727225646_2a81_large.jpg" alt="">
+<figcaption>岑子杰（左）和張錦雄是少數公開「出櫃」的區議員。   受訪者提供</figcaption>
+</figure>
+
+話雖如此，但他亦擔心自己能否完成整個任期，「政治一日都嫌長，如果聽日紅線又郁一郁，可能曾經講過『結束一黨專政』都唔得嘅話，我以前做過支聯會嘅活動喎，係咪都要被DQ呢？真係今日唔知聽日事。」但張錦雄向街坊承諾，只要他尚在其位，就會盡量做好自己的職責，「照樣去探監、開會、巡區、廿四小時都開住電話接聽街坊來電，做得一日得一日，可能我只係比其他區議員做多少少時間，但我都會做好佢，因為呢個係我嘅職責。」
+
+張錦雄坦言假若自己被DQ後，最令他憂慮的是屯門鄉郊的居民找不到其他人幫手，上一任的陶錫源在該區做了七屆，但仍有很多當區居民都向他反映過，陶錫源並沒有為屯門鄉郊做過「實事」，只懂得間中派「蛇齋餅粽」，有居民希望爭取在附近的行人天橋興建升降機，向陶錫源爭取多年都無成果，但張錦雄只上任了短短一年半，卻已經為屯門鄉郊的居民成功爭取在行人天橋興建升降機，有居民稱讚指，自從他當選後，該區才真正擁有一名做實事的區議員。
+
+<figure>
+<img src="https://web.archive.org/web/20210922091308im_/https://hkcnews.com/news_新聞/hk-discuss/2021/07/區議員派物資-張錦雄-20210727224957_12c0_large.jpg" alt="">
+<figcaption>張錦雄經常強調「取之於民、用之於民」，他希望用區議員的身份及能力，盡可能幫助有需要的居民。   曾港深攝</figcaption>
+</figure>
+
+他認為自己不時在選區舉辦不同活動或贈送物資，不知不覺令該區的居民亦連結起來，所以就算很多人指區議員的職能越來越少，不能發揮，但在屯門鄉郊這個選區，對他而言卻有很大的發揮空間，「絕對有得發揮，仲可以有好多嘅創意係裡面。我哋可以嘗試唔同嘅嘢，我哋可以夾埋其他區議員一齊做去佢，將自己嘅資源支持返公民社會，保存實力；或者做多啲組織嘅發展，議會方面就放輕啲，反正都無得發揮。」張錦雄又指，只要多一個人辭職，就多了一個機會讓民政處去委任建制派當選，等同於主動將現有的資源向對家拱手相讓，如此便會糟蹋了2019年11月投票予民主派的市民期盼。
+
+張錦雄亦透露，他願意留守議會，選擇堅持到底，是因為香港人過去兩年所表現出的堅毅不屈令他也一同成長，令他更有動力一同堅持。雖然他知道最近很多政治、社會事件令到大家很絕望，甚至很多香港人都選擇離開香港，他表示非常理解，亦不會怪責離開的人。但並不是每個人都能選擇離開，所以他寄語仍然留在香港的市民，不要忘記初衷，大家互相扶持，一齊堅持到最後。
+
+
+{{< video src="https://web.archive.org/web/20210922091308if_/https://www.youtube.com/embed/xzPoC-cI_zk" >}}
+
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210922091308/https://hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,76 @@
+---
+title: "【林鄭評律師會政治化】2014時任會長林新強稱「共產黨好偉大」　現屆候選理事有廣西政協"
+date: "2021-08-17"
+last_updated: "2021-08-20 11:50:34"
+author: "記者鄭啟智"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "彭韻僖"
+  - "香港律師會"
+url: "https://web.archive.org/web/20211026235518/https://hkcnews.com/article/44481/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44598/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2014%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44481/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44598/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD2014%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【林鄭評律師會政治化】2014時任會長林新強稱「共產黨好偉大」　現屆候選理事有廣西政協
+
+律師會選舉在即， [特首林鄭月娥今早（17日）開腔](https://web.archive.org/web/20211026235518/https://bit.ly/3yT8Dl3) ，指律師會倘若被政治凌駕法律專業，政府不排除終止與律師會的關係。過去律師會一直由親建制派主導，亦曾出現「政治化」的舉動，其中前會長林新強於在任期間（2014年）公開表示「共產黨好偉大」，最終被會員罷免後辭職。今次選舉中，「專業派」部分候選人亦帶有政治色彩，其中黃巧欣曾獲立法會議員何君堯推薦，袁凱英亦為現任廣西防城港市政協委員。
+
+<figure>
+<img src="https://web.archive.org/web/20211026235518im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/律師會-彭韻僖-林鄭月娥-20210817185851_18ef_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+### 前會長林新強指法官愛國無問題　後遭罷免
+
+過去律師會在親建制派主導下，亦曾出現「政治化」爭議，包括2014年前律師會會長林新強被罷免事件。2014年6月，國務院發表一國兩制白皮書後，林新強回應指白皮書不影響本港司法獨立，又認為要求法官愛國沒有問題，稱愛國是公民責任。林新強又公開讚揚中國共產黨，說：「我覺得共產黨好偉大，因為它將我們的國家帶領到一個新紀元，我好欣賞他們。」
+
+林新強的言論在法律界牽起極大爭議，律師任建峰和蔡家玲動議對其的不信任動議，動議在2014年8月以6成票數通過。林新強被罷免後宣佈辭職。
+
+<figure>
+<img src="https://web.archive.org/web/20211026235518im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/林新強-20210817174818_1107_large.jpg" alt="">
+<figcaption>前律師會會長林新強於2014年曾公開表示「共產黨好偉大」，被會員罷免後辭職。資料圖片</figcaption>
+</figure>
+
+### 「專業派」候選人曾獲何君堯推薦、一人為政協
+
+律師會將於8月24日改選5個理事席位。今屆11名候選人中，現屆理事黃巧欣牽頭的5人團隊標榜「專業派」，立場被視為親建制，部分候選人的背景亦帶有政治色彩。其中黃巧欣2018年參選律師會理事時，曾被列入立法會議員何君堯的推薦名單。另一候選人袁凱英則為現任廣西防城港市政協委員，他早前接受傳媒訪問時曾稱，會分開政協與理事一職，指政協只向內地當局提供意見，屬於「榮譽」。
+
+<figure>
+<img src="https://web.archive.org/web/20211026235518im_/https://hkcnews.com/news_新聞/hk-discuss/2018/06/黃巧欣-律師會-20180601013006_2730_large.jpg" alt="">
+<figcaption>爭取連任的「專業派」黃巧欣過去曾獲立法會議員何君堯推薦。資料圖片</figcaption>
+</figure>
+
+部分現任律師會理事的背景亦具政治色彩，其中2019年中當選的江玉歡，於2014雨傘運動期間，曾發起默站行動反對運動。她於2015年更曾代表新民黨參選區議會選舉落敗，其後於2016年退出該黨。另一現任理事湯文龍自2016年當選，他在雨傘運動期間，亦曾與馬恩國、梁美芬等人參與高等法院外的默站行動，呼籲佔領者離開及促請政府立即執法捍衛法治。
+
+另外，現任律師會會長彭韻僖，前會長林新強、劉漢銓，亦已報名參選法律界選委，如果當選將有權提名和選出行政長官，以及負責選出40席選委會界別立法會議員。另一身為全國政協委員的前會長蘇紹聰，亦料自動成為選委。
+
+### 被視為開明派候選人韋恆理：十分諷刺，似政治威脅
+
+對於林鄭的言論，爭取連任的羅彰南（Jonathan Ross）回應指，即使被視為開明派的4人全部當選，律師會理事會只會被真正政治中立的人控制，不會令政府顧慮。他有信心即使4人當選，律師會不會被視為政治組織，不需承受後果。羅彰南又認為，林鄭以至中央政府過份擔心，直言「我猜他們不知道我們是誰。（I guess they don't know who we are.）」
+
+另一被視為開明派的韋恆理（Henry Wheare）則指，部分政治立場更鮮明的候選人將其他候選人描繪為政治化，是十分諷刺。他又直言，對於林鄭指控律師會可能變得政治化，相信不少律師會會員會感到憤怒。他強調，作為一名沒有政治主張的律師，不會視林鄭的言論為威脅，又指出投票權利應該不受外界影響並能自由、公平地行使。他又認為，難以相信政府真的有打算或有資源承擔律師會的監管角色，認為似乎是部分候選人試圖影響選舉的政治威脅。
+
+<figure>
+<img src="https://web.archive.org/web/20211026235518im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/律師會-韋恆理-20210811122803_13d0_large.jpg" alt="">
+<figcaption>被視為開明派的韋恆理。資料圖片</figcaption>
+</figure>
+
+至於「專業派」則回應指，認為律師會需要履行專業團體應有的專業職能，一直實行的自我監管功能符合業界真正需要，亦對社會有利，因此只要一個專業團體不作政治平台， 政府沒有需要終止與其的關係和溝通機制。
+
+今次律師會選舉共有11人參選，將改選20名理事會成員中最資深5人的席位，5名退任理事分別為白樂德（Denis Brock）、陳達顯、藍嘉妍、羅彰南、黃巧欣。其中白樂德、羅彰南、黃巧欣將競逐連任。另外8名候選人分別為陳國豪、傅嘉綿、袁凱英、岑君毅、馬秀雯（Selma Masood）、韋恆理（Henry Wheare）、黎蒑、唐瑋綸，選舉將於下星期二（24日）投票。
+
+【律師會選舉相關新聞】   
+ [開明派評國安法　白樂德：如「方孔中的圓釘」　韋恆理持觀望態度](https://web.archive.org/web/20211026235518/https://bit.ly/2XbIAYs)   
+ [馬秀雯參選　推動律師會就重要議題發聲　盼重建公眾對法治希望](https://web.archive.org/web/20211026235518/https://bit.ly/36A0uWe)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026235518/https://hkcnews.com/aboutus/#subscribe)

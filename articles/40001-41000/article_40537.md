@@ -1,0 +1,33 @@
+---
+title: "原擬五月重啟　旅遊氣泡又延後"
+date: "2021-04-22"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "新加坡"
+  - "singapore"
+  - "星加坡"
+  - "旅遊氣泡"
+url: "https://web.archive.org/web/20210712061047/https://www.hkcnews.com/article/40537/%E6%96%B0%E5%8A%A0%E5%9D%A1-%E6%97%85%E9%81%8A%E6%B0%A3%E6%B3%A1-40537/%E5%8E%9F%E6%93%AC%E4%BA%94%E6%9C%88%E9%87%8D%E5%95%9F-%E6%97%85%E9%81%8A%E6%B0%A3%E6%B3%A1%E5%8F%88%E5%BB%B6%E5%BE%8C"
+original_url: "https://www.hkcnews.com/article/40537/%E6%96%B0%E5%8A%A0%E5%9D%A1-%E6%97%85%E9%81%8A%E6%B0%A3%E6%B3%A1-40537/%E5%8E%9F%E6%93%AC%E4%BA%94%E6%9C%88%E9%87%8D%E5%95%9F-%E6%97%85%E9%81%8A%E6%B0%A3%E6%B3%A1%E5%8F%88%E5%BB%B6%E5%BE%8C"
+---
+
+# 原擬五月重啟　旅遊氣泡又延後
+
+<figure>
+<img src="https://web.archive.org/web/20210712061047im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/旅行-20210422123124_1990_large.png" alt="">
+</figure>
+
+據悉，新加坡同香港旅遊氣泡再度延遲，暫時未有新的替代日子。雙方本來今日公布五月的旅遊氣泡安排，彭博報道今次由新加坡方面提出延後。
+
+但消息指出，預期只是短期押後公布，但未知具體原因。
+
+商務及經濟發展局局長邱騰華早前指出，已與新加坡討論重啟「旅遊氣泡」安排，若港人參與旅遊氣泡，須先接種疫苗。香港與新加坡曾於去年合作建立「航空旅遊氣泡」，兩地居民旅遊可豁免為期14天的強制檢疫。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712061047/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,53 @@
+---
+title: "疑搞顏色革命　或有幕後推手　不是更應調查嗎？"
+date: "2019-08-07"
+last_updated: "2019-08-08 03:08:12"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "張曉明"
+  - "zhang xiaoming"
+  - "獨立調查委員會"
+url: "https://web.archive.org/web/20210805055750/https://www.hkcnews.com/article/22713/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/22713/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-22715/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 疑搞顏色革命　或有幕後推手　不是更應調查嗎？
+
+
+{{< video src="https://web.archive.org/web/20210805055750if_/https://www.youtube.com/embed/ZBKzAtUafOA" >}}
+
+
+特首林鄭月娥一再拒絕切實回應市民5大訴求，包括成立獨立調查委 員會，周一將訴求扭曲為搞革命、反一國兩制，為中央介入開路；昨日，港澳辦發言人楊光在北京記者會上表示，激進示威活動正將香港拖向危險深淵，呼籲市民「止暴制亂、恢復秩序」。港澳辦和中聯辦今日在深圳舉行香港局勢座談會，中聯辦主任王志民再吹雞，鼓勵愛國愛港人士出錢出力舉辦撐香港和撐警活動，積極和大力行動，盡快平息社會動亂。
+
+中央和港府說要「止暴制亂」，不少市民也希望「止暴制亂」，即警方停止暴力、制止林鄭搗亂；短期內最有效的做法是進行獨立調查。港澳辦主任張曉明在深圳會上表示，現時最重要止暴制亂，否則社會不能運行，組織調查也沒有意思，在事件平息後，則可以考慮成立獨立調查委員會。
+
+過去2個月，社會不同界別包括商界都要求成立獨立調查委員會，民調顯示有8成人支持，「社會不能運行」，是因為政府連最基本的進行調查也拒絕，張曉明說的是歪理，他說可在事件平息後可以考慮成立獨立調查，又「可在」、「可以考慮」， 有人相信嗎？
+
+張曉明、王志民、林鄭和兩位前特首過去發表的言論，白紙黑字，正好說明需要一個獨立全面調查，查找真相和不足。
+
+報道引述消息指，張曉明在會上表示，香港的示威活動有很多特徵，與顏色革命相似，包括社會討論時是非不分，有人強詞奪理，控制整個討論平台。張曉明應該要求林鄭調查，搜集証據，弄清楚這是否一場顏色革命，誰在搞革命。
+
+前特首董建華較早前指出，「今次風暴提升之快速、規模之龐大， 組織看似鬆散，但實際精密及隱秘，與過去群眾運動明顯不同， 有理由令人相信有幕後推手，亦可能有外國勢力介入，種種跡象可見，指向台灣及美國。」董建華大惑不解，說可能是台灣及美國在幕後推。假如董建華認真地懷疑，應認真地要求政府調查，要對自己的說話負責。
+
+前特首梁振英已正式懸紅，追查掉國旗落海黑手，相信他也對任何可提供掉國旗落垃圾筒資料的人士重重有賞。連番出現掉國旗事件，背後是否有推手，梁振英應要求林鄭調查。
+
+中聯辦王志民認為，資本主義社會的運作，導致社會發展不平衡，可能是導致年青人上街的其中一個因素。據說王志民早前在中聯辦長期參與年青人工作，他既然也搞不清楚，亦理應支持獨立調查，搞清楚年青人上街原因。
+
+林鄭至今仍堅持逃犯條例修訂初心正確，但草案和她本人政治生涯壽終正寢，香港受重創，市民吸入過多催淚煙，感到窒息；反送中示威演變成「光復香港」 革命，反一國兩制，甚至是董建華形容的要「爭奪特區管治權」，無論是剖析自己政治生命倒數原因，或查找「月娥之亂」根源，亦解答張曉明、王志民、董建華和梁振英提出的疑問，林鄭還有什麼原因拒絕搞獨立調查？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805055750/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20210805055750im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

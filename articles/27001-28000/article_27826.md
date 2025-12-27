@@ -1,0 +1,50 @@
+---
+title: "公權力須制衡而非包容"
+date: "2020-03-13"
+last_updated: "2020-03-13 18:29:48"
+author: "王永平"
+category: "眾說"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "監警會"
+  - "警暴"
+url: "https://web.archive.org/web/20211025035254/https://hkcnews.com/article/27826/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/27826/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27831/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 公權力須制衡而非包容
+
+日前特首林鄭月娥回應傳媒質疑有警員粗暴對待市民和記者時，提到過去大半年來警方在處理群眾事年上承受極大壓力，不可能在電光火石之間做得一絲不苟，希望大家包容。不過，她強調不會縱容任何部門或公務員做出不合法的行為。
+
+
+{{< video src="https://web.archive.org/web/20211025035254if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F146434536582191%2F&show_text=0&width=560" >}}
+
+
+今屆政府官員經常用希望市民「包容」的言詞，回應對為自己或警員涉嫌處事不當的批評。這個說法有違政府不斷提醒市民要守法，以至打算用幾億元推廣法治的立場。要求無權的市民包容有權的官員，尤其是可以使用武力的警員，也不符合文明社會的道德標準。奉公守法是法治制度對所有人，特別是公職人員的最低要求。聚焦奉行普通法的港式法治，其核心價值是藉此對執法機構或人員，行使可以導致損害平民百姓的自由、財產，甚至生命的權力，作出適當的制衡和監察。因此，一個健全的法治制度是要確保所有違法或違規的公職人員，受到應有的法律制裁或紀律處分。
+
+#### 「包容」公權力的概念不存在法治內。以擁有極大殺傷力武器的警隊為例，涉事警員承受「極大壓力」，不能成為「包容」他們犯法或違規後免受刑責或懲處的理由，最多只是考慮減輕刑期或處分的因素。
+
+其實政府希望市民包容行為失當的警員的說法沒有實質意義，因為市民只能投訴，無權跟進。相反，既然特首提出要對涉事警員包容，警方高層自然會心領神會，傾向對違法違規的警員「網開一面」。尤有甚者，與其他文明法治地區不同，香港的監警會沒有獨立調查權，所有涉及警員的投訴都是由警方全權調查。這是之前政府邀請的國際專家拒絕參與監警會工作的原因。在這個情況下，當有警員涉嫌違法或違規時，「包容」和「縱容」之間的距離或兩者會否二合為一，不是由特首而是由警方高層決定。過往市民投訴警員行為不當的成功率不超過百分之二。過去大半年，反修例事件雖然有很多警民衝突發生在電光火石之間，但不少是有圖有片顯示警員涉嫌使用過分武力或舉止粗暴。可惜，到目前為止，我們看不到監警會或警方公布一份有完整詳情及結論的相關報告。
+
+總結一句，在一個法治社會，公權力須制衡，而非包容。官員如是，警員更如是。希望日日講法冶的領導官員明白這個道理，並以律己以嚴的態度看待自己及警員的行為。
+
+**本文原刊於筆者在 [am730專欄](https://web.archive.org/web/20211025035254/https://www.am730.com.hk/column/新聞/公權力須制衡而非包容-211142)**
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025035254/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 王永平](https://web.archive.org/web/20211025035254im_/https://hkcnews.com/uploads/avatars/3a86932e-98d0-47b8-83e2-a0d4295ae3f3.png?941408611)
+
+**博客 | 王永平**
+
+【王永平／不平則鳴】1948年生於香港。香港大學主修經濟，1969年畢業後短暫任職商界。1973年加入政府，歷任駐關貿總協定（GATT）、國際貿易組織（WTO）香港常任代表；民政總署署長、教育統籌司。1997年香港回歸，獲委任為教育統籌局局長，後任職公務員事務局局長、工商及科技局局長。2007年退休後，在報章撰寫評論文章及主持電台時事節目，又曾執教鞭，任城大公共及社會行政學系客座教授、港大政治與公共行政學系名譽教授，現為職業訓練局顧問。著作有《平心直說》、《不平則鳴－王永平論政》及《通識思考，時事點評？》。

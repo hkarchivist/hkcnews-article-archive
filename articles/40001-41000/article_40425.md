@@ -1,0 +1,77 @@
+---
+title: "【新聞查冊系列一】記者申查林鄭出生婚姻登記　入境處近半年仍未放行"
+date: "2021-04-19"
+last_updated: "2021-04-19 17:47:56"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "入境處"
+url: "https://web.archive.org/web/20210923185644/https://www.hkcnews.com/article/40425/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40429/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/40425/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-40429/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【新聞查冊系列一】記者申查林鄭出生婚姻登記　入境處近半年仍未放行
+
+政府多個部門在2019年底陸續收緊查冊安排，入境處雖聲稱傳媒可提出申請，但無透露記者獲批查冊宗數。眾新聞記者特意去年11月初到入境處申請翻查特首林鄭月娥的出生及婚姻登記，去年12月再入紙申請翻查另一重要公職人員的出生登記，但入境處至今都未完成處理。
+
+當局花近大半年時間處理記者總共三宗申請，本身較入境處的服務承諾滯後近十數倍。根據 [入境處網頁](https://web.archive.org/web/20210923185644/https://archive.is/nclSM) ，當局聲稱只需要7個工作天翻查出生登記或婚姻紀錄。
+
+<figure>
+<img src="https://web.archive.org/web/20210923185644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/03/林鄭月娥-20210330172719_17a3_large.jpg" alt="">
+<figcaption>眾新聞早前先後提出出生及婚姻登記查冊，查閱特首林鄭月娥的相關紀錄。EYE PRESS資料圖片</figcaption>
+</figure>
+
+出生及婚姻登記一直是新聞界查冊其中一個重要登記冊，歷年來揭露不少新聞人物的重要關係，例如律政司司長鄭若驊的僭建風波、財政司司長陳茂波家人在新界東北土地的爭議。過去做法均是申請人填妥資料及支付相關費用後，便獲提供相關出生或婚姻登記紀錄，有關使用也受《個人資料私隱條例》規管。
+
+記者在11月申請特首「鄭月娥」的出生及婚姻登記資料，一個月後再因事態發展再申請查閱另一個公職人員的出生登記。由於入境處指記者並無當事人授權，記者即場補充由入境處提供的資料表格，已列明是基於新聞用途、公眾利益及審查入境處登記制度等理由提出申請查冊。當時入境處無即時收取費用，以顯示要進一步考慮申請。
+
+12月底，記者親身到金鐘政府合署出生登記處追問申請進度，負責個案的入境處人員才要求記者進一步提交補充資料，以考慮申請目的。記者質疑一開始申請時，已應處方要求提交補充資料，詢問有什麼妨礙申請，當局還需要什麼資料？入境處人員說需要相關文件參考，並重申涉事兩個出生及婚姻申請「考慮中、處理中，唔係無做過任何嘢」，並留下聯絡電郵給記者書面提交補充資料。
+
+及後入境處亦無回音，無說接納或拒絕申請，或要求更多資料。
+
+<figure>
+<img src="https://web.archive.org/web/20210923185644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/入境處-查冊-20210419160419_2390_large.png" alt="">
+</figure>
+
+3月中，記者再次登門查詢，一名較高級的入境處人員重申仍在處理申請，記者詢問有否違反入境處本身的服務承諾，入境處人員回覆說：「因為服務承諾是for一啲直接嘅case，但如果有啲相對複雜嘅case，會需要長少許時間。」
+
+記者追問，為什麼提出申請多月以來當局從無聯絡？入境處人員回覆需要額外資料的話，會再次聯絡記者。記者又問，律政司甚至國安處有否介入處理申請，入境處人員只說「無資料提供」。
+
+<figure>
+<img src="https://web.archive.org/web/20210923185644im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/04/查冊-林鄭月娥-收緊查冊-20210419155746_1e22_large.jpg" alt="">
+<figcaption>記者去年11月提出的資料申請。眾新聞記者攝</figcaption>
+</figure>
+
+在一個多星期後，入境處才來信向記者索取「所有證明文件/資訊」（all supporting documents/information），以佐證申請目的及翻查登記紀錄後的用途。
+
+入境處一直聲稱，根據《出生登記條例》，出生登記冊的目的有二，一是令生死登記官備存所有出生登記紀錄，以履行條例下的法定責任；及所謂在合法情況下，用來核實有關人士身分、年齡、家庭關係等。
+
+不過翻查《出生登記條例》第22(1)條，在支付翻查登記費用後，「任何人均有權要求登記總處或分區登記處的登記官員」安排翻查，條例進一步列明負責登記官員「在有人提出該要求後須安排該翻查在該登記官員認為合適的登記冊的索引、登記紀錄或電腦紀錄內進行」。第22(2)條進一步列明，任何人支付查冊或紀錄副本費用後，「均有權要求得到登記紀錄內記項的副本」，若副本要投寄海外則需要額外支付費用。
+
+香港記者協會主席楊健興說，當局近期處理多個資料登記冊，明顯全面收緊不給傳媒查冊，預計大部分出生或婚姻登記都不會批准以新聞報道作為查冊理由，「會否有一些個案，評估沒有什麼所謂就給（傳媒）查呢？可能是不涉及官員或公眾人物的。」
+
+他說，當局做法實在地影響傳媒工作，即使私隱條例下都列明新聞工作受豁免，質疑政府不想傳媒透過查冊報導或發揮監管功能，難免衝擊傳媒基本功能。記協早前去信政制及內地事務局及運輸署關注查冊安排，但都無回音，針對近日財庫局收緊公司查冊，楊健興說會再去信給當局，令採訪活動成為公司查冊合理用途之一。
+
+**眾新聞記者申請翻查出生及婚姻登記時序**
+
+**2020年11月4日：** 眾新聞記者遞交申請，要求翻查「鄭月娥」的出生登記及婚姻登記。應入境處要求，記者即場填寫補充資料，表明申請基於新聞用途（包括但不限於調查及研究目的）、盡職審查、公眾利益，及訊問入境處處理公眾登記冊。
+
+**2020年12月3日：** 眾新聞記者再遞交另一個申請，要求翻查另一名公職人員的出生登記。應入境處要求，記者亦同樣填寫補充資料，表明查冊目的是新聞用途。
+
+**2020年12月22日：** 記者到金鐘政府合署入境處出生登記處追問處理申請進度，負責個案的入境處人員回覆仍在處理當中，並首次詢問記者有否補充資料提交，其後留下電郵地址。
+
+**2021年3月9日：** 由於入境處一直無回音，記者再到金鐘政府合署入境處出生登記處查詢申請進度，一名較高級的入境處人員回應說仍然處理申請中，並重申如果需要額外資料，將聯絡記者。
+
+**2021年3月19日：** 入境處書面來函要求記者在約兩星期內，提交所有證明文件佐證提出申請目的及查冊用途。
+
+**2021年4月7日：** 記者書面回覆並重申對《出生登記條例》及《婚姻條例》條文的理解，並附上採訪證件及條文內容。
+
+**2021年4月19日：** 負責的入境處人員稱申請仍然處理當中。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923185644/https://www.hkcnews.com/aboutus/#subscribe)

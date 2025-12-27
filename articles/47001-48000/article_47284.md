@@ -1,0 +1,41 @@
+---
+title: "陳同佳案兩岸再交手！台灣陸委會：若高等法院裁定有管轄權　將提供證據，不設任何阻礙"
+date: "2021-11-04"
+last_updated: "2021-11-05 00:28:41"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "陳同佳"
+  - "陸委會"
+  - "司法管轄權"
+url: "https://web.archive.org/web/20220117032032/https://www.hkcnews.com/article/47284/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47284/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 陳同佳案兩岸再交手！台灣陸委會：若高等法院裁定有管轄權　將提供證據，不設任何阻礙
+
+陳同佳在台灣殺害女友潘曉穎案，在律師入稟高等法院稱港府有司法管轄權，台灣陸委會副主委邱垂正今（4）日下午表示，若香港高等法院裁定港府確有司法管轄權，將積極提供相關證據，決不會設置任何障礙，早日還給被害人與家屬公道。
+
+<figure>
+<img src="https://web.archive.org/web/20220117032032im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/11/陳同佳-司法管轄權-陸委會-20211104184002_4b5b_large.png" alt="">
+<figcaption>邱垂正今下午表示，若香港高等法院裁定有陳同佳司法管轄權，將提供相關證據，不設任何阻礙。取自陸委會YouTube直播</figcaption>
+</figure>
+
+邱垂正下午在記者會上表示，關於陳同佳案，陸委會一再重申，為確保本案後續偵查及審判的順利進行，基於證據完整性與合法性不容被挑戰，台港雙方應進行兩岸司法互助合作的必要性與重要性。
+
+邱垂正說，若香港高等法院裁定港府有司法管轄權，並向台灣政府提出請求，台灣政府會在對等、尊嚴及互惠基礎上，積極提供相關證據，決不會設置任何障礙，以協助港方後續追訴，共同實現司法正義，以還給被害人與家屬公道。
+
+針對司法管轄權爭議，台灣消費者文教基金會名譽董事長游開雄律師接受眾新聞訪問時表示，最簡單的司法管轄權概念就是依犯罪行為地而定，也就是「屬地主義」，以陳同佳案來看，犯罪地在台灣，所以台灣擁有司法管轄權，絕對毋庸置疑；但各國政府對於司法管轄權都有競合問題，「若高等法院最終裁定港府有管轄權，也不意外」。
+
+游開雄說，若港府最終裁定香港有司法管轄權，就算台灣陸委會承諾會提供所有相關證據，但後續還是要先討論清楚，審判過程應該如何進行？若未來審判終結，陳同佳在台灣是否適用「一事不再理」原則？都還有很大爭議空間。不過，司法管轄權與主權息息相關，也讓這起刑事案件成為「政治問題」。
+
+<figure>
+<img src="https://web.archive.org/web/20220117032032im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/10/陳同佳-gov%20hk-陸委會-20201015233855_b3a3_large.jpg" alt="">
+<figcaption>陳同佳案在台、港政府各有堅持下，至今仍膠著未能進行實質審判。</figcaption>
+</figure>
+
+陳同佳涉嫌2018年2月17日殺害同赴台灣旅遊的女友潘曉穎，隔日以皮箱裝箱後棄屍草叢，陳同佳案發後搭機返港；台、港雙方對於司法管轄權及陳同佳投案等爭議，多次隔空交鋒，上月20日更透過陳同佳委任台灣旅師稱，七度致電台灣刑事局聯絡窗口，最後卻遭回以「不用再打電話聯繫」，迄今未獲回覆；台灣法務部則回批，已向港府提出三次司法互助請求，同樣未獲港府任何回應。
+
+邱垂正曾公開批評港府，先前陳同佳表達願赴台投案，卻透過特定媒體釋出此一訊息，刻意攀指這個窗口不要再打，「明顯是畫錯重點，甚至是混淆視聽」；他呼籲港府，「如潘媽媽所懇求的，要勇敢的踏出步伐，盡快與我方商討解決之道，進行本案的相關司法互助，使犯嫌得到應有的法律制裁」。
+
+不過，案件膠著至今，由律師蕭思江擔任主席的「港人民權民生黨」2日入稟高等法院，指由於死者是香港居民，故律政司有權在香港起訴陳同佳謀殺，要求法庭確認其理解正確。入稟狀同時游說陳同佳，謂台灣有死刑，在港認罪可免一死，而台灣可能不久便會回歸中國，只是時間問題。

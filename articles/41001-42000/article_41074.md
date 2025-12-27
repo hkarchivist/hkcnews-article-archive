@@ -1,0 +1,61 @@
+---
+title: "「強制啪針」事件簿"
+date: "2021-05-07"
+last_updated: "2021-05-07 06:28:10"
+author: "關公筆記"
+category: "眾說"
+tags:
+  - "外傭"
+  - "菲傭"
+  - "印傭"
+  - "變種病毒株"
+  - "疫苗接種"
+url: "https://web.archive.org/web/20210925033856/https://www.hkcnews.com/article/41074/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41075/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41074/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41075/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「強制啪針」事件簿
+
+<figure>
+<img src="https://web.archive.org/web/20210925033856im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/菲傭-強制檢測-變種病毒株-20210502183233_1e1a_large.jpg" alt="">
+<figcaption>政府突然宣布全港卅多萬外傭要在十日內強制檢測，很多姐姐只好利用五一假期來排隊檢測。美聯社</figcaption>
+</figure>
+
+【撰文：何琦】   
+   
+ 政府因應有外傭感染變種病毒，接連規定數十萬外傭在短時間內強制檢測、在簽新約來港或續約時必須接種疫苗，然後特首在短短幾日後「彈弓手」指未有定案，值得引為公共關係及傳訊的個案討論。   
+   
+ 過去，政府在推出大政策時，必會在政策文件詳述理據，其他國家地區相關經驗，以至社會和環境影響等等。有時間會先作諮詢，即使緊急亦會事先知會最重要的持份者。政策局不但要向立法會解釋，亦要訂出與持份者溝通的清單，擬定主要的對外訊息和傳媒答問等等。   
+   
+ 但在疫情之下，這些程序似乎已可完全省略。   
+   
+ 各國政府都想盡辦法鼓勵市民打疫苗，但強制接種則完全是另一回事。打針與否涉及個人健康狀況及很多其他因素，應屬個人選擇，全球也極少對某個群體強制接種的先例，連世衛官員亦不只一次表明，政府應說服而非規定國民接種，強制可能帶來反效果。   
+   
+ 政府提出的理據是，已有兩宗外傭感染新變種的個案，而且外傭有群聚習慣。但要截斷本地傳播鏈，除了正常的社交追縱、強檢和隔離之外，是否需要連帶將數十萬外傭定為需要打疫苗的高風險群組？今後如有其他人士（例如公務員）不幸感染新變種病毒，是否也會強制整個群體打疫苗？   
+   
+ 如有即時風險，應規定所有人在指定時間內打針，但只規定新來港或續約時打，顯然是繼食肆和酒吧之後重施故技，將打疫苗與工作掛鉤，更進一步將「鼓勵」提升為「規定」。
+
+<figure>
+<img src="https://web.archive.org/web/20210925033856im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/05/羅致光-變種病毒株-印傭-20210507061302_1dc4_large.png" alt="">
+<figcaption>勞福局局長羅致光講出這樣涼薄的話。</figcaption>
+</figure>
+
+以抗疫之名，一項影響數十萬人的政策如此匆匆推出，未有照會菲、印駐港領事，當然亦沒有跟外傭組織以及關注少數族裔權益的團體溝通。局長更以「可以選擇唔嚟」這種理由申辯。引起外傭團體的強烈反應，以至各界的議論和批評——連駐港領事及菲國外長亦發聲關注，實在正常不過。一場危機就此形成，幸好這次政府及時見勢轉舵，才能避免撞正冰山。   
+   
+ 怎樣對待最弱勢社群，體現了一座城市的文明程度，這次「強制啪針」事件可說是香港的新常態。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210925033856/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 關公筆記](https://web.archive.org/web/20210925033856im_/https://www.hkcnews.com/uploads/avatars/f69d4d1e-cd5a-4c62-bf94-3be93743f9b7.png?2031211754)
+
+**博客 | 關公筆記**
+
+【關公筆記】集結一群公關從業員的專業心得，呈現關公的智慧、仁義、勇氣，與眾分享。

@@ -1,0 +1,44 @@
+---
+title: "馬時亨獲續任港鐵主席半年"
+date: "2018-11-19"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "港鐵"
+  - "港 鐵 公司"
+  - "mtr"
+  - "地鐵"
+  - "香港地鐵"
+  - "mtr hong kong"
+  - "hong kong mtr"
+  - "mtr hk"
+  - "香港 地铁"
+  - "hk mtr"
+  - "Mass Transit Railway"
+  - "馬時亨"
+  - "Frederick Ma"
+  - "沙中線"
+url: "https://web.archive.org/web/20210712022643/https://www.hkcnews.com/article/16552/%E6%B8%AF%E9%90%B5-%E9%A6%AC%E6%99%82%E4%BA%A8-%E6%B2%99%E4%B8%AD%E7%B7%9A-16552/%E9%A6%AC%E6%99%82%E4%BA%A8%E7%8D%B2%E7%BA%8C%E4%BB%BB%E6%B8%AF%E9%90%B5%E4%B8%BB%E5%B8%AD%E5%8D%8A%E5%B9%B4"
+original_url: "https://www.hkcnews.com/article/16552/%E6%B8%AF%E9%90%B5-%E9%A6%AC%E6%99%82%E4%BA%A8-%E6%B2%99%E4%B8%AD%E7%B7%9A-16552/%E9%A6%AC%E6%99%82%E4%BA%A8%E7%8D%B2%E7%BA%8C%E4%BB%BB%E6%B8%AF%E9%90%B5%E4%B8%BB%E5%B8%AD%E5%8D%8A%E5%B9%B4"
+---
+
+# 馬時亨獲續任港鐵主席半年
+
+港鐵（66）收市後下午4時半發上市 [通告](https://web.archive.org/web/20210712022643/http://www3.hkexnews.hk/listedco/listconews/SEHK/2018/1119/LTN20181119260_C.pdf) ，公布主席馬時亨獲財政司司長法團續任半年，新的主席任期由2019年1月1日起至2019年6月30日。馬時亨在2016年獲委任為港鐵主席時，任期為3年，至今年12月31日屆滿。
+
+港鐵早前爆出沙中線紅磡站剪鋼筋風波等工程問題，8月出現管理層大地震，行政總裁梁國權提早退休、工程總監黃唯銘及3名沙中線項目總經理級高層離職。馬時亨當時表示，曾兩度向特首林鄭月娥請辭但被挽留。
+
+馬時亨當時說，選擇繼續做一份壓力大的工作，「因為我係一個好有責任感嘅人」，政府希望他留下來處理沙中線問題，及完成港鐵行政總裁的招聘工作。在宣布梁國權提出提早退休後，港鐵董事局已成立行政總裁遴選委員會展開全球招聘，由馬時亨任委員會主席。馬時亨曾說，招聘一般需時6至9個月，若在年底前找到行政總裁，便不再需要他服務，「完全願意退位讓賢」。
+
+<figure>
+<img src="https://web.archive.org/web/20210712022643im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/05/高鐵-mtr-馬時亨-20180502064811_1999_large.png" alt="">
+<figcaption>馬時亨獲續任港鐵主席半年。資料圖片</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712022643/https://www.hkcnews.com/aboutus/#subscribe)

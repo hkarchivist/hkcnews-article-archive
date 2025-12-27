@@ -1,0 +1,52 @@
+---
+title: "【11.3大埔超級城】三女涉襲警阻拉人　官裁定罪成還柙至下月判刑"
+date: "2021-10-30"
+last_updated: "2021-10-30 13:02:01"
+author: "記者劉偉琪"
+category: "眾聞"
+tags:
+  - "警察"
+  - "policeman"
+  - "police"
+  - "警方"
+  - "逃犯條例"
+  - "大埔超級城"
+url: "https://web.archive.org/web/20220117040828/https://www.hkcnews.com/article/47070/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47072/%EF%BF%BD%EF%BF%BD%EF%BF%BD113%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/47070/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47072/%EF%BF%BD%EF%BF%BD%EF%BF%BD113%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【11.3大埔超級城】三女涉襲警阻拉人　官裁定罪成還柙至下月判刑
+
+前年11月3日反警暴示威當天，三名女子被指在大埔超級城襲警，以阻止警員拘捕示威者，她們早前否認意圖抗拒受到合法拘捕而襲擊罪受審。裁判官黃國輝今裁決指，現場片段顯示大批示威者為阻止警員拘捕疑犯，一同包圍及施襲，而三名被告的衣著及外型均吻合片段所見的其中三名涉案者，裁定三人罪成。黃官表明無可避免會判監，將案件押後至11月18日判刑，以待索取背景報告，其間三被告須還柙。
+
+<figure>
+<img src="https://web.archive.org/web/20220117040828im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/大埔超級城-20211030122127_6003_large.jpg" alt="">
+<figcaption>被告陳君怡（碎花上衣女）被指當日阻止警員凌兆禧（中間軍裝警）拘捕被告鄭玉珍（灰衣），被凌壓在地上制服。</figcaption>
+</figure>
+
+三名被告依序是家庭主婦陳美霞（50歲）、保安員鄭玉珍（55歲）及學生陳君怡（27歲），她們被控意圖抗拒受到合法拘捕而襲擊罪，涉前年11月3日在大埔超級城意圖防止李光祐受到合法拘捕而襲擊高級警員58690郭文廸。陳另被控一項意圖抗拒受到合法拘捕而襲擊罪，指她意圖防止鄭玉珍受到合法拘捕而襲擊警員7308凌兆禧。
+
+### 辯方：警員證供前後不一   
+ 官：事隔兩年記錯不出奇
+
+黃官裁定，控方傳召的7名警員證人均誠實可靠，證供獲接納。對於辯方質疑警員郭文廸庭上供稱，李光祐阻止警員進入商場時做出「吹咩」的手勢，其書面供詞及記事簿卻沒有相關紀錄。黃官認為，書面供詞及記事簿用作記載重點，有關手勢只屬細微事項，即使沒記錄也不影響警員證供可信性。
+
+至於辯方質疑警員凌兆禧證供前後不一，指凌起初稱制服涉嫌擲物的次被告期間，第三被告用手箍他的頸，後又改稱是「伸手落我條頸度搲我落地」。黃官認為，凌於事隔兩年後出庭作供，記錯亦不足為奇，不影響其證供可信性；而且他所供稱的施襲姿勢，與傷勢報告及涉案片段吻合，反映其說法可靠。
+
+證據方面，黃官指警方於事發後三個月，才在首被告家中拘捕她，並將其手機拍攝影片及社交網站帖文呈堂，惟法庭無法確認首被告拍攝了有關影片及撰寫帖文，故裁決時不會給予任何比重。
+
+### 三名被告衣著外形吻合片中人
+
+對於三名被告共同面對的首項意圖抗拒受到合法拘捕而襲擊罪，黃官比對涉案影片及三名被告的外形後，認為三人的衣著、樣貌及身型，均吻合影片中的犯案者，裁定她們便是片中人。影片顯示，警員郭文廸制服疑犯李光祐期間，首被告及第三被告與其他示威者一起包圍及襲擊他，讓李逃走，裁定兩人罪成。
+
+黃官續指，片段亦顯示示威人群襲擊郭時，次被告急步走進人群中，然後身體及手部作出「些微動作」，意圖擲物襲擊郭。根據共同犯罪原則，裁定她也罪成。
+
+至於第三被告面對的另一項意圖抗拒受到合法拘捕而襲擊罪，黃官指片段顯示警員凌兆禧上前拘捕欲擲物的次被告時，第三被告從後箍警員的頸阻止，裁定她罪成。
+
+### 求情：電光火石魯莽下犯案
+
+辯方求情指，首被告已婚並育有兩子一名盡責的家庭主婦，是家中的重要精神支柱，她被捕後因承受巨大精神壓力而失眠。辯方强調，首被告在電光石火間錯誤犯案，並非出於仇恨社會；冀法庭考慮到涉案警員沒有受傷，李光祐最終也落網，可從輕發落。
+
+至於次被告，辯方指她是一名單親媽媽，獨力養大兩名兒子，其父親在案發後因癌病逝世，對她造成巨大打擊。至於第三被告，辯方强調她本性善良，在魯莽之下犯案，並透露她正在修讀社工系碩士課程，本案很可能令她無法實現做社工的夢想。
+
+案件編號：FLCC1570/20

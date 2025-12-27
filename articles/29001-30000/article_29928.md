@@ -1,0 +1,99 @@
+---
+title: "警方拒公開《警察通例》所有章節標題　申訴專員歷時9個月調查　裁定眾新聞投訴成立"
+date: "2020-06-01"
+last_updated: "2020-06-01 06:45:34"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "香港警務處"
+  - "警務處"
+  - "警務署"
+  - "香港警務署"
+  - "香港警务处"
+  - "申訴專員"
+  - "警察通例"
+url: "https://web.archive.org/web/20210923182103/https://www.hkcnews.com/article/29928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30486/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29928/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30486/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警方拒公開《警察通例》所有章節標題　申訴專員歷時9個月調查　裁定眾新聞投訴成立
+
+**反送中運動期間，警方因過度使用武力及槍械、濫捕、拒絕披露身份等問題而屢受抨擊，被質疑違反既定操守及程序。然而，規管警員紀律及行為的《警察通例》，多個關乎警方使用武力、拘捕等規範的章節並不對外公開，公眾無從了解及監察。**
+
+**眾新聞記者去年6月透過《公開資料守則》，要求警方提供《警察通例》所有章節的標題，惟警方以損害調查、逮捕、檢控和維持公眾秩序等理由，拒絕披露各章節的標題。**
+
+**記者去年8月向申訴專員投訴，經過近9個月，申訴專員本月13日回覆，裁定眾新聞記者投訴成立。專員指出，《警察通例》的標題只籠統交代相關章節的主題，並未包含任何具體內容，不會導致警方所述的情況，警務處的說法「實屬牽強」，建議警務處重新按《守則》考慮記者索取資料的要求。**
+
+**記者遂要求警方按裁決提供《通例》所有章節的標題，警方上周三（5月27日）回覆指，正就公署於報告中提出的內容進行內部檢視，未有提及預計完成時間。**
+
+<figure>
+<img src="https://web.archive.org/web/20210923182103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/警務處-警察通例-申訴專員公署-20200515225732_1904_large.png" alt="">
+</figure>
+
+[《警察通例》](https://web.archive.org/web/20210923182103/https://www.police.gov.hk/ppp_tc/11_useful_info/pgo.html) 至少有76個章節，當中有關警員使用武力及槍械、作出拘捕的部份，一直未有公開。過往有傳媒引述警方內部文件，顯示《通例》第29章關乎武力及槍械的使用。眾新聞去年6月20日透過電郵，向警察公共關係科索取《通例》第29章原文，惟警方回覆指，有關武力使用的指引涉及行動細節，不適宜公開。
+
+記者去年6月24日根據《公開資料守則》，要求警方提供《警察通例》所有章節的標題，並於6月28日接獲回覆，指《警察通例》的資料可於警務處網頁瀏覽。
+
+記者即日、去年6月28日向警務處公開資料主任澄清，指警務處網頁只列出《通例》部分章節，並非所有章節，促請處方重新檢視查詢。警方去年7月5日回覆指，由於《警察通例》經過多年修訂，部分章節內容並不存在。此外，根據《公開資料守則》第二部2.6(e)及2.6(f)，部分資料未能披露。
+
+> **《公開資料守則》2.6(e)：**   
+ **資料如披露會令防止、調查和偵查罪案及罪行，以及逮捕或檢控罪犯的工作…受到傷害或損害。**
+
+> **《公開資料守則》2.6(f)：**   
+ **資料如披露會令維持安寧、公眾安全或秩序、或保障財物的工作受到傷害或損害。**
+
+記者去年7月31日再度以電郵向警務處公開資料主任查詢，要求警方具體說明哪些章節內容並不存在、哪些章節並不公開，同年8月9日獲得回覆，警方重申，已將可供公眾查閱的資料上載網頁，不公開的《通例》則涉及行動資料，根據《公開資料守則》第二部條文未能披露有關資料。記者同日就警務處公開資料主任的決定向申訴專員投訴。
+
+申訴專員完成調查後，今年5月13日發出調查報告。
+
+### 警方：披露標題或有助不法人士逃避偵查
+
+報告引述警務處解釋，指未有公開的章節，性質涉及警務處雜項及刑事案件的調查程序及面對的限制，以及各項執法行動的部署安排及程序等。若公開該些章節，「有可能有助意圖擾亂公眾安全及秩序的人士或其他不法人士掌握該處調查案件及執法的程序，從而藉此設法逃避及阻撓警方執法，那便會影響到該處履行維持治安、防止及偵查刑事罪行等法定職責的工作。」
+
+警務處稱，雖然投訴人只要求查閱《通例》的章節標題，但處方認為章節的標題與內容「有緊密關連」，不宜分開處理。警方指出，披露標題「有可能引發意圖干犯某類罪行的人士設法取得與該類罪行有關的章節之內容，從而找出針對性的方法去逃避警方的偵查和執法。」
+
+此外，警務處認為，公開《通例》所有章節的標題，或會令公眾人士「誤以為該處只著重某類型的案件或執法範圍」，引發不法人士伺機干犯《通例》沒有觸及的罪行。
+
+<figure>
+<img src="https://web.archive.org/web/20210923182103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/新城市廣場-五一黃金周-防暴警察-20200505003712_c284_large.jpg" alt="">
+<figcaption>警方認為，公開《警察通例》標題，或會對不法人士、意圖擾亂公眾安全或威脅他人財物的人士有利，可能影響警方偵查罪案、維持公眾安全等工作。EYEPRESS照片</figcaption>
+</figure>
+
+### 申訴專員批警務處說法實屬牽強
+
+報告指出，警務處因應調查，向申訴專員公署提供了《通例》所有章節的標題。公署認為，該些未予公開的章節標題，只籠統交代相關章節的主題，並未包含任何具體內容，公署相信單純披露該些章節的標題而非內容，不會導致警方所述的情況。申訴專員形容，警務處的說法「實屬牽強」。
+
+**申訴專員提到，警務處2003年4月曾 [向立法會保安事務委員會提交文件](https://web.archive.org/web/20210923182103/https://www.legco.gov.hk/yr02-03/chinese/panels/se/papers/se0506cb2-1779-1c-scan.pdf) ，列出當時《通例》不公開的章節之標題。公署指出，沒有資料顯示當年披露《通例》不公開章節標題的做法，曾引發警方所述的情況或憂慮，進一步印證警務處拒絕披露現時《通例》不公開章節的標題，理據並不充份。**
+
+<figure>
+<img src="https://web.archive.org/web/20210923182103im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/警察通例-立法會-20200601021649_abe6_large.png" alt="">
+<figcaption>截圖來源：2003年4月立法會保安事務委員會文件。</figcaption>
+</figure>
+
+### 警方：索取資料者無表明涉及重大公眾利益
+
+警務處隨後回應申訴專員，指處方曾徵詢法律意見，堅持援引《公開資料守則》第二部2.6(e)及2.6(f)拒絕披露資料是合理的。
+
+警務處表示，審視投訴人的要求時，應以《通例》對該處運作的整體性考慮，披露所有章節的標題可能會讓不法人士掌握《通例》涵蓋的範疇，繼而損害警方的執法效能。《通例》部份內容載有警方對案件的調查程序及指引，一旦披露「會協助不法人士推敲該處整體調查案件及其他執法行動的能力，有機會引致不法人士刻意逃避或干擾調查程序，或刻意干犯《警察通例》沒有羅列的罪行」。
+
+至於2003年向立法會披露標題，警務處指，處方在處理每一宗索取資料要求時，仍會獨立考慮有關要求的獨特情況。警務處又稱，記者提出索取資料要求時，沒有表示特定目的，或可能涉及重大公眾利益。
+
+### 申訴專員：索取資料不必表明目的　警務處未能提供充份理據拒披露
+
+申訴專員反駁警務處指，《公開資料守則》的規定，旨在維持政府開明問責，本身就是為了公眾利益。市民提出索取資料要求時，無需表明任何特定目的，或指明涉及什麼公眾利益。相關指引更明言，索取資料的目的，或拒絕披露索取的目的，不能成為拒絕發放資料的理由。
+
+公署表示，同意如披露某些資料，會影響到警方防止和偵查罪案，或維持公眾安全等工作，該損害的性質是嚴重的。而在現時的社會氣氛下，「某些人士的確會希望打擊警方的執法工作」。不過，公署指出，警務處未能進一步說明，不法人士有何實際可能藉此（公開章節標題）損害警方的執法效能，或推敲出警方整體的執法能力，亦沒有證據顯示不法人士會誤以為《通例》沒有涵蓋的罪行是警方沒有足夠能力處理，「畢竟罪行種類繁多，《警察通例》沒不能，亦不會涵蓋所有罪行」。
+
+申訴專員指，公署認同即使警務處過往曾公開所有章節標題，不表示現時必須跟隨當年的做法，惟警務處未能指出當年做法有何不妥，或造成什麼損害，或今昔情況有何分別。
+
+申訴專員總結指，警務處未能提供充份理據而拒絕披露資料，公署認為記者的投訴成立，並建議警務處重新按《守則》考慮記者索取資料的要求，除非有具體、有說服力的理據援引《公開資料守則》第二部，否則應接納記者的要求。
+
+記者獲悉裁決後，於上月18日向警方要求提供《通例》所有章節標題。警方27日回覆，表示已收到申訴專員公署的報告，並正進行內部檢視公署於報告中提出的內容。記者上周四（28日）再以電郵查詢警方預計何時完成檢視，警方未有回覆。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210923182103/https://www.hkcnews.com/aboutus/#subscribe)

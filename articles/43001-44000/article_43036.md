@@ -1,0 +1,43 @@
+---
+title: "「革命」被指自古意含「推翻政權」　政府及官員致辭曾多次使用"
+date: "2021-07-03"
+last_updated: "2021-07-04 01:49:27"
+author: "實習記者黃麗莎"
+category: "眾聞"
+tags:
+  - "港版國安法"
+  - "劉智鵬"
+url: "https://web.archive.org/web/20210928064938/https://www.hkcnews.com/article/43036/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43041/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/43036/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-43041/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「革命」被指自古意含「推翻政權」　政府及官員致辭曾多次使用
+
+國安法首案上周五（2日）續審，控方就「光復香港、時代革命」的意涵，找來專家證人、嶺南大學歷史系教授 [劉智鵬作供](https://web.archive.org/web/20210928064938/https://www.hkcnews.com/article/43009/%E5%85%89%E5%BE%A9%E9%A6%99%E6%B8%AF%EF%BC%8C%E6%99%82%E4%BB%A3%E9%9D%A9%E5%91%BD-%E5%8A%89%E6%99%BA%E9%B5%AC-%E6%B8%AF%E7%89%88%E5%9C%8B%E5%AE%89%E6%B3%95-43009/%E3%80%90%E9%80%90%E5%AD%97%E7%B4%80%E9%8C%84%E3%80%91%E6%8E%A7%E6%96%B9%E5%8A%89%E6%99%BA%E9%B5%AC%E7%A8%B1%E3%80%8C%E5%85%89%E5%BE%A9%E3%80%81%E9%9D%A9%E5%91%BD%E3%80%8D%E6%84%8F%E6%B6%B5%E5%8D%83%E5%B9%B4%E4%B8%8D%E8%AE%8A-%E6%8C%87%E6%A2%81%E5%A4%A9%E7%90%A62016%E5%B9%B4%E9%80%A0%E5%8B%A2%E5%B7%B2%E5%85%B7%E6%B8%AF%E7%8D%A8%E6%84%8F%E5%91%B3) ，指「革命」一詞從古至今均意指為「推翻政府並取而代之」。眾新聞翻查資料，政府新聞稿及官員發言過去亦不時使用「革命」一語，除了提及事件如工業革命、辛亥革命等，亦用於政治以外的其他範疇如商界、科技及經濟等，描述重大的範式轉移。
+
+在2016年時任勞工及福利局局長的張建宗，便曾在發表演說時，將僱主推動關愛文化的「正面改變」形容為一次「靜默革命」。2018年特首林鄭月娥回應立法會議員質詢時，曾表示有留意內地推動「公廁革命」，希望本港亦能改善公廁衞生環境。
+
+<figure>
+<img src="https://web.archive.org/web/20210928064938im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/07/國安法-20210704010047_1ebe_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+政府新聞處資料庫的搜尋系統顯示，由1995年至今曾出現「革命」一詞的新聞稿或官員發言，總共有607個結果，顯示歷年來政府官員講稿及官方新聞稿中，不乏使用「革命」一詞。當中除了用作描述事件如工業革命、辛亥革命等，政府亦應用此詞於形容多個範疇如生物、科技和經濟的突破發展。例如前市政局曾以「植物繁殖起革命」為題，舉辦有關微體繁殖植物法的講座；早年科技發展尚在起步階段，「電腦革命」、「基因革命」、「廣播業革命」等用語亦在官方新聞稿出現。
+
+2016年梁天琦曾以「光復香港時代革命」作選舉口號，國安法首案控方專家證人劉智鵬作供時指，當中「革命」一詞有港獨意味，且此詞在歷史上自古意涵是「推翻政權及取而代之」。然而該年政府官員發言或新聞稿中便提及「革命」次數達43次，其中10多次與孫中山誕辰150周年或辛亥革命活動有關，其餘大多用於其他範疇。
+
+其中包括2016年時任勞工及福利局局長的張建宗在出席「積金好僱主」嘉許典禮上 [致辭時](https://web.archive.org/web/20210928064938/https://www.info.gov.hk/gia/general/201610/04/P2016100300677.htm) ，便以「靜默革命」來形容許多企業積極響應政府呼籲，推動關愛文化︰「我將這種僱主和商界文化的正面改變，形容為一次靜默革命，或一個重大的範式轉移。」張建宗在2000年時任勞工處處長時，亦曾以「香港的職業安全健康管理：靜默的革命」為題 [發表演說](https://web.archive.org/web/20210928064938/https://www.info.gov.hk/gia/general/200003/21/0321073.htm) 。
+
+特首林鄭月娥亦曾在公開發言時多次使用「革命」一詞，例如2018年在立法會回應議員質詢時，被議員姚思榮問到「有否考慮在香港進行一場公共廁所革命」， [林鄭回應指](https://web.archive.org/web/20210928064938/https://www.info.gov.hk/gia/general/201804/11/P2018041100621.htm) 留意到「在內地由上而下現在正推動一個公廁革命」，希望香港亦能夠改善公廁衞生環境。
+
+同年她在哀悼高錕教授逝世時，便形容高錕教授「為現代通訊科技帶來革命性的變化」；在出席財新峰會致辭時，引用國家主席習近平曾發表的主旨演講，形容「改革開放是國家的第二次革命」，並指出了它至今取得巨大的成就。
+
+除了官員發言外，政府部門亦不時在新聞稿用上「革命」一語，表達一種突破、改變或新發展的意思。康文署曾多次在文藝活動或新聞稿使用，例如2016年一個當代傑出華人科學家講座，以「新量子革命」命名；2019年康文署發表的新聞稿曾形容，日本著名導演寺山修司乃電影界的「革命先驅」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928064938/https://www.hkcnews.com/aboutus/#subscribe)

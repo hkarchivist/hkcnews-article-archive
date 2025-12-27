@@ -1,0 +1,70 @@
+---
+title: "與無權無勢的被欺壓者同行"
+date: "2020-06-16"
+last_updated: "2020-06-16 03:38:21"
+author: "江丕盛"
+category: "眾說"
+tags:
+  - "警暴"
+  - "香港警察"
+  - "跪頸死亡"
+url: "https://web.archive.org/web/20210726170148/https://www.hkcnews.com/article/31041/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31044/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/31041/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-31044/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 與無權無勢的被欺壓者同行
+
+<figure>
+<img src="https://web.archive.org/web/20210726170148im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/跪頸死亡-Black%20Lives%20Matter-荷里活-20200616032050_1965_large.jpg" alt="">
+<figcaption>剛過去的星期日，美國各地都有反種族歧視的和平示威。圖為荷里活的遊行。美聯社</figcaption>
+</figure>
+
+美國三星期前爆發的大規模示威運動和香港這一年來爆發的大規模示威運動有不少相似之處：
+
+**1.　遍地開花，各地多次自發性的大規模和平示威；**   
+ **2.　突出執法者使用過度武力和殺傷力強大武器，過往投訴大多無實質執性效益；**   
+ **3.　突出結構性不公義，既得利益者無意改革，持續享有特權；**   
+ **4.　短時間內引起世界各地的認同和支持。**   
+ **5.　有破壞性的不法行為（美國的掠奪、縱火、破壞事件遠比香港的嚴重百倍）**   
+ **6.　最高首長（總統／特首）都把焦點置於暴動行為，揚言加強武力鎮壓，令人厭惡的傲慢態度甚至惹建制中的自己人不滿。**
+
+值得注意的是，被指控的美國警察反倒多次單膝下跪認同示威者的訴求，甚至護行、參與同行。不少軍方高層、朝野政要以及權貴，包括主流教會的教牧領袖都發聲支持和平示威者，高度表示關注示威者所提出的種族歧視、執法暴力等棘手問題。最重要的是，他們清楚明白大規模的和平示威非常容易被人騎劫，演發成騷亂或暴動。他們因此不容許在示威行動中所發生的嚴重破壞行為成為執法暴力和結構性不公義的遮羞布，讓執法者有藉口可以武力鎮壓和平示威。如果執政者和執法長官沒有同理心、沒有仁心智慧令局勢迅速降溫，反倒輕易動用軍警及大殺傷力重型武器，必然會造成社會更大的創傷和撕裂，也會輕易把原有和平示威的訴求擱置一旁不理了。
+
+<figure>
+<img src="https://web.archive.org/web/20210726170148im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/跪頸死亡-單膝下跪-police-20200616032651_b49f_large.jpg" alt="">
+<figcaption>德州奧斯汀警察總局的警察在示威者面前單膝下跪，以示認同示威者反種族歧視的訴求。美聯社</figcaption>
+</figure>
+
+反觀香港的權貴和一眾既得利益者一開始就淡化兩百萬和平遊行民眾的強力訴求，政府回應乏力，只意圖以武力和權力一味打壓，以依法行事的空洞口號迴避執法暴力問題和獨立調查訴求，結果造成無可挽回的社會嚴重衝突和撕裂，如今更要在國家安全下以嚴峻立法使得兩制形同虛設。
+
+不可忘記的是，2007/2008年，回歸後十年，香港人民普遍對一國兩制和中央政府的信心達歷史最高點。可惜的是，這之後竟每下愈況，清晰而合理的廣泛民意也往往被視為顛覆性的洪水猛獸。
+
+#### 基督信仰向來重視公義、平等、聆聽、謙卑和犧牲，教會因此必須與無權無勢的被欺壓者同行，絕不可維護執法暴力、特權和結構性不公義。如果教會教牧以及基督徒高官和權貴願意走二里路，不但發聲關注並譴責執法者使用過度武力和殺傷力強大武器，而且主動放棄自己享有的特權和既得利益，並致力改革結構性不公義，教會必定可以成為和平的管道，大大促進社會的和諧和共融。
+
+既是信仰群體的領袖，必須真誠反省：這信仰群體究竟是一個怎樣的信仰，自己在這信仰中應如何發聲和行動才真是群體的好領袖？
+
+聖靈降臨主日（5月31日）提醒教會，教會在聖靈降臨、聖火焚燒中誕生，讓我們懇切祈求：
+
+Veni, Sancte Spiritus!   
+ Veni, Creator Spiritus!
+
+<figure>
+<img src="https://web.archive.org/web/20210726170148im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/聖伯多祿大殿-梵蒂岡-20200616025628_1e06_large.jpg" alt="">
+<figcaption>Gian Lorenzo Bernini’s Dove of the Holy Spirit (1660)St. Peter’s Basilica, Vatican City</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726170148/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 江丕盛](https://web.archive.org/web/20210726170148im_/https://www.hkcnews.com/uploads/avatars/052952ae-2feb-4cad-b6a9-574b4305e24c.png?1333261278)
+
+**博客 | 江丕盛**
+
+【江丕盛・信 @公共】Quest Institute主席，前香港浸會大學系主任、教授；前中國神學研究院副院長、教授。88年10月從新加坡到香港任教，一晃逾卅載。古人以30年為一世，我在這塊土地上竟生活了一世。情未變，依然深愛香港，只是萬分感慨，她不再是我所認識的香港。不是沒有機會，但從未曾考慮過離開香港，我已屬於這地，不會離開她。

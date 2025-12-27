@@ -1,0 +1,101 @@
+---
+title: "$8億公帑買「銅芯」口罩無招標　創科局拒公開生產商及採購價"
+date: "2020-05-07"
+last_updated: "2020-05-07 02:51:10"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "創新及科技局"
+  - "創新科技署"
+  - "創新科技"
+  - "創新科技局"
+  - "可重用口罩"
+  - "政府派口罩"
+  - "銅芯抗疫口罩"
+url: "https://web.archive.org/web/20210928171631/https://www.hkcnews.com/article/29632/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29640/8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/29632/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29640/8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# $8億公帑買「銅芯」口罩無招標　創科局拒公開生產商及採購價
+
+武漢肺炎疫情在香港漸見緩和之際，政府宣布向全港市民免費派發可重用口罩「銅芯抗疫口罩」。據創科局指，「銅芯」口罩由政府資助機構「香港紡織及成衣研發中心」研發，於本地及東南亞製造。政府防疫抗疫基金為口罩項目預留8億元，但創科局指原料供應緊張、相關資訊敏感，為免被其他商家截糊等原因，沒有為口罩生產作公開招標，亦拒絕透露生產商資料。
+
+政府指每個「銅芯」口罩成本約40元。以政府計劃派發逾800萬個推算，涉及合共3.2億元，不及預算中8億元的一半。究竟口罩及濾芯的採購價是多少、是否涉生產成本以外的其他費用，創科局未有回應。
+
+相關的8億元是防疫抗疫基金撥款中撥出。香港紡織及成衣研發中心研發總監姚磊，2月初接受內地媒體 [訪問](https://web.archive.org/web/20210928171631/https://www.miaosong.cn/news/230005.html) 時表示，已跟一間香港公司和一間內地公司緊密合作，希望在半年內，或近月就可以將口罩推出市場。根據知識產權署資料，「銅芯抗疫口罩」的商標註冊是在3月23日提交。究竟政府是在何時與中心洽商及批出合約？8億元是如何訂出？交易涉及什麼私人公司？如何確保訂價公平公正？
+
+另一方面，立法會財委會文件顯示，本周五將審議向香港紡織及成衣研發中心追加撥款，原本2006至2021年的營運資助額是3.45億元，政府建議延長4年至2025年，金額加至5.59億元（增2.14億元）。「香港紡織及成衣研發中心」是政府設立的5間本地研發中心之一（另外4間是香港應用科技研究院、納米及先進材料研發院、物流及供應鏈多元技術研發中心、汽車零部件研發中心），自2006年起獲政府批出營運資金。
+
+<figure>
+<img src="https://web.archive.org/web/20210928171631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/銅芯抗疫口罩-20200506172659_f439_large.jpg" alt="">
+<figcaption>政府資料指，「銅芯抗疫口罩」有6層物，其中兩層物料含有銅，可以抑制細菌、常見病毒和其他有害物質。</figcaption>
+</figure>
+
+創科局局長薛永恒周二（5日） [介紹](https://web.archive.org/web/20210928171631/https://www.info.gov.hk/gia/general/202005/05/P2020050500780.htm) ，「銅芯」口罩的專利設計於2017年由「香港紡織及成衣研發中心」開發，並於2018年榮獲「日內瓦國際發明展」金獎。「香港紡織及成衣研發中心」由創新科技署撥款、香港理工大學承辦。根據公司註冊處資料，香港紡織及成衣研發中心有限公司是屬擔保公司，現有16名董事，由創新科技署官員、理大高層及本地紡織製衣業代表組成，包括已故愛國實業家楊元龍次女、溢達集團副董事長楊敏賢；立法會主席梁君彥胞弟、新興織造廠有限公司董事梁嘉彥；旭日企業有限公司董事許宗盛等。
+
+### 政府資助$128萬研發　沒公布生產成本
+
+創科局標榜「銅芯」口罩為「本地研發、本地應用」。據 [「香港紡織及成衣研發中心」網頁](https://web.archive.org/web/20210928171631/http://www.hkrita.com/rnd-project-database-detail.php?id=139&lang=hk) 資料指，可水洗口罩項目於2017年開始時，獲創新科技署的「科技券計劃」批出128萬元資助，並獲本地製衣公司KTC Limited，以及兩間內地紡織及製衣公司海斯摩爾生物科技有限公司、聯業制衣有限公司提供贊助，項目為期兩年，由2017年至2019年。
+
+<figure>
+<img src="https://web.archive.org/web/20210928171631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/香港紡織及成衣研發中心-銅芯抗疫口罩-20200507002240_9984_large.jpg" alt="">
+<figcaption>「香港紡織及成衣研發中心」研發的可洗水口罩，前年在「日內瓦國際發明展」上展出。「日內瓦國際發明展」網頁圖片</figcaption>
+</figure>
+
+至於生產開支，創科局常任秘書長蔡淑嫻指，政府防疫抗疫基金已預留8億元，有關款額是實報實銷，並非全數給香港紡織及成衣研發中心。她以「工作未完成」、現時「未埋數」為理由，指未能交代已用了多少款額，「當時預8億，係預一個數，即係申請防疫抗疫基金嗰陣時預嘅啫。」蔡補充指，大概估算每個口罩成本約40元。
+
+至於口罩由哪間公司生產，創科局局長薛永恒以保護「原料供應」為由拒絕透露，僅指在香港及東南亞都有生產點。
+
+**以每個「銅芯」口罩成本40元計，若生產800萬個，則涉及合共3.2億元，不及預算中8億元的一半。究竟創科局如何計算得出8億元預算？除生產成本，「銅芯」口罩及濾芯是否涉及專利費或其他費用？每個口罩及濾芯的採購價分別是多少，價錢如何釐定？**
+
+**眾新聞透過電郵向創科局查詢上述問題，創科局新聞組人員透過電話回覆，指「銅芯」口罩的專利權屬於「香港紡織及成衣研發中心」，而中心是政府全資擁有的機構，故「銅芯」口罩不涉及專利費，至於成本及預算方面，創科局新聞組人員著記者參考創科局局長及常秘的發言，局方沒有其他資料可補充。**
+
+### 創科局無公開招標　拒透露生產商
+
+根據 [《物料供應及採購規例》](https://web.archive.org/web/20210928171631/http://preview.site-locator.com/tb/tc/docs/spr_chapter3_c.pdf) ，招標承投價值超逾 143 萬元的物料及服務，或價值超逾 400 萬元的建造及工程服務時，政府一般需透過公開招標形式進行採購。只有當公開招標不能有效獲取所需物料、服務，方可採取單一或局限性招標，即是邀請一名或有限數目的承包商或供應商投標。
+
+**政府推出「銅芯」口罩的預算高達8億元，為何沒有為口罩生產作公開招標？**
+
+蔡淑嫻解釋，局方在1月及2月曾接觸10多間供應商，但部分未有檢測結果，未能證明產品功效，加上考慮到原料供應問題，局方在選擇供應商時要作全盤考慮。「喺一般嘅時間，梗係可以我哋（公開）招標，然之後你喺邊度生產，周圍買原料都得，咁就容易啦。我哋而家講緊係2月，疫情係好嚴峻嘅時間（物色生產商）。3月初開始生產（口罩）嗰陣時，其實都係一路造原料，一路生產（口罩），我哋都唔係咁肯定係咪真係得。」
+
+  
+
+
+
+{{< video src="https://web.archive.org/web/20210928171631if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F239585380602783%2F&show_text=0&width=560" >}}
+
+
+薛永恒周三（6日）接受電台節目，再次就局方不公開招標、不公布生產商解畫。薛永恒形容，口罩是全球抗疫的關鍵物資，生產商、原料、物流等都是敏感資訊，如果資料流出，港府便可能被「截糊」，即是物料有機會被其他國家或地區商人搶購或抬價。他又提到，港府早前曾為口罩招標，但過程非常艱苦，最終更零投標。
+
+### 鍾國斌：採購向來有規有距　促政府疫情過後交代
+
+紡織及製衣界立法會議員、自由黨黨魁鍾國斌，本身亦有生產可重用口罩。鍾國斌接受眾新聞查詢，指政府一直沒有就口罩生產事宜跟他聯絡。他表示，「銅芯」口罩由政府出資研發，產品的知識產權亦歸政府，既然政府己擁有一件產品，它不物色市場上其他同類產品，是合理、正常的；至於在生產方面，鍾提到，「銅芯」口罩需要特別的原材料，供應商並不多，如果政府公開招標，除了時間會較長，亦會讓外界知道有關計劃，可能造成原材料被抬價，或有人屯貨，可能令成本大增，並拖延生產時間。
+
+「佢（政府）嘅講法唔係冇道理，不過呢，一直以來採購都係有規有距，而家個優先次序擺喺邊度？如果係擺喺盡快派口罩畀市民，令市民一人有一隻口罩，呢個重要性高啲？定係要跟足所有程序？」鍾國斌指，「銅芯」口罩項目涉及龐大金額，政府不公開招標，壞處是予人私相授受的感覺，亦難免有利益輸送的嫌疑，他建議政府待疫情過後，向公眾作進一步交代。
+
+### 創科局：「銅芯」口罩非新興織造廠或南豐紗廠生產
+
+政府未有公布「銅芯」口罩生產商資料，民間輿論紛紛。特首林鄭月娥周三傍晚發布她到荃灣視察「銅芯」口罩其中一個生產點參觀的幾張照片，其中一張工場內部的照片，顯示工場其中一幅黑牆上有「1st Techstyle Maker Space」、「Startups」等字句，亦有車衣、軟尺等圖案，與南豐作坊Lab（Fabrica Lab）的環境十分相似，引起市民懷疑「銅芯」口罩由南豐紗廠生產。
+
+<figure>
+<img src="https://web.archive.org/web/20210928171631im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/05/林鄭月娥-香港紡織及成衣研發中心-銅芯抗疫口罩-20200507002253_372a_large.jpg" alt="">
+<figcaption>林鄭視察「銅芯」口罩生產點的其中一張照片左上角可見，工場一幅黑牆上有「1st Techstyle Maker Space」字句。政府新聞處圖片</figcaption>
+</figure>
+
+[南豐作坊Lab（Fabrica Lab）](https://web.archive.org/web/20210928171631/http://www.themillsfabrica.com/workspace/lab/) 由南豐紗廠及香港紡織及成衣研發中心共同支持運作，並以「全港首個techstyle原型製作空間」自居。（Powered by The Mills Fabrica and The Hong Kong Research Institute of Textiles and Apparel Limited (HKRITA), Fabrica Lab is the first techstyle prototyping space of its kind in Hong Kong）
+
+
+{{< video src="https://web.archive.org/web/20210928171631if_/https://www.youtube.com/embed/ZFTij7RLcjs?start=2" >}}
+
+
+此外，梁君彥胞弟、新興織造廠董事梁嘉彥，香港紡織及成衣研發中心其中一名董事。坊間有傳梁君彥及梁嘉彥的家族公司新興織造廠是「銅芯」口罩的生產商。
+
+不過，創科局周三傍晚 [發稿澄清](https://web.archive.org/web/20210928171631/https://www.info.gov.hk/gia/general/202005/06/P2020050600722.htm) ，指「銅芯抗疫口罩」並非新興織造廠有限公司或南豐紗廠生產。創科局指，「銅芯」口罩由香港紡織及成衣研發中心採購原材料、統籌生產、消毒至包裝等工序，以期在最短時間內為市民提供口罩。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928171631/https://www.hkcnews.com/aboutus/#subscribe)

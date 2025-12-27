@@ -1,0 +1,54 @@
+---
+title: "張炳良倡擁抱新形勢：十年廿年後回望　2019年或不算什麼一回事"
+date: "2021-11-19"
+last_updated: "2021-11-19 02:31:59"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "張炳良"
+  - "Anthony Cheung"
+  - "運輸及房屋局局長"
+  - "Secretary for Transport and Housing"
+  - "國安法"
+  - "管治"
+url: "https://web.archive.org/web/20220117165210/https://hkcnews.com/article/47901/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47902/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/47901/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47902/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-2019%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 張炳良倡擁抱新形勢：十年廿年後回望　2019年或不算什麼一回事
+
+離開官場的運輸及房屋局前局長張炳良，在新書重提困擾香港多年的管治問題，重申香港已播下民主種子，不可能重複港英時期無民主的管治模式，也難以維持技術官僚無需民意掌政的局面，並提醒必須在管治上有重大的範式轉移。在去年7月、國安法立法後，書中的定稿附篇中，張炳良說香港民主進程可能暫時延遲，但相信只要新一批政治人物及公民社會領袖在國安法下盡力，更有策略及懂得與大陸當局互動，民主進程不會煙消雲散。
+
+這位公共行政學者在新書發佈會上表示，香港在九七回歸歷程中一直強調不變，但大家深知不可能不改變，認為改用新的思維看待香港改變，就不會太介懷失卻過去。張炳良以2003年深圳面對上海長三角地區崛起、資金及人才外流，曾在當地面對「誰拋棄了深圳」的討論，但如今已無人記得。「從歷史的角度看，可能十年、二十年後回看，2019年或不算什麼一回事。」
+
+<figure>
+<img src="https://web.archive.org/web/20220117165210im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/呂大樂-城市大學-張炳良-20211119003114_4cff_large.jpg" alt="">
+<figcaption>張炳良（右）與教育大學副校長呂大樂對談，呂大樂問及書中集中討論過去的制度，到底如今是否仍然適用？張炳良說，在事件發生時，未必能說出所以然，就如麥理浩當年提出興建公屋也備受批評。他形容：「不給歷史一個機會，就不會做到更多。」林勵攝</figcaption>
+</figure>
+
+張炳良新書以《Can Hong Kong Exceptionalism Last？》（香港特殊性可否持續）為題，回顧香港自七十年代、《基本法》起草及主權移交後的管治制度歷程及變化。該書在2019年寫完初稿，在修例風波爆發及下一年國安法立法，最終以去年7月劃線。書中的序篇鳴謝已淡出政壇的前行政會議召集人林煥光就初稿提供意見，隨後各章節內容當中不少問題耳熟能詳，例如行政當局在立法會無票，政黨卻有票無權，特首難以兼顧同時向中央及特區問責的角色衝突問題、政改歷程多次無功而還等。
+
+張炳良在書中結語中提及，北京對管治及民主的態度與香港人期望頗為不同，在香港與內地累積矛盾及衝突、本土主義冒起下，雙方同時感到受對方威脅，不少年輕人及民主派人士將香港前途與中共倒台掛鈎，拒絕過去漸進式改革。張炳良一如過去走溫和路線作風，建議應在中國黨國體系前提下，重新勾劃香港的未來策略。
+
+張炳良回顧，中英八十年代在香港主權談判，英國著重保留英式制度，中方著重主權，當時憲制設計強調不變，也假設香港舊有行政主導的官僚制度無問題。張炳良認為未估計香港九七後的新形勢，而是仍然處於過渡期，種下其後香港矛盾、衝突及與中央不信任的種子。他承認，在回歸以來特首雙重角色中對中央效忠，導致港人對特首失去信心，但提醒香港已播下民主的種子，不可能再走港英年代無民主的管治模式，尤其是當社會越催分裂，越來越多市民失去信心。
+
+雖然目前示威平息，但張炳良在書中引用港英政府在六七暴動後推動社會政策改革，強調必須在悲觀情緒甚至香港宿命論（fatalism）下重新燃起希望。張炳良說：「正如持續多時的示威顯示，純粹依靠警察鎮壓，不能打破循環。執法要與政治和解及改革同時進行，管治上必須有重大範式轉移。到底特區政府能否在半個世紀前的殖民統治者身上吸取經驗，創造一個體制創新及希望的新時代？在北京的領導人又能否接受一個更彈性及開放地詮釋一國兩制，讓香港繼續成為全國非典型的都市，讓年輕人一代對香港、中國和他們未來更強的參與感？香港的年輕人能否在保留本土身分認同同時，對國家關注更加接納？」
+
+<figure>
+<img src="https://web.archive.org/web/20220117165210im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/馬時亨-張炳良-管治-20211119003136_1564_large.jpg" alt="">
+<figcaption>張炳良新書發佈會有多名前政府高官及政界人士到場支持，包括港鐵前主席馬時亨（左）、房屋署前署長應耀康、民主黨李華明等。林勵攝</figcaption>
+</figure>
+
+張炳良在去年國安法立法後，於書中的補篇提及，回歸初期依靠官僚及傳統精英的管治模式已來到轉捩點，但新一代政治及公民社會領袖可在國安法下繼續爭取民主，同時卻要有策略及務實，並形容新形勢下「這不是結局開始，而是新終點的序幕」（not the end of the beginning, but the beginning of a new end）。他舉例在1970年及1989年，民主派在當時立法局完全委任下未放棄爭取，並在1997年未知未來下繼續支持回歸。
+
+至於與中央關係，張炳良說雖然雙方互信基礎薄弱，重建需要一段艱苦的過程，但只要香港與大陸不是做零和遊戲，相信中央仍然珍重香港多元、自由、普通法制度及司法獨立的好處，但前提是在愛國及維護國家安全的紅線下辦事。
+
+張炳良接受眾新聞訪問時補充，新選舉制度不再使用五部曲，改變了過去政改的制度路徑（path dependence），未來一個人大決定已可改變選舉制度，技術上甚至更加靈活。他解釋，如果根據2007年時的路線圖，在立法會而言當時已經取消選委會，只是保留功能組別和地方直選議席，根據過去經驗，功能組別可「普選化」，「提名人、被提名者都是會計界選民，一般市民可以投，等於超級區議會都是這樣」。
+
+可是新選舉制度下選委會復辟及佔90席中的40席。張炳良說，《基本法》定稿時選委會只是過渡性，在目前新制下，選委會似乎會比較長期存在。「（北京）眼前最大的問題是不能被泛民控制立法會或成為關鍵少數，因為區議會經驗後，一普選泛民就贏，但又不想增加功能組別，所以唯有增大選委會。」
+
+對於部分建制派有聲音要求改革公務員制度，曾先後擔任行政立法議員的張炳良提醒，應分清楚具體制度或執行上出現的問題，並且不點名稱坊間有批評公務員的的「偽命題」。他舉例說，公務員與政治任命官員有不同意見，是英式制度的一部分，因為雙方角色不同，公務員在制度內應容許坦率地表達意見，「（英國）可能很多公務員不贊成脫歐，決定了就執行，但執行時都要保障公眾利益及國家利益。」
+
+張炳良說，英國近年制度容許部份部門首長或常任秘書長等職位公開招聘，並由政治問責部長決定人選，但加入體制後仍然根據公務員守則行事，「不能只是執行上級命令，如果政治官員有錯，需要政府制度內部平衡」。
+
+張炳良在書中提及兩類公務員改革，主要沿襲1999年的改革方向，一是改變架構及作業流程，引入評估等提高效率，二是政府可更積極檢視部門的表現，確保符合衡工量值原則。但1999年大刀闊斧推動公務員薪酬改革，後來引發2002年公務員上街示威，張炳良說任何薪酬改革必須取得公務員及社會充分信任，政府才有足夠能力推動改革。他坦言：「目前香港完全無上述條件（推動改革）。」

@@ -1,0 +1,44 @@
+---
+title: "拆局：駐台辦簽證未滿　港府借勢翻舊帳"
+date: "2021-05-21"
+last_updated: "2021-05-21 23:47:53"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "臺灣"
+  - "中華民國"
+  - "台灣"
+  - "經貿辦"
+url: "https://web.archive.org/web/20210805054505/https://www.hkcnews.com/article/41567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/41567/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41569/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 拆局：駐台辦簽證未滿　港府借勢翻舊帳
+
+港府周二突然宣布「暫時停止運作」香港經濟貿易文化辦事處(台灣)，事隔三日再出新聞稿指責台灣當局近年「多次粗暴干預香港事務」，無提及時間地點說「經貿文辦人員亦曾受島內激進人士威嚇」，決定暫時關閉台灣經貿辦，辦事處所有香港人員已經離台返港。綜合多方消息，目前香港經貿辦代理主任朱浩的在台簽證未到期，反而是由2018年起已擔任代理主任的朱浩本身可能「夠鐘」調回香港，被解讀成有預謀地向台方「翻舊帳」。
+
+<figure>
+<img src="https://web.archive.org/web/20210805054505im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/台北-台灣-20200815154158_252e_large.png" alt="">
+</figure>
+
+港、台之間近年一如兩岸關係並無特別起色，可是兩地互相限制人員簽證等並非新事。仔細翻查港府周五解釋的新聞稿，當中引述事例「炒舊料」，例如台灣去年6月推出「援港專案」、去年7月設台港服務交流辦公室，並非新事。
+
+翻查資料，台北最近一次發生香港駐台經貿辦外大型示威已是去年10月底，當時有過千人聲援當時仍拘押內地的12名涉偷越邊境的港人，當時有人燃燒中國國旗，在場台灣警方隨即用滅火器滅火。對上一次再傳出香港辦事處收恐嚇信，已是2019年8月香港爆發示威期間。
+
+港府在大半年不發一聲，及至今年4月，政制及內地事務局在立法會特別財委會中回應議員書面提問時，仍然表示駐台經貿辦本年度（2021-22年度）的人手編制維持與過去三個年度相同，人工預算甚至比前一年度的修訂預算多出九成。
+
+一個月多月後，港府態度隨即改變，港府在新聞稿中說：「由於經貿文辦已難以達到最初成立的目的，同時為保障駐台香港人員的安全和權益，特區政府因此決定暫時關閉經貿文辦，而所有香港人員亦已離台返港。」
+
+可是外界最關注的簽證問題，則並無提及。綜合消息指出，香港經貿辦代主任朱浩本身一年續一次的台灣簽證雖今年內屆滿，但本身未到期，加上面對在台請人困難等，均是長期存在問題，並非一時三刻突然改變的事。有知情人士形容，港府今次關閉經貿辦是準備多時，預計趁代辦調回港反擊台方，同時希望「雙方冷靜下先」。
+
+陸委會周五晚間則回應說，長期以來，台方從未對港方人員簽署施加任何條件，但香港2018年7月起對台灣駐港人員設置不合理要求，嚴重破壞台港關係。
+
+對於港府稱被威嚇，陸委會說台灣是民主多元社會，對民間團體在香港經貿辦抗議，台方都有派人在場維持秩序，事後也致電關切，反而台灣在港辦事處被抗議時港府不聞不問，放任親中傳媒抹黑。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210805054505/https://www.hkcnews.com/aboutus/#subscribe)

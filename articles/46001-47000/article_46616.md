@@ -1,0 +1,42 @@
+---
+title: "「脅迫獨立註冊之魔爪」伸向書院學生會　中大聯合書院學生會幹事會宣佈解散"
+date: "2021-10-18"
+last_updated: "2021-10-18 21:17:13"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "中文大學"
+  - "中大聯合書院學生會幹事會解散"
+  - "聯誓"
+url: "https://web.archive.org/web/20211128175658/https://www.hkcnews.com/article/46616/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46621/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46616/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46621/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 「脅迫獨立註冊之魔爪」伸向書院學生會　中大聯合書院學生會幹事會宣佈解散
+
+上任至今約七個半月、第五十九屆聯合書院學生會幹事會「聯誓」今（18日）宣布全數幹事會內閣成員請辭，並解散幹事會。該會在社交平台發聲明指，繼中大學生會後，校方亦已將「脅迫獨立註冊之魔爪」伸向書院學生會，別無他選下，全數內閣成員決定總辭，並解散學生會幹事會。
+
+<figure>
+<img src="https://web.archive.org/web/20211128175658im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/中文大學-聯誓-中大聯合書院學生會幹事會解散-20211018201918_185d_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+「聯誓」稱，聯合學生會幹事會創立至今多年來屢就院政、校政、時政等不公義議題發聲，冀弘揚書院校訓「明德新民」之精神，在象牙塔以外推己及人，關心社會，惟當今情勢下實踐校訓的空間恐怕也寥寥無幾。對於學生會幹事會於今天正式走到盡頭，「聯誓」指成員實在有負前人多年來的血與汗，謹向每一位聯合人致歉，同時衷心感謝各位支持。
+
+在聲明中，聯誓附上了書院校歌最後兩句，「浩浩青天，昭昭白日。爾式爾瞻，唯精唯一」。根據書院網頁，該兩句意指「青天浩瀚，白日當空。我們要保有這顆純潔精微的心，努力善道，作萬民的榜樣」。聲明最終以「就此別過，後會無期」兩句作結。
+
+今年3月，中大學生會幹事會當選內閣「朔夜」上任後隨即請辭，當時聯合學生會「聯誓」剛上任，在宣言內指出，「我等深信有朝一日爪牙將徹底伸向其餘成員學生會組織，最終無一倖免」，但亦表明他們不會退縮，「但我等仍會留守，為的不僅為個人信念，更是代表著同學之意志及覺悟，在艱苦克難時期誓死捍衛學生權益，伴隨各位同學砥礪前行，走出陰霾，共同迎接將近之黎明，我等絕不容易退縮」。
+
+根據聯合書院學生會會章，幹事會任期內，民選之會長、副會長及外務副會長同時或先後辭職，或民選之全體幹事二分之一或以上同時或先後辭職，則幹事會自動解散，由監議會主席為署理會長，組織臨時行政委員會，直至新幹事會產生為止。曾任中大學生會會長的楊政賢指，若按此寫法，會章中「自動解散」的意思應是指幹事會出缺，下屆如果有內閣參選學生會幹事會，新一屆學生會幹事會就會產生。
+
+對於中大學生會早前宣佈解散，日後若重新運作，會否受聯合書院學學生會幹事會解散影響？楊政賢解釋，學生會其中兩個機關為代表會及幹事會，代表會為立法機關，而幹事會為行政機關。只要書院辦周年大選選出普選代表，加上書院學生會委任代表加入，組成中大學生會代表會，學生會就會重新運作。
+
+不過，楊政賢指，如果其中一間書院學生會解散，「中大學生會仲係咪中大學生會呢？聯邦冇咗一個州，仲係咪一個聯邦呢？我覺得會是constitutional crisis（憲政危機）。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211128175658/https://www.hkcnews.com/aboutus/#subscribe)

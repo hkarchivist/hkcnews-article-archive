@@ -1,0 +1,93 @@
+---
+title: "【周梓樂死因研訊】警方代表陳詞　是示威者及物管人員令救援延誤　警無失職點解仲聽到批評聲？"
+date: "2021-01-05"
+last_updated: "2021-01-05 20:08:34"
+author: "記者邢穎琦、周滿鏗"
+category: "眾聞"
+tags:
+  - "香港警務處"
+  - "警務處"
+  - "警務署"
+  - "香港警務署"
+  - "香港警务处"
+  - "周梓樂"
+  - "熊健民"
+url: "https://web.archive.org/web/20210727223753/https://www.hkcnews.com/article/36988/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36993/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/36988/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-36993/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【周梓樂死因研訊】警方代表陳詞　是示威者及物管人員令救援延誤　警無失職點解仲聽到批評聲？
+
+**科大學生周梓樂死因研訊第26天，各方進入陳詞階段，代表警方的大律師熊健民陳詞時，多次指現場警員沒有阻撓和干預現場救援行動，也沒有失職，反指現場沒人需要警員留下協助才離開，認為是「各司其職」。他又多次反問，「救護人員負責急救、警員負責緝捕罪犯有咩問題？」「如果當時當地黃家倫（衝鋒隊第4小隊指揮官）無去就潛藏罪犯展開追捕，之後有無人責難黃家倫無去緝捕罪犯？呢到有無雙重標準係到？」**
+
+**熊健民又認為延誤救援的人包括，阻塞尚德十字路口、對救護車「寸步不讓」的示威者，以及廣明苑廣盈閣屋苑的管理人員，因管理人員容許有私家車阻塞消防閘，以致救護車無法直接駛近現場，「如果陪審團認為有延誤救治，罪魁禍首係負責廣盈閣的物業管理，佢哋係難辭其咎。」**
+
+<figure>
+<img src="https://web.archive.org/web/20210727223753im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/01/熊健民-周梓樂-20210105174611_2121_large.jpg" alt="">
+<figcaption>代表警方的大律師熊健民。周滿鏗攝</figcaption>
+</figure>
+
+### 警：新發現關鍵片段不影響專家意見
+
+熊健民一開始先代表警方向家屬致以慰問，他表示周梓樂事件造成家屬困惑，亦受外界高度關注，坊間亦對事件有不同憶測和說法，所以事件真相對於家屬和公眾都有重要意義。
+
+熊稱，陪審團不應該先入為主、被個人喜好和自身政治立場影響對證供的判決；為了消除公眾和家屬疑慮，法庭傳召現場警員、救護人員和志願急救員、熱心市民和不同範疇的專家作供。熊健民指出，各人不是來自政府某一個部門，不存在政府某一部門的「一言堂」，都在為了協助法庭尋找真相，故他們的積極性不應該影響證供的公正性。
+
+早前專家證人、政府化驗所高級化驗師鄭郁棋作供稱，警方校正尚德停車場A及富康花園的閉路電視系統的時間有錯。熊健民在陳詞時提到，雖然警方時間較對上有所錯漏，但有關較對問題不影響片段真實性。
+
+另外法官高偉雄早前曾在研訊休庭期間後發現廣明苑廣新閣拍到黑影墮下的關鍵片段。熊健民亦提到，化驗師鄭郁棋就該重要片段曾作出相關報告和意見，並指出有關片段沒有影響他進行較對的片段，反為引證他之前的意見，並不存在新發現的片段，誤導了鄭郁棋的意見。熊健民認為，就早前的呈堂證據，無任何法律代表提出片段有偽造或刪改的成份，指出今次聆訊證供和證物是非常全面。
+
+相關報道： [【周梓樂死因研訊】警方校對閉路電視「有不足」　政府化驗所專家：相信我會準啲](https://web.archive.org/web/20210727223753/https://www.hkcnews.com/article/36815/%E5%91%A8%E6%A2%93%E6%A8%82-%E6%AD%BB%E5%9B%A0%E8%AA%BF%E6%9F%A5-%E6%AD%BB%E5%9B%A0%E5%BA%AD-36815/%E3%80%90%E5%91%A8%E6%A2%93%E6%A8%82%E6%AD%BB%E5%9B%A0%E7%A0%94%E8%A8%8A%E3%80%91%E8%AD%A6%E6%96%B9%E6%A0%A1%E5%B0%8D%E9%96%89%E8%B7%AF%E9%9B%BB%E8%A6%96%E3%80%8C%E6%9C%89%E4%B8%8D%E8%B6%B3%E3%80%8D-%E6%94%BF%E5%BA%9C%E5%8C%96%E9%A9%97%E6%89%80%E5%B0%88%E5%AE%B6%EF%BC%9A%E7%9B%B8%E4%BF%A1%E6%88%91%E6%9C%83%E6%BA%96%E5%95%B2)
+
+### 「現場消防員沒提要求　因不需警員協助」
+
+熊健民之後提到警方當晚行動，指警員當晚的確有使用催淚彈和布袋彈驅散示威者；雖然研訊亦提到警方內部守則、國際公約的問題，但熊表示，沒有任何證據指出警員有違反，或如何違反守則和公約。
+
+熊健民稱，庭上亦多次關注警員有否阻撓對梓樂的救援工作，甚至警員是否袖手旁觀、見危不救。他指出，無論消防員、救護員、志願急救員和圍觀的熱心市民都異口同聲指出，警員並沒有阻撓和干預現場救援行動，他又引述現場消防員證供指，如要求警作出協助，會作出要求，但現場沒作出有關要求，是因為並不需要警方的幫助。
+
+<figure>
+<img src="https://web.archive.org/web/20210727223753im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/周梓樂-閉路電視-20191107004142_1772_large.png" alt="">
+<figcaption>熊健民引述現場消防員證供指，如要求警作出協助，會作出要求，但現場沒作出有關要求，是因為並不需要警方的幫助。領展CCTV截圖</figcaption>
+</figure>
+
+### 「救護急救、警緝捕罪犯　各司其職有何問題？」
+
+研訊第三天，代表家屬的大律師鄭淑儀曾盤問時任東九龍衝鋒隊第四小隊的指揮官、高級督察黃家倫，問黃在停車場看到傷者時，有否考慮消防車今次能否接近現場、曾否想過傷者能如何盡快離開並接受治療。黃回答，當時已有多名消防員及身穿反光衣的急救員，相信有足夠人手處理「一個」傷者，並指小隊有「更高層次的考慮」，即是「面對隱藏危機，任務是清除威脅，等他們安全救人。」
+
+相關報道： [【死因研訊】周梓樂爸媽代表律師盤問指揮官　對警方行動幾個質疑　法庭其後列警方為利害關係人](https://web.archive.org/web/20210727223753/https://www.hkcnews.com/article/35716/%E5%91%A8%E6%A2%93%E6%A8%82-%E9%BB%83%E5%AE%B6%E5%80%AB-%E6%AD%BB%E5%9B%A0%E8%AA%BF%E6%9F%A5-35720/%E3%80%90%E6%AD%BB%E5%9B%A0%E7%A0%94%E8%A8%8A%E3%80%91%E5%91%A8%E6%A2%93%E6%A8%82%E7%88%B8%E5%AA%BD%E4%BB%A3%E8%A1%A8%E5%BE%8B%E5%B8%AB%E7%9B%A4%E5%95%8F%E6%8C%87%E6%8F%AE%E5%AE%98-%E5%B0%8D%E8%AD%A6%E6%96%B9%E8%A1%8C%E5%8B%95%E5%B9%BE%E5%80%8B%E8%B3%AA%E7%96%91-%E6%B3%95%E5%BA%AD%E5%85%B6%E5%BE%8C%E5%88%97%E8%AD%A6%E6%96%B9%E7%82%BA%E5%88%A9%E5%AE%B3%E9%97%9C%E4%BF%82%E4%BA%BA)
+
+<figure>
+<img src="https://web.archive.org/web/20210727223753im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/死因庭-黃家倫-20201117223757_2452_large.jpg" alt="">
+<figcaption>時任東九龍衝鋒隊第四小隊的指揮官、高級督察黃家倫。資料圖片</figcaption>
+</figure>
+
+熊健民陳詞時再次引述黃家倫的解釋，指黃當時曾派隊員了解梓樂情況，確認沒任何人需要警員留下協助，之後便離開受傷現場。熊健民認為黃家倫的說法，簡單來說是「各司其職、道理顯而易見」。
+
+熊健民表示，可能有人不認同警方扮演的角色，或如供詞提到圍觀市民要求警員走開，他提出多次反問，「我想問一句救護人員負責急救、警員負責緝捕罪犯有咩問題？」、「如果當時當地黃家倫無去就潛藏罪犯展開追捕，之後有無人責難黃家倫無去緝捕罪犯？呢到有無雙重標準係到？」、「試問佢哋（警員）係救援工作上點幫得手呢？」
+
+熊續說，事件距今超過一年，未有任何批評指出警方有「幫到手」的地方，而警方卻沒有「幫到手」，他認為有關批判是沒有任何實質說法，也沒理據支持，是蒼白無力的。
+
+研訊有法律代表問到警員有否考慮幫助消防清理路障，熊健民提到消防員的證供，曾供稱細搶救車（細搶）一兩秒就可以清理，「試問係咪真係需要警員走埋去清理路障？按呢個做法係咪費時失事？」，熊又指可以理解市民會關心警員有否盡責，尤其是分秒必爭的救死扶傷。但熊指出，尚德邨停車場十字路口（尚十）造成阻塞延誤救援，源自於一班示威人士，見到救護車仍寸步不讓，他之後補充指以上說法，非政治評論或道德批判，而是說出無可置疑的事情。
+
+熊健民強調現場警員沒有阻礙救援工作，也沒有失職，而延誤救治問題是在於屋苑的管理人員，容許有私家車阻塞消防閘，以致救護車無法直接駛到停車場附近施以援救，「如果陪審團認為有延誤救治，罪魁禍首係負責廣盈閣的物業管理，佢哋係難辭其咎。」，反問「點解我哋仲聽到批評警方聲音？」
+
+<figure>
+<img src="https://web.archive.org/web/20210727223753im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/11/周梓樂-死因調查-20201127220242_f250_large.jpg" alt="">
+<figcaption>熊健民指出，延誤救治問題是在於屋苑的管理人員，容許有私家車阻塞消防閘，以致救護車無法直接駛到停車場附近施以援救。眾新聞製圖</figcaption>
+</figure>
+
+### 「無證據證明梓樂中彈、避煙失足　陪審團或可以意外可能性作裁決」
+
+他指出，梓樂墮樓受傷之後死亡，有說法指是中彈，或避開催淚彈而失足，他認為說法明顯屬憶測、傳聞，不能作為梓樂墮樓的證供，客觀上亦無任何醫學報告或證據，證明梓樂受催淚煙感染或中彈導致的身體外傷，而現場實際環境、專家說法以及閉路電視片段均沒有證實梓樂是中彈或受到催淚煙感染而引致墮樓身亡，加上3樓的矮石牆有1.2米高，而梓樂身高1.7米，即使梓樂失去平衡亦不會如此跌下來，他形容情況並非「盲人騎瞎馬，夜半臨深池」。
+
+最後有關梓樂事件是否屬於意外，熊同意事件有消失的8秒，即梓樂墮樓前的8秒未能被鏡頭拍下，現時只得庭上聽到的所有證供證據，反問「係咪咁樣就唔能夠作出推論呢？」熊健民分別指出，以梓樂身高，即使走近矮石牆甚或直接跳下，都未必發覺3樓出現中空的情況，而梓樂墮樓前後亦有兩名人士曾跳過矮牆，幸好臨崖勒馬，問題顯示該環境有潛在危險，容易令人產生誤會以為3樓外面有行人路。他亦引述梓樂爸爸的供詞指，他們出入停車場不需要經過3樓，故梓樂有可能不熟悉現場環境。他認為如果事件關乎意外，陪審團可以綜合所有證供，根據可能性去作出裁決 ，「而係意外既情況機會大過其他情況」。
+
+【案件編號：CCDI-932/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210727223753/https://www.hkcnews.com/aboutus/#subscribe)

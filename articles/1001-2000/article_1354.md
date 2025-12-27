@@ -1,0 +1,75 @@
+---
+title: "美國總統「行政命令」的解畫"
+date: "2017-01-29"
+author: "飄楊 & 小鳥"
+category: "眾說"
+tags:
+  - "donald trump"
+  - "donald trump jr"
+  - "特朗普"
+  - "唐纳德 特 朗 普"
+  - "當勞侵"
+  - "穆斯林"
+  - "Muslim"
+  - "美國總統行政命令"
+url: "https://web.archive.org/web/20210712003059/https://www.hkcnews.com/article/1354/%E7%BE%8E%E5%9C%8B%E7%B8%BD%E7%B5%B1%E3%80%8C%E8%A1%8C%E6%94%BF%E5%91%BD%E4%BB%A4%E3%80%8D%E7%9A%84%E8%A7%A3%E7%95%AB"
+original_url: "https://www.hkcnews.com/article/1354/%E7%BE%8E%E5%9C%8B%E7%B8%BD%E7%B5%B1%E3%80%8C%E8%A1%8C%E6%94%BF%E5%91%BD%E4%BB%A4%E3%80%8D%E7%9A%84%E8%A7%A3%E7%95%AB"
+---
+
+# 美國總統「行政命令」的解畫
+
+【撰文：小鳥】
+
+昨天星期六，美國實行了Trump日前簽下對七個穆斯林國家封殺入境及拒絕接收敍利亞難民的「行政命令」 (Executive Order)，導致無數在機場的有關入境人士和旅客遭到拘留。
+
+於是無數團體及市民到機場抗議。紐約甘迺迪機場更人頭湧湧，連日夜奔波勞碌，只顧搵食的的士司機都加入戰團，在機場罷載抗議。
+
+<figure>
+<img src="https://web.archive.org/web/20210712003059im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/美國總統行政命令-donald%20trump-穆斯林-20170129220326_d422_large.jpg" alt="">
+<figcaption>示威者塞爆美國紐約甘迺迪國際機場，抗議特朗普簽署行政命令封殺七個穆斯林國家的人士入境。美聯社</figcaption>
+</figure>
+
+這個被視為無人性、攬炒式的「行政命令」，在昨天晚上被聯邦法官(Federal Judge) 叫停，所有被拘留人士都獲釋放及獲准入境。
+
+到底甚麼是「行政命令」呢？這命令若是由美國總統簽發，不就是有「無上權力」的嗎？為何聯邦法官可以叫停呢？
+
+基本上，「行政命令」是總統指示他監督的聯邦機構如何使用其資源的官方聲明，是指示聯邦以此項目列入優先事項，並指示國土安全部利用已有的資金來推動實行。
+
+這是美國總統的權力，可以繞過參眾兩院 (House and Congress)，調動國家資源和議題去達到其目標。
+
+但如我上一篇文 ( [Trump vs USA](https://web.archive.org/web/20210712003059/https://www.hkcnews.com/article/1128/trump-vs-usa) ) 提到，美國的建制是本於「不信任」而設計。總統有的權力是人民 -- 經選舉 -- 賦予的(民選)，但即使他像坐擁無上的絕對權力(absolute power)，他也高不過憲法，高不過法律。
+
+故此，Trump簽下的行政命令，必須經過法院批審才可成為法律執行。若法院認為這「行政命令」違反憲法 (Unconstitutional)，或者認為「行政命令」不合法 (illegal)，這命令就會被作廢。
+
+Trump可能覺得揮動筆桿子很威風，可以越過兩院，不用賣他們的賬，但其實不然。
+
+動不動利用「行政命令」做事，只會讓人感覺總統沒有能力跟任何人合作，以致要用「行政命令」去達到目的。
+
+政治本錢是有限的，而法院也不一定批准。事實上歷代總統使用的「行政命令」，大多數都被否決。
+
+Trump今天正遇上他的第一個road block，就是美國這個牽制無上權力的制度。
+
+他將會知道，未來這四年，他還是要和被他鄙視的兩黨兩院的議員合作，向他們拉票，找共識。
+
+否則他就會是一個廢總統，甚麼都做不了。
+
+<figure>
+<img src="https://web.archive.org/web/20210712003059im_/https://www.hkcnews.com/news_新聞/hk-discuss/2017/01/donald%20trump-美國總統行政命令-穆斯林-20170129220228_3afd_large.jpg" alt="">
+<figcaption>美國國內多個國際機場都有示威者抗議特朗普的行政命令，圖為西雅圖Tacoma國際機場。美聯社</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712003059/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 飄楊 & 小鳥](https://web.archive.org/web/20210712003059im_/https://www.hkcnews.com/uploads/avatars/6c8287d1-8acf-425a-9ebe-f4dfc29c2c06.png?1988588415)
+
+**博客 | 飄楊 & 小鳥**
+
+【飄楊 & 小鳥・八千哩】香港。紐約。 遙遙八千哩、半天之隔的兩個城市，一東一西，各有不同背景和現況，政治大氣候的轉變，如何影響每一個生活在這兩個城市的人？兩個久居美國的香港人，在言語不同的國度，分享大蘋果的變化、浮生。

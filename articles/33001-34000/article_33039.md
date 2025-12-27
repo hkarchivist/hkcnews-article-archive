@@ -1,0 +1,73 @@
+---
+title: "【延任VS總辭】朱凱廸未評轉軚：明年可公投杯葛議會 寸土必爭不獲認同"
+date: "2020-08-18"
+last_updated: "2020-08-19 00:02:06"
+author: "記者林勵"
+category: "眾聞"
+tags:
+  - "陳志全"
+  - "慢必"
+  - "CHAN Chi-chuen"
+  - "朱凱廸"
+  - "CHU Hoi-dick"
+  - "立法會延任"
+url: "https://web.archive.org/web/20210729020249/https://www.hkcnews.com/article/33039/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33042/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDvs%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33039/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33042/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDvs%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【延任VS總辭】朱凱廸未評轉軚：明年可公投杯葛議會 寸土必爭不獲認同
+
+民主派立法會議員多數傾向留在立法會，屬進步光譜的朱凱廸及陳志全極有可能成為唯二告別議會的議員。朱凱廸周二在傳媒茶敘向眾新聞等傳媒表示，面對政府推動大灣區港人投票等措施，議會戰線或很難繼續，「反過來要撤出戰線」，認為明年值得透過全民公投處理立法會去留問題。
+
+他坦言，過去寸土必爭、抵擋一條惡法的路線在運動上得不到認同，因為形勢之惡劣，令市民已經覺得沒有什麼所謂，甚至會歡迎取消立法會變永久臨時立法會或人大，他形容，自己是邁向「攬炒派的議會抗爭派」。
+
+有傳朱凱廸曾在人大決定前表達有意留任，反而是有個別民主派議員曾有意求去，但最終人大頒布決定後，朱認為民主派應該集體杯葛。朱凱廸未正面回應，只說一開始沒有想清楚認受性的問題，當時也沒有人大決定，認為如今這個說法「重要性不大」。
+
+<figure>
+<img src="https://web.archive.org/web/20210729020249im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/朱凱廸-立法會延任-陳志全-20200818221325_e956_large.jpg" alt="">
+<figcaption>22名民主派議員中，可能朱凱廸及陳志全兩人離開。林勵攝</figcaption>
+</figure>
+
+陳志全同日亦表示，自己是四年任期任滿而非辭職，認為民主派應該集體杯葛未來一年的立法會。他在見記者時一度語帶哽咽希望留下的民主派以行動證明，「留下比杯葛有更大意義」。至於是否參與下屆選舉，陳志全說只是未來一年立法會沒有民意授權，但下屆他們當然有權參選。
+
+民主派上周人大常委會頒布決定、延任立法會「不少於一年」後，內部一直未爭持去留問題，令民主陣營支持者陷入分裂。
+
+朱凱廸與陳志全周二舉行傳媒茶敘時，席間，朱解釋他強調，自己並非要分化民主派，但目前矛盾所在，不應該只是民主派22名立法會議員說了算，「如果20對2（按：朱、陳兩人），但社會是否20對2」？
+
+他表示，原先設想是希望有大約兩個星期的時間，令各板塊坦誠表達立場，然後進行民意調查並綑綁決定。較長遠的構思，則是利用集體杯葛的政治張力，由民主派議員及初選勝出者籌建一個「大台」的工作組或平台來組織政治活動，頂替目前民陣的角色。
+
+朱凱廸解釋，自己早前是基於「凡共產黨不想我做、就去做」，及不令民主派初選出線者因此邊緣化兩點，認為民主派應集體杯葛立法會，並以公投及民調處理去留爭議。正如早前他向支持者內部訊息所說，他認為目前中共全方位打壓下，卻寬鬆處理立法會去留問題，認為應該反其道而行之。
+
+如是這般，目前運動是否民主運動，而是一場反共運動？朱凱廸歸咎，是中共令港人將兩者結合，但現在民主運動「望唔到家鄉」，形勢下是佔中發起人戴耀廷提倡的反威權運動。他形容，目前民間是「desperate」地透過公民社會推動攬炒，「就是以香港作為槓桿，翹起整個中國，引起大笨象打架」。
+
+他說：「香港已經是一個全球同擴張中的中共的政治霸權的鬥爭，可以作為一個反中共霸權鬥爭的點。」
+
+<figure>
+<img src="https://web.archive.org/web/20210729020249im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/朱凱廸-許智峯-引渡修例-20190606225850_1413_large.jpg" alt="">
+<figcaption>朱凱廸在逃犯修訂條例審議前，與許智峯在立法會會議廳擔梯阻止開會。</figcaption>
+</figure>
+
+在議會抗爭中，朱凱廸曾是比較進取的一員，例如2017年立法會辯論一地兩檢無約束力議案時，曾動議立法會《議事規則》88條驅逐新聞界及公眾人士離場（雖然主意出自民主黨涂謹申議辦）。
+
+記者追問，到底杯葛議會對爭取民主、保障人權不被影響有什麼促進？朱凱廸說，目前運動的政治路選與寸土必爭已有很大分野。「（市民）不要守住一條惡法，這種想法沒有得到認同，是因為形勢惡劣到沒有什麼所謂。更大的原因，是因為（市民）好歡迎更加嚴厲、嚴峻的處境，就是攬炒的進展——愈受傷就愈（有）進展，變成永遠的臨時立法會，或者人大。」
+
+他又點名反駁中大政治學者蔡子強質疑，60萬人參與民主派初選不代表整個民主派光譜，認為是太過貶低初選。「這不是一般民主派的看法，初選很有公信力，應該在未來一段時間、本來10月要坐上（立法會）這個位」。
+
+至於明年立法會選舉，朱凱廸說兩者不能二分處理，但認為是否杯葛明年立法會選舉，值得以一個公投處理，而類似爭論可能很快再次發生。
+
+<figure>
+<img src="https://web.archive.org/web/20210729020249im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/陳志全-20200818174256_6e03_large.jpg" alt="">
+<figcaption>由於不會辭職，陳志全說技術上可能是立法會單方面延長他的合約，至於議員辦公室成員等，會約立法會主席梁君彥商討。周滿鏗攝</figcaption>
+</figure>
+
+陳志全則指出，不會叫留守的民主派去送死、或者必定要議會內打架，但認為首先要盡量出席會議。他不點名批評有民主派議員在財委會僅得七成出席率。「我同意胡志偉說三分鐘和三個月（審理議案）的分別，出盡全力的話可以兩三個月先通過，就是要看到這些。不是要送死、犯法才說要留，但如果只是坐投反對票，相信支持留守的人都會不滿。」
+
+不過，去留立法會爭議已令民主派及進步新晉之間心生齟齬，例如九龍西出線的張崑陽指責民主派分裂民主運動。朱凱廸聲稱，表面言語攻擊是從來都有，但認為從政者不應該怕被鬧。此外，他認為，這些相互批評，本身不應該妨礙民主派與其他出線者籌組工作機制。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210729020249/https://www.hkcnews.com/aboutus/#subscribe)

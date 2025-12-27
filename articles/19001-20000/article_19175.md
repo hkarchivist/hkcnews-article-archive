@@ -1,0 +1,81 @@
+---
+title: "這一代的創傷"
+date: "2019-03-19"
+last_updated: "2019-03-19 22:33:02"
+author: "魏德真"
+category: "眾說"
+tags:
+  - "記者"
+  - "新西蘭槍擊事件"
+  - "創傷後遺症"
+url: "https://web.archive.org/web/20220120013828/https://hkcnews.com/article/19175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19186/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/19175/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19186/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 這一代的創傷
+
+在新西蘭發生的清真寺槍擊案轟動全球，槍手將過程網上直播，除了在今次事件中的遇難者及家人受創之外，區內的市民，以及曾經觀看視頻的人，心理上都受到影響。   
+ 當晚，澳洲廣播公司在一個時事對談的節目中，邀請了醫學界人士對談，特別提到創傷後遺症（Post-traumatic stress disorder, PTSD）。
+
+<figure>
+<img src="https://web.archive.org/web/20220120013828im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/清真寺-新西蘭槍擊事件-20190315160500_2483_large.png" alt="">
+<figcaption>新西蘭恐怖槍擊案一名死者陳屍在一間清真寺外。美聯社</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220120013828im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/新西蘭槍擊事件-20190315145537_127c_large.jpg" alt="">
+<figcaption>一名恐襲清真寺事件的目擊者，向家人報平安仍忍不住哭泣。美聯社</figcaption>
+</figure>
+
+其中一位精神科顧問醫生，主要負責創傷後遺症的範疇，她表示過去多處理退伍軍人的精神健康問題，但近年，澳洲不時發生傷人事故，她舉例如2017年在市中心Bourke St的故意開車撞人案，當中死者包括一名十歲學童及一個三個月大的嬰兒，影響著普通市民的生活。
+
+而墨爾本近年發生過多宗故意傷人案，去年11月，同在Bourke St就有另一宗故意開車撞人案，當中一位在附近開設咖啡店的東主就被撞死。
+
+還有2017年聖誕節假期（12月21日），在Flinders Street火車站和 Elizabeth Street交界的電車站，亦有另一宗故意開車撞人事件，一名長者死亡，17人受傷。
+
+這些事件都是在大白天，人潮熙來攘往市中心區發生，就如香港的中環金鐘，死傷者當中都是上班或趁假期往市中心的市民，一個慘劇發生，將人向來平靜的生活打成碎片。
+
+記得在2017年那宗瘋狂開車撞人事件中，一名三個月大嬰兒被撞抛出嬰兒車，母親回過神來，看到空空的嬰兒車時，問到：「我的嬰兒在那裡？」
+
+<figure>
+<img src="https://web.archive.org/web/20220120013828im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/墨爾本-Bourke%20Street-創傷後遺症-20190319102640_abcb_large.jpg" alt="">
+<figcaption>在Bourke Street的瘋狂開車撞人事件中，嬰兒車被撞倒，三個月大嬰兒被抛出十米外死亡。照片來源：The West Australian</figcaption>
+</figure>
+
+精神顧問醫生在節目中指出，創傷後遺症到了今個世代，已經因為這一類突擊事故時有發生，變得更普遍，令人經常活在焦慮及不安之中。
+
+有一位目擊者就曾經向傳媒表示，她的經歷令她每一次過馬路的時候，都會擔心車輛不會停下來，向她撞過去，這足已構成一種精神壓力，影響著她每天過正常的生活。
+
+關於創傷後遺症，二月份在墨爾本的地方法院就有一宗歷史性的賠償判決，一名在墨爾本《時代報》（The Age）專門負責罪案及法庭採訪的女記者，十年間因為經常報導驚人罪行，令到精神健康出現問題，受到創傷後遺症的影響，感到抑鬱焦慮，不時受到恐懼感侵襲，失眠及發惡夢，恐怖的影像不時出現在腦海之中。
+
+<figure>
+<img src="https://web.archive.org/web/20220120013828im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/記者-創傷後遺症-墨爾本-20190319104439_1fb9_large.jpg" alt="">
+<figcaption>法院判決書，裁定前記者YZ（代號）勝訴，她因採訪工作產生創傷後遺症，僱主The Age需要賠償。照片來源：radionz.co.nz</figcaption>
+</figure>
+
+法官接納她在2003年至2013年間，經常「暴露於各種令人不安的圖像及創傷事件」，判獲18萬元的賠償，表示她雖然已經離職，並且病情有所改善，但許多症狀仍然存在，會隨時受到不安的情緒侵襲。
+
+這名女記者曾經採訪在2009年轟動一時，發生在West Gate Bridge的駭人案件，一名37歲的父親Arthur Freeman，因為失去孩子的撫養權，在送當時尚有幾天才滿五歲的女兒Darcey上學期間，在繁忙時段駛經橋上，中途停車，在兩名年幼兄弟面前，把妹妹抛落58米的橋下。
+
+<figure>
+<img src="https://web.archive.org/web/20220120013828im_/https://hkcnews.com/news_新聞/hk-discuss/2019/03/創傷後遺症-West%20Gate%20Bridge-墨爾本-20190319103753_116f_large.jpg" alt="">
+<figcaption>警方在West Gate Bridge橋上調查父親抛女兒落橋下的駭人案件。照片來源：news.com.au</figcaption>
+</figure>
+
+記者趕到現場時，看到救護員正在搶救，這宗令人不安的案件，令她稱為人生中最壞的一天。
+
+在她擔任罪案及法庭記者的生涯中，看過滿是鮮血屍體的照片，又在垃圾堆等了好幾天，讓警察找到一名被丈夫謀殺，並砍掉身體部位的殘肢，還有臭名遠播的墨爾本黑幫頭目。
+
+由於無法承受這些殘忍的經歷，她曾被調往體育版，但不久又被副採主要求返回原來崗位，期間又負責很多家庭倫常慘劇，案件多是死者身首異處，故事悲慘，卻沒有得到精神上的支援。
+
+她採訪過一宗一家五口（the Burrell family）被海浪衝走遇溺事故，她花了五天時間進行「最可怕和耗神的的工作」，事後亦出席了該個家庭的喪禮，和死者家屬交談，看到其中一張照片，是一名兒童的屍體被發現後，面部少了一部份。
+
+在她任內十年間，採訪超過30宗謀殺案、性侵犯案，及其他極暴力的犯案罪件，現在因為創傷後遺症，不能再擔任記者。
+
+---
+
+![博客 | 魏德真](https://web.archive.org/web/20220120013828im_/https://hkcnews.com/uploads/avatars/ec16f860-ba84-45ae-9760-70226bbb3da6.png?1436977809)
+
+**博客 | 魏德真**
+
+【魏德真・南之國境】作者生於香港，留學澳洲，現居墨爾本──世界最宜居城市之一，並享有咖啡之都美譽，每天讀新聞、寫日記和喝咖啡。

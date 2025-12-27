@@ -1,0 +1,83 @@
+---
+title: "施政報告提23條立法　林鄭：探討如何「正面地處理」　加強樹立「一國」意識"
+date: "2018-10-10"
+last_updated: "2018-10-10 14:36:57"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "特首"
+  - "林鄭月娥"
+  - "林鄭"
+  - "Carrie Lam"
+  - "基本法 23 條"
+  - "23 條"
+  - "施政報告"
+url: "https://web.archive.org/web/20210924020453/https://www.hkcnews.com/article/15550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_23_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15551/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/15550/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD_23_%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-15551/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD23%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 施政報告提23條立法　林鄭：探討如何「正面地處理」　加強樹立「一國」意識
+
+行政長官林鄭月娥，今早身穿桃紅色旗袍、粉紅色外套，早上11時在立法會發表其任內第二份《 [施政報告](https://web.archive.org/web/20210924020453/https://www.policyaddress.gov.hk/2018/chi/index.html) 》，主題為「堅定前行，燃點希望」，天藍色封面的報告全文約6萬字，林鄭在會上用了約37分鐘讀出部分內容。施政報告談及《基本法》23條立法，林鄭首次表示會「探討如何讓香港社會可以正面地處理這個對特區的憲制要求」。林鄭又表明，會在香港社會加強樹立「一國」意識。
+
+新一份施政報告中，「國家」一詞出現了55次、「大灣區」32次、「一帶一路」23次、「一國」12次、「兩制」9次、「習近平」4次、「港獨」2次。
+
+<figure>
+<img src="https://web.archive.org/web/20210924020453im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/林鄭-行政長官-施政報告-20181010141334_29ad_large.jpg" alt="">
+<figcaption>林鄭月娥今早在立法會發表第二份施政報告，多次提及「國家」、「一國」。何君健攝</figcaption>
+</figure>
+
+**林鄭月娥在施政報告提及：**
+
+「面對香港社會近年出現的複雜情況和新矛盾，我和特區政府對任何鼓吹『港獨』，危害國家主權、安全及發展利益的行為絕不容忍。我們會無畏無懼地依法應對，以維護國家和香港的利益。為防微杜漸，我們亦加強了各界對憲法、《基本法》和國家安全的了解，在香港社會加強樹立『一國』意識。 」
+
+「要讓『一國兩制』行穩致遠，特區的管治必須堅守『一國』原則，並正確處理中央和特區的關係。 」
+
+「行政長官既向香港特別行政區負責，也向中央人民政府負責，在這『雙負責』下的行政長官，須全面、準確、堅定地擔當『一國兩制』的執行者、基本法的維護者、法治的捍衞者，以及中央與香港特區關係發展的促進者。 」
+
+「我不會奢望政黨或本會議員政治立場一致，但只要不觸碰違反『一國』的底線，大家應有廣闊的合作空間。 」
+
+「中央領導人已多次表明，在推進大灣區建設 時，要堅持在『一國兩制』框架內嚴格依照國家憲法和基本法辦事，堅守『一國』之本，善用『兩制』之利。 」
+
+引述習近平在十九大講話：「青年興則國家興，青年強則國家強。青年一代有理想、有本領、有擔當、國家就有前途，民族就有希望。」
+
+「我相信我和特區政府有能力建設好香港；我相信香港各界會用好自身優勢，抓緊『一帶一路』和粵港澳大灣區的機遇，開拓經濟的新增長點；我相信國家始終是香港的堅強後盾，不僅助香港抵禦風浪，亦不斷為香港發展提供新動力。憑藉這『三個相信』，我們一定會看到希望。
+
+<figure>
+<img src="https://web.archive.org/web/20210924020453im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/毛孟靜-泛民-施政報告-20181010141241_7dab_large.jpg" alt="">
+<figcaption>毛孟靜（右）高舉「Free Press, No Persecution」高呼捍衛新聞自由，被梁君彥驅逐出會議廳。何君健攝</figcaption>
+</figure>
+
+施政報告其中一段講述基本法23條，林鄭表示，「特區政府有憲制責任為基本法第 23 條立法以維護國家安全。我多次公開表示，政府會審時度勢，謹慎行事，並繼續努力創造有利立法的社會環境，但這並不等於我們對違反憲法和基本法， 試圖分裂國家，危害國家安全的行為視若無睹，不等於可用來處理若干應禁止行為的香港現行法例只能『備而不用』。保安局局長上月引用《社團條例》採取行動，就是一個有力的說明。事件引起社會廣泛關注，亦引發對第23條立法工作的熱烈討論。我會認真聆聽，探討如何讓香港社會可以正面地處理這個對特區的憲制要求。 」
+
+林鄭月娥以往提及23條立法時指，「政府需要審時度勢找好時機，創造好的條件進行相關工作」、「23條立法工作不能迴避」。今次是她首次表示會探討23條立法工作。
+
+至於政改一人一票選特首，林鄭在施政報告中表示，立場與往年無異，「我不能罔顧現實，貿然重啟政改，令社會難以聚焦發展。特區政府會謹慎行事。」
+
+林鄭在去年的施政報告中，建議設立一所全新的公務員學院，加深公務員對國家發展和中央與特區關係的認識和國際觸覺。她在今年的報告中指，已選定在觀塘重新發展一幅面積約1.1萬平方米的「政府、機構或社區」用地興建公務員學院，預計於2026年完成。政府亦會成立一個由專業人士和政府官員組成的公務員培訓諮詢委員會，為公務員的培訓計劃和長遠發展策略提供指導意見。
+
+<figure>
+<img src="https://web.archive.org/web/20210924020453im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/施政報告-泛民-朱凱廸-20181010141313_b69c_large.jpg" alt="">
+<figcaption>朱凱迪高舉「我要全民退保」、「反對東大嶼大白象」的標語，被保安帶走。何君健攝</figcaption>
+</figure>
+
+林鄭月娥今早11時進入立法會會議廳，香港本土毛孟靜、人民力量陳志全等多名泛民議員隨即站立舉牌，高呼「捍衛新聞自由，停止打壓記者」，抗議《金融時報》亞洲新聞編輯馬凱不獲發工作簽證事件。朱凱廸則舉牌反對東大嶼山大白象工程、要求全民退保。
+
+林鄭對泛民抗議未有任何回應。立法會主席梁君彥多次警告泛民議員，要求他們立即停止叫囂。但毛孟靜、陳志全、區諾軒及朱凱廸四人繼續站立及高喊口號，梁君彥要求保安將四人驅逐出會議廳。新民主同盟范國威，街工梁耀忠，公民黨四人譚文豪、郭家麒、陳淑莊、楊岳橋，社福界邵家臻，工黨張超雄主動步出會議廳。
+
+毛孟靜會後表示，泛民選擇在議會內抗議，是因為政府未有回應國際社會不滿馬凱簽證事件，希望透過在會內抗議，讓國際看到本港社會的反對聲音。她說，多名泛民議員雖然離場，但仍然會「逐個字」看清楚施政報告及回應。
+
+多名泛民議員離席後，會議廳內未再出現議員抗議及呼喊，曾有人在公眾席上高喊，但很快被保安員阻止。林鄭讀出施政報告期間，大部分議員在席上翻閱文件、用手機或電腦，自由黨議員張宇人在會議中段短暫閉目。
+
+<figure>
+<img src="https://web.archive.org/web/20210924020453im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/10/泛民-施政報告-20181010141257_2135_large.jpg" alt="">
+<figcaption>多名泛民議員抗議馬凱被拒發簽證事件，在林鄭宣讀施政報告前主動離開會議廳。何君健攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210924020453/https://www.hkcnews.com/aboutus/#subscribe)

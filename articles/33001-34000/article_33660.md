@@ -1,0 +1,38 @@
+---
+title: "零售仍縮兩三成　歐談不攏美更鷹"
+date: "2020-09-07"
+last_updated: "2020-09-07 16:03:22"
+author: "羅家聰"
+category: "眾說"
+tags:
+  - "全球經濟"
+  - "羅家聰"
+url: "https://web.archive.org/web/20220811205012/https://hkcnews.com/article/33660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/33660/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33663/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 零售仍縮兩三成　歐談不攏美更鷹
+
+<figure>
+<img src="https://web.archive.org/web/20220811205012im_/https://hkcnews.com/news_新聞/hk-discuss/2020/09/羅家聰-20200907153931_19dc_large.jpg" alt="">
+</figure>
+
+過去一週，美股有美股升，港股有港股停，畢竟本港經濟也不見好景。剛上週二，本港公佈了最新零售銷售數字，以銷量計的實質數字仍按年收縮兩成四。怎解讀呢？
+
+查去年8月至今年1月的半年社運期間，銷量早已維持按年收縮兩、三成的幅度。及至2、3月疫情高峯時，縮幅擴大至四成幾，此後至6月則收窄至兩成幾，但最新的7月數字說明一個事實，乃最差日子雖已過，但所回復的仍是縮兩、三成的「新常態」。這樣很大鑊的。無論1998風暴、2003沙士和2009海嘯也沒縮此幅度，遑論一整年。
+
+**一整年了，去年8月比前年縮兩成幾，而今年7月又比去年縮兩成幾。兩年合計，零售縮了四成三，即兩年前的100元生意現剩57元。若成本也按比例由100夥計裁剩57人，那四成幾的失業都幾麻煩。沙士時的零售、餐飲失業率高峯為一成至一成半間，今天零售縮幅和縮期均遠超當年，若失業率最終遠高於一至一成半亦絕對不足為奇。**
+
+大陸外長訪歐，但姿態上似撩交嗌多於游說拉攏。自中美擘面後，歐洲位處中間，且各國說不上團結，假使外訪時客氣點，照計在一些選擇不多如5G議題未至無得傾。不過，歐洲對人權、自由、民主等價值看得比美國重，在這些事上反面，就是拉倒了。當美、歐市場都要中長線放棄的話，那確要內循環了，這跟疫下鎖國又有何分別呢？
+
+美國大選漸近，分析相信特朗普在制裁中國上會趨重手。事實上，近期強硬過後，特朗普跟拜登的支持度差距確見收窄，令他認為此法見功不奇，市場或藉勢回。
+
+本週公佈的經濟數據以PPI、CPI為主。
+
+---
+
+![博客 | 羅家聰](https://web.archive.org/web/20220811205012im_/https://hkcnews.com/uploads/avatars/c3ce8859-7e68-4803-9232-df57a4cd24f4.png?835679720)
+
+**博客 | 羅家聰**
+
+【羅家聰・一名經人】香港經濟學家、財經專欄作家，有「香港末日博士」之稱，愛研究歷史經濟數據尋出經濟大趨勢。此欄將每周回顧前瞻，從中分析你最要知的經濟數據及重點。FB專頁：facebook.com/kachung.law.988｜電郵：[email protected]

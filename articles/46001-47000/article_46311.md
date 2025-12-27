@@ -1,0 +1,44 @@
+---
+title: "區院法官沈小民離職移民　曾判8.31、10.1暴動案多人脫罪"
+date: "2021-10-08"
+last_updated: "2021-10-08 19:24:07"
+author: "記者勞東來"
+category: "眾聞"
+tags:
+  - "司法機構"
+  - "區院法官"
+  - "沈小民"
+url: "https://web.archive.org/web/20211204042207/https://www.hkcnews.com/article/46311/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46321/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD101%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/46311/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46321/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD831%EF%BF%BD%EF%BF%BD%EF%BF%BD101%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 區院法官沈小民離職移民　曾判8.31、10.1暴動案多人脫罪
+
+眾新聞得悉，今年60歲的區域法院法官沈小民，已提出在65歲退休年齡前提早離任。沈官1997年獲委任為裁判官，9年前升任區院法官，據了解他離任後將與家人移民外地。司法機構回應查詢時表示，不評論個別法官及司法人員的人事安排。
+
+<figure>
+<img src="https://web.archive.org/web/20211204042207im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/法官-沈小民-20211008163241_13e8_large.jpg" alt="">
+<figcaption>法官沈小民。資料照片</figcaption>
+</figure>
+
+沈小民近期處理反修例事件的暴動案件引起關注，其中一宗涉及前年8月31日港島的大型衝突，8名被告全數獲判無罪，其中對「陣地社工」陳虹秀的指控更罕有地獲裁定表證不成立。
+
+另一案為前年10月1日，警方在銅鑼灣一個單位搜出白電油、布條、防毒面具及玻璃樽等物，控告6人串謀暴動，沈官再次裁定所有被告脫罪。此外，20歲男生被指同日在黃大仙參與暴動，亦獲沈官裁定無罪。
+
+早在2017年，沈官曾審理回歸後首宗暴動案，該案中他裁定三男女在2016年旺角騷亂中參與暴動罪成。不過，在上述反修例案件屢次裁定無罪後，過去大半年再無暴動案交由沈官經手。
+
+### 法官職位屬終身　離任後若再執業須先申請
+
+沈小民於1961年在香港出生，1987年在英國基理大學取得法律學位，先後於1989年及1990年在英國及香港取得大律師資格，1997年獲委任為常任裁判官，2012年獲委任為區院法官。
+
+記者查詢法官離任後，可否在香港或外地以大律師或律師身份執業。司法機構回覆，區院法官終止擔任職位後，如未得行政長官同意，不得在香港再從事私人執業。
+
+區域法院法官為終身職位，現時月薪23萬元，退休年齡為65歲。根據服務年資，沈官符合條件可領取退休金。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204042207/https://www.hkcnews.com/aboutus/#subscribe)

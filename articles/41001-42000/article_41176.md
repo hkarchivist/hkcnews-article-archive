@@ -1,0 +1,109 @@
+---
+title: "【梁凌杰死因研訊】梁爸媽仍失聯缺席聆訊　呈堂證物包括「黑警冷血　林鄭殺港」字句黃色雨衣"
+date: "2021-05-10"
+last_updated: "2021-05-10 19:37:47"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "梁凌杰"
+  - "高偉雄"
+  - "梁凌杰死因研訊"
+url: "https://web.archive.org/web/20210921031635/https://hkcnews.com/article/41176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/41176/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-41190/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【梁凌杰死因研訊】梁爸媽仍失聯缺席聆訊　呈堂證物包括「黑警冷血　林鄭殺港」字句黃色雨衣
+
+這是一場沒有家人出席的死因研訊。
+
+前年6月15日從金鐘太古廣場外墮下的黃色雨衣背影，屬於35歲的梁凌杰。在他離世翌日的6月16日，香港人再次走上街頭，拿著白花悼念這被視為反送中運動第一個殞落的生命，民陣最後宣布遊行人數是「200萬+1」。
+
+事隔近兩年，其死因研訊今早（10日）召開，預計需要12天。在2月底的研訊前檢討已無法聯絡的梁爸媽，至今仍未聯絡死因庭，亦缺席今早研訊。有別於其他由家屬交代死者背景的研訊，死因庭今次要以婉轉方式確認梁凌杰的身份，包括向入境處索取人事登記紀錄、調查警員口供、梁母住址租約、梁凌杰的保險文件等。
+
+整個研訊預計傳召約21名證人，包括2名市民、6至7名消防、5至6名現場警員，會先交代案發位置環境、檢取證物、梁凌杰的個人背景等，之後再按時序重組事件。研訊今早已傳召一名警員及政府化驗所人員作供，並由研訊主任讀出8份書面供詞。惟5人陪審團中，其中一員於中午突然表示未能理解廣東話證供，死因裁判官高偉雄決定解散陪審團，明日重選，已作供人員需再到庭。
+
+<figure>
+<img src="https://web.archive.org/web/20210921031635im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-梁凌杰-20210510184453_2ae3_large.png" alt="">
+</figure>
+
+本研訊由處理周梓樂死因研訊的裁判官高偉雄，以及研訊主任葉志康負責；警務處及消防處均為本研訊的有利害關係一方，分別由大律師熊健民及大律師陳碧琪代表。據悉，當時要求與梁凌杰對話，但被警方拒絕的時任立法會議員鄺俊宇，因當天未有親身接觸梁凌杰，現不屬證人之一。
+
+庭上有關梁俊杰個人背景的資訊不多，證供透露，他在1984年3月7日於本港出生，曾任職跟車工，離世時年僅35歲。梁媽媽在2010年起於元朗租住一個單位，據馮姓業主所知，她在2019年8月、即兒子離世約兩個月後搬離單位，未有留下聯絡方法。
+
+庭上證供顯示，梁媽媽上述的租住單位與梁凌杰保單的地址相同，但梁凌杰在2013年申請補領身份證時，報稱地址則是同一大廈的不同樓層及單位。依時序計，保單日期是在2013年之後，但由於沒有家人親自解說，研訊現階段未就此不同之處作出結論。
+
+中區警署雜項調查隊警長王思良的書面供詞指，在梁凌杰家人缺席今年2月26日的研前檢討後，警方曾往梁媽媽租住的單位尋找他們夫婦及梁凌杰的妹妹，惟現居該單位的吳姓男子應門指，他在2019年12月才遷入，並不認識梁氏一家。
+
+### 證物包括「I'm lost in Hong Kong」黑色T恤
+
+警方在事發位置，即太古廣場一期L4平台外搭建的臨時工作平台，檢取多項屬於梁凌杰的物品。除了梁凌杰當晚穿上的「黑警冷血　林鄭殺港」字句黃色雨衣，以及掛在鐵架外、寫著「全面撤回送中」等標語的白色橫額，還有一件印有「I'm lost in Hong Kong」的黑色短衫T恤。
+
+此外，警方還找到一份保釋文件、藍色背囊、內有身份證的黑色長形銀包、筆記簿、深色膠框眼鏡等個人物品，亦有樽裝烏龍茶、杯麵等充飢食糧。據悉，死因庭之後會再逐一審視相關物品。
+
+<figure>
+<img src="https://web.archive.org/web/20210921031635im_/https://hkcnews.com/news_新聞/hk-discuss/2020/06/太古廣場企跳-梁凌杰-20200615090118_d57f_large.jpg" alt="">
+<figcaption>梁凌杰當晚穿上的「黑警冷血，林鄭殺港」字句黃色雨衣，警方另檢獲一件印有「I'm lost in Hong Kong」的黑色短衫T恤。蘋果日報圖片</figcaption>
+</figure>
+
+### 墮下位置工作平台的結構
+
+警員蕭偉傑為研訊第一名出庭證人，他隸屬中區警署軍裝巡邏第3小隊，負責在梁凌杰當晚墮下後，拍攝合共36張死者財物相片、59張現場相片、19張傷勢相片等。。
+
+蕭偉傑作供指，太古廣場當時因外牆保養工程搭起鐵架，鐵架為廣場一期L4平台的延伸，可接駁至分別寬約1.5米、長25米的工作平台1和2；平台2對開是街外、望向金鐘道方向，比平台1高約30厘米。他又提到，L4平台當時設東、西兩個入口，由白色圍板封起，惟現場未見「不准進入」等告示。
+
+若要從太古廣場L4平台走出鐵架工作平台，蕭偉傑說有三條路徑 —— 第一是在L4平台的西邊入口，走過幾級樓梯再經狹窄的接駁位走出平台1；第二是經東邊入口攀出平台1，但這入口下方是高空支架，他認為一般人不會採用這方法；第三是經東邊入口旁的花槽，攀爬至平台1。
+
+研訊主任、外聘大律師葉志康問到，能否先由東邊入口步往西邊入口，再經接駁位走出平台。蕭偉傑表示兩個入口之間有建築物料阻隔，一般不會攀爬通過。至於梁凌杰是用哪條路線行出平台、有沒有閉路電視拍攝相關情況等，研訊將有證供再作處理。
+
+<figure>
+<img src="https://web.archive.org/web/20210921031635im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/梁凌杰死因研訊-梁凌杰-20210510184456_202e_large.png" alt="">
+<figcaption>圖片參考警員庭上展示草圖，比例或與現實不符。</figcaption>
+</figure>
+
+中區警署活動管理小隊警員陳思錦的書面供詞指，他在案發當日下午近5時，奉命到達太古廣場，當時已有同事處理情況；一名穿黃衣長褸人士站維修外牆的鐡架上，外面掛著白色示威標語字樣橫額。供詞又指，消防員當時已在金鐘道為安全氣墊充氣，氣墊面積佔了兩條行車線，及後移至該男子下方。陳思錦逗留約20分鐘後離開現場。
+
+第二名出庭證人是政府化驗所專科服務主任（鑑證科學）施偉傑，他在今年3月應警方要求，到太古廣場L4平台至死者最終位置作現場勘察，並透過現場量度及3D立體掃描技術，計算出L4平台混凝土外牆頂端至地面行人路的垂直高度為17米，亦即相信為梁凌杰墮下的高度，而太古廣場對出行人路則有約6.1米闊。
+
+### 有陪審員不擅廣東話　裁判官解散陪審團
+
+研訊原先由三男兩女組成陪審團，早上宣誓時，其中一名女陪審員明顯不擅廣東話，高偉雄一度關注她能否完整理解是次中文研訊證供，該陪審員就表示自己廣東話發音「不太正」，但能聽懂廣東話，高偉雄遂決定接納她為陪審員。
+
+惟經過整個早上的研訊，包括傳召兩名證人及由研訊主任讀出8份書面供詞，該陪審員透過法庭書記告知法庭，她未能聽清楚早上的所有證供，認為不能再擔任陪審員。
+
+死因裁判官高偉雄在庭上說，他早上決定信任陪審員對自己表現的要求，但既然陪審員未能聆聽及明白證供內容，也無謂繼續擔任。高偉雄又表示，今早只處理了研訊不具爭議的證供，未到證人當天耳聞目睹的證供，故寧願犧牲今早時間，也要保持研訊的完整性，決定解散陪審團，明早重選。
+
+### 出庭證人及書面供詞列表
+
+今早出庭證人
+
+
+|  | 證人 | 證供內容 |
+| --- | --- | --- |
+| 1 | 中區警署軍裝巡邏第3小隊警員蕭偉傑 | 拍攝現場環境、檢獲證物及死者遺體相片 |
+| 2 | 政府化驗所專科服務主任（鑑證科學）施偉傑 | 透過現場勘察及3D掃描技術，計算太古廣場L4平台至地面高度及行人路闊度。 |
+
+
+書面供詞
+
+
+|  | 證人 | 證供內容 |
+| --- | --- | --- |
+| 1 | 港島及水警警區行動組警員關耀輝 | 拍攝現場環境相片 |
+| 2 | 中區警署活動管理小隊警員陳思錦 | 下午近5時目睹一名男子站在太古廣場外鐡架，消防在現場設置安全氣墊。 |
+| 3 | 水警南區軍裝巡邏第2小隊警員、科技罪案初步應變小組港島第三小隊隊員游偉廉 | 網上下載相關新聞片段 |
+| 4 | 政府化驗所法證事務部化驗師（物理組）曾卓南博士 | 協助警方調較影片 |
+| 5 | 警員曾兆安 | 截取Google Map影像 |
+| 6 | 高級入境事務主任陳婉儀 | 協助查閱梁凌杰的人事登記紀錄 |
+| 7 | 元朗軍裝巡邏第4小隊警員廖浩然 | 在研訊前檢討當日到梁母住址尋找梁凌杰家屬 |
+| 8 | 中區警署雜項調查隊警長王思良 | 在研訊前檢討當日到梁凌杰保單所寫地址尋找其家屬 |
+
+
+【案件編號：CCDI-481/2019】
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210921031635/https://hkcnews.com/aboutus/#subscribe)

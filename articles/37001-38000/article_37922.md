@@ -1,0 +1,70 @@
+---
+title: "政府消息 : 只有佐敦值得封區　據悉專家顧問無參與封區決定"
+date: "2021-02-06"
+last_updated: "2021-02-06 11:58:52"
+author: "特約記者林穎茵"
+category: "眾聞"
+tags:
+  - "封區強制檢測"
+  - "確診"
+url: "https://web.archive.org/web/20211025051433/https://hkcnews.com/article/37922/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/37922/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-37946/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 政府消息 : 只有佐敦值得封區　據悉專家顧問無參與封區決定
+
+### 突擊「封區」 為何偏偏選中我？
+
+近個多星期，每晚一到約七時，電話就會發出「叮、叮、叮」突發消息，因總有一、兩個地區被圍封。單看直播畫面，還以為有大案發生，數百警方、海關、入境處人員如臨大敵般，誓要圍堵「疫廈」。
+
+由最初事先張揚的佐敦區，到近日聲稱保密的各區，香港人開始有點麻木，若放工回家見到大廈封鎖，只有接受現實。有人表示明白理解，最重要是早上七時解封可以返工；亦有市民批評，為何封這幢樓，上星期才有一宗確診也要封？為何偏偏選中我？
+
+由市民、議員到醫生，連日來都不斷追問政府封區有什麼標準，政府都沒有清晰交代封區界線。政務司司長張建宗曾經指有三大原則，如確診個案數量、分佈，環境因素如污水檢測是否陽性；以及樓宇狀况，如三無大廈等。
+
+但將這些原則放入封鎖大廈，你會發覺未必完全適用，未必解釋到部分個案。
+
+<figure>
+<img src="https://web.archive.org/web/20211025051433im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/封區強制檢測-第四波疫情-佐敦-20210124222525_70ed_large.jpg" alt="">
+</figure>
+
+### 封區標準成謎
+
+翻查過去10多日，政府圍封的地區，除了首次成為禁足地帶的佐敦，抽出13宗個案外，其他大部分地區都是0確診，只有屯門豐景園及油麻地有1宗病例。近萬七人接受檢測，只找到15宗確診。
+
+再逐一分析這些「疫區」和「疫廈」，部分屋苑或大廈不難發現封區前數天，連續有兩至三宗個案，例如尖沙咀金鑾大廈、九龍城隆基大廈等，都是之前分別有3宗確診，這也算是有據可依。但亦有部分圍封大廈令人摸不着頭腦，例如元朗好彩洋樓，2月1日晚做圍封，翻查衞生署過去14日大廈有確診名單，該處只在1月30日錄得1宗確診，還是有源頭個案。柴灣興華邨美華樓在2月3日圍封，同樣是之前一日（2月2日）錄得1宗無源頭病例，個案早在1月18日已經發病，兩幢大廈封區後都是0確診。
+
+### 政府消息：只有佐敦值得封區
+
+若根據這個準則，為何同日有不明源頭確診，大廈又不用封？ **據了解政府委任的專家沒有參與封區決定，屬於政府內部操作。衞生官員多次被記者問到封區準則，答案都是模棱兩可。行政長官林鄭月娥直言，封鎖地區是「有科學基礎，不是完全科學」。消息指，政府認為事情不斷發展，要從實踐中學習，沒可能一早為封區劃下清晰界線，又坦言根據這十多日的經驗，只有佐敦是值得用封區來找到更多確診個案。事後看來，只要求大廈強檢已經達到目的，可找到確診病例，未必需要封區做。不過消息認為，若當初沒有試行封區，就沒有足夠數據去判斷封區成效，決定封區時，已預計可能會被指擾民或效用不大。**
+
+<figure>
+<img src="https://web.archive.org/web/20211025051433im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/封區強制檢測-強制檢測-佐敦-20210124175646_7e46_large.jpg" alt="">
+</figure>
+
+### 是方法用錯、抑或時機已過？
+
+封區檢測未必完全無效用，問題是何時做、針對什麼情況去做。
+
+疫情每日有新發展，屋邨、樓宇亦有新上榜。專家並非完全反對封區等待檢測結果的做法。猶記得兩個月前，專家差不多都一致認同要禁足做檢測。大家可能已忘記12月初的葵盛西邨8座，當時短時間內有十多宗確診,政府只用自願檢測，沒有要求居民強制做檢測。有居民擔心被禁足，漏夜搬走。當時多個醫生，包括政府專家許樹昌、港大感染及傳染病中心總監何栢良和呼吸科醫生梁子超均認為應該強制檢測，甚至禁足等結果，以免將病毒散播開去。當日政府內部認為，自願檢測反應良好，不一定要強制，加上禁足法例未完善，又認為要限制居民出入，可能會有反效果。
+
+翌日行會同意修例，政府可以發禁足令，要求居民在指定時間做檢測，未有結果前不能離開。12月初當局已經有權這樣做，但當時沒有運用。
+
+到另一個觸發專家認為要禁足是新填地街20-26號病例。1月12日累計21宗染病，當時政府只發強檢。由於個案涉及劏房戶，加上短時間內增加，多個專家再次認為強檢連禁足，才能有效截斷傳播鏈。兩日後（1月14日）政府撤離居民，都是將他們列作密切接觸者，沒有用禁足令。不過病毒早已擴散，油麻地和佐敦個案遍及多幢大廈，不再集中新填地街幾幢唐樓， **據了解多個政府專家在1月18日的會議上，曾向政府提議實施禁足令，當時政府沒有即時落實做。隨着佐敦一帶個案不斷上升，直到1月23日，政府才首次引用法例圍封佐敦一帶做檢測。由專家建議到落實足足相隔近一星期。至於之後，政府每日封區的決定，專家並沒有參與，亦不知道政府根據什麼標準去決定。**
+
+<figure>
+<img src="https://web.archive.org/web/20211025051433im_/https://hkcnews.com/news_新聞/hk-discuss/2021/01/封鎖-COVID-19-佐敦-20210123164431_12bb_large.jpg" alt="">
+</figure>
+
+#### 抗疫一年多，專家提出過不少建議，政府未必次次即時落實，甚至不會跟隨。由豁免船員檢疫、外國回港人士隔離期、指定酒店檢疫等，由專家提出到執行，可能已過最佳時機。以今次封區為例，專家認為做法沒有錯，若早在新填地街爆疫時已做強檢兼禁足，相信市民會明白和信服。到現在才幾乎每日例行封區，但又找不到確診個案，實在難以服眾。政策究竟是走在疫情前或疫情後，由市民判斷。
+
+<figure>
+<img src="https://web.archive.org/web/20211025051433im_/https://hkcnews.com/news_新聞/hk-discuss/2021/02/封區強制檢測-20210205202828_7c67_large.png" alt="">
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211025051433/https://hkcnews.com/aboutus/#subscribe)

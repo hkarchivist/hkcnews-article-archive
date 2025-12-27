@@ -1,0 +1,115 @@
+---
+title: "從ProtonMail事件，再談私隱與隱身"
+date: "2021-09-26"
+last_updated: "2021-09-26 03:19:57"
+author: "Pazu薯伯伯"
+category: "眾說"
+tags:
+  - "薯伯伯"
+  - "資訊安全"
+  - "ProtonMail"
+url: "https://web.archive.org/web/20211204124711/https://hkcnews.com/article/45804/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-protonmail-45831/%EF%BF%BD%EF%BF%BD%EF%BF%BDprotonmail%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/45804/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-protonmail-45831/%EF%BF%BD%EF%BF%BD%EF%BF%BDprotonmail%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 從ProtonMail事件，再談私隱與隱身
+
+<figure>
+<img src="https://web.archive.org/web/20211204124711im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/薯伯伯-資訊安全-ProtonMail-20210925010610_1ad4_large.jpg" alt="">
+</figure>
+
+最近ProtonMail涉及一宗引起極廣泛關注及討論的資訊安全事件，事緣一名法國社運人士被法國警方調查，法國警方透過歐洲刑警與瑞士警方交涉，瑞士警方向瑞士法院申請命令，要求ProtonMail監察涉事法國社運人士的IP地址，ProtonMail如令執行。在法國警方提交給當地法庭的文件中，顯示了涉事者的IP地址。
+
+這件事引起牽然大波的原因，是因為ProtonMail一直標榜安全及尊重私隱，而大多數用戶是真誠地相信該公司維持「零記錄政策」（no log policy），但ProtonMail的公司事後指出，在一般的情況下不會記錄用戶IP，只有在收到瑞士法院的要求，才會開始記錄用戶的IP地址。
+
+這件事引起不少香港人的關注及擔憂，我認為是好事，這顯示不少香港人早已脫離資安無明無知之心。正是因為了解資安對自己的重要，才會因資安事件而心生恐懼，從而作出相應的行動及策略，這是非常重大的進步。
+
+我之前一直沒有評論ProtonMail事件，並非沒有看法，而是不願倉猝下結論，寧願多花一點時間去了解情況，以及等待各方回應，再給讀者建議。
+
+我先說一下我的結論，然後再討論當中的細節及分析理據。
+
+一，我的結論
+
+我依然認為Proton Technologies是可靠的公司，而我仍然使用這家公司的ProtonMail及ProtonVPN作為自己最主要的電郵及VPN服務供應商。
+
+（注：我以前多次介紹ProtonMail及ProtonVPN，每一次介紹都是用普通的連結，而非介紹人referral連結。讀者看完我的文章而選用該兩個服務，對我完全沒有利益，而我使用ProtonMail及ProtonVPN時，也是自己付費，沒有任何形式的贊助。）
+
+二，不同場景
+
+這宗案件最太的爭議，是當Proton Technologies公司收到瑞士法院的命令時，同意開始記錄客戶的IP地址。我們用五個不同的情況去逐一分析，當位於瑞士的Proton收到不同司法管轄區發出的法庭命令後，會如何應對。
+
+Proton公司主要有兩個服務，一是電郵，另一個是VPN。目前涉事的是電郵的服務，但我也會討論一下他們對VPN的可能處理手法。
+
+Case 1：在完全沒有法庭命令的情況下，ProtonMail及ProtonVPN均不會記錄客戶的IP地址。但要留意這是不為，而非不能，也就是說在一般情況下，Proton並不會記錄ProtonMail及ProtonVPN用戶的 IP 地址，但他們是有能力這樣做，只是在沒有命令的情況下，他們不會這樣做。
+
+Case 2：假如瑞士警方拿到日內瓦州法院或瑞士聯邦最高法院的法院命令，由於 Proton 的註冊地是瑞士，法院的命令足以迫使 Proton 開始記錄 ProtonMail 的用戶 IP 地址。
+
+Case 3：承上，值得留意的是，即使有日內瓦州法院或瑞士聯邦最高法院的法院命令，但該規定不能針對VPN供應商，也就是瑞士註冊的VPN供應商，在任何情況下也沒有法律責任去記錄客戶的IP，而Proton對其VPN用戶，是一直保護他們原來的IP，目前沒有向第三方交出過相關數據。這次上了新聞的人，是使用ProtonMail電郵用戶，而該用戶沒有使用VPN連接郵件服務。
+
+Case 4：當美國警方透過美國法院發出命令，要求位於瑞士的公司交出客戶資料，就必須要得到日內瓦州法院或瑞士聯邦最高法院的批準。而Proton不能單方面與美國的FISA法庭（外國情報監視法庭）合作，否則即屬違反瑞士法律。
+
+Case 5：即使有瑞士法院的命令，ProtonMail也只能記錄客戶的IP地址，而不能突破其AES-256加密，亦不能查看到客戶的電郵的主體文本內容，但要注意的是，電郵的metadata，包括發送人的電郵地址、電郵主題，則不屬加密的部份。
+
+Case 6：歐盟區內的法院向瑞士法院提出申請，獲批的機會較大。
+
+Case 7：極權國家向瑞士法院提出批出命令，獲批的機會較小。
+
+三，討論
+
+當ProtonMail配合瑞士法院命令，記錄並交出法國社運人士的IP地址，有不少人來信，想我建議一些「更為安全」的電郵服務。但任何公司均會受其註冊地的司法管轄，例如另一間著名的安全郵箱服務供應商是Tutanota，註冊地是德國，同樣會受德國法律規管。
+
+承接Case 3的情況，如果用戶在連接ProtonMail服務時，有同時使用ProtonVPN，即使瑞士法院同時向兩間公司發出命令要求記錄客戶IP，但由於相關規定只適用於Mail，而不能套用在VPN上，所以Mail要記錄IP，但VPN則不會記錄，最終也就是無法得知使用者的IP。
+
+ProtonMail本身亦有提供TOR版本的ProtonMail（https://protonmail.com/tor），那就是連技術上也難以記錄用戶IP地址。
+
+四，私隱與匿名
+
+我發覺不少用戶混淆了私隱與匿名的概念，兩者看似相關，在實際執行時卻是兩個完全不同的事物。坊間經常有人把「保護私隱」及「隱藏身份」混為一談，這是錯誤的說法，也是危險的說法。要做到完全不留任何個人痕迹的「隱身」，不只牽涉極度複雜的操作，加上淵博的學識，還有非常考驗耐力及堅忍力。
+
+舉個例子，有人頻密更換電話卡，以為使用「太空卡」就能隱藏自己身份，但卻把多張「太空卡」輪流放入同一部手提電話使用，當中也包括與自己有關連的電話卡，那麼其他電話卡就不算是匿名了。又或者用家本身很小心，把不同的太空卡放在不同手機，卻經常把太空機與自己常用的手機同時打開，出雙入對，那也做不到真正的匿名。
+
+我曾經聽過有人跟我說買了「太空卡」，追問之下才知對方居然認為使用「沒有個人登記的八達通購買自由鳥」就當是「太空卡」，我就覺得非常不安。
+
+我撰寫的資安文章，一直強調的是私隱，而非隱身。隱身是極為複雜的操作，對於大部份讀者而言，必須覺察自己不能輕易隱身的技術現實。有關隱身的討論，請參看：〈 [零基資安訓練營（九）：如果要完全隱藏網上身份](https://web.archive.org/web/20211204124711/https://www.patreon.com/posts/38185283) 〉
+
+五，防患
+
+使用網上服務時，必須清楚明瞭自己的需要以及其服務的限制。以ProtonMail的為例，分三種情況去講：
+
+A. 電郵內容文本：如果電郵用家只是想把電郵文本的內容加密，使用ProtonMail很合適。
+
+B. 隱藏IP：如果電郵用家想隱藏自己的IP，每次連接ProtonMail時就應該使用ProtonVPN，又或是使用TOR的登入點，但可能還是有其他蛛絲馬跡能查看到當事人的真實身份。
+
+C. 電郵標題：這項資料未能加密，敏感資料不應寫在電郵標題。
+
+六，尾聲
+
+如果是要防止電郵內容被偷窺，收件及寄件雙方均使用ProtonMail是很合適的做法。以涉事法國社運人士的情況來看ProtonMail提供了其IP地址，卻沒有（亦不能）提交其加密的電郵文本內容。
+
+收尾再重申我的結論：我目前仍然認為ProtonMail是安全的電郵供應商，而我的電郵地址上就是自己的名字，我清楚知道自己要求的是電郵文本內容加密，而非隱藏自己的身份。
+
+如果要保持高度匿名，那就要使用TOR、VPN，上網地點也要非常講究，必須經常轉換上網地點，像斯諾登在發佈NSA大規模監控公民的消息時，就是開車去搜尋Wi-Fi訊號，每次上網十多分鐘就要停下來。
+
+ProtonMail事件引起多人關注，而從不少讀者及朋友的反應來看，不只是關注，更引起不安。我很樂見這種不安，我相信這種不安其實是好事，這代表大眾更為注重資訊保安，早已脫離盲目相信安全無事的時代。不過在注意安全的同時，更要明白自己想保護的是甚麼類型的數據。遠離無知，保持警惕，但不過度恐慌，才能更掌握人民的科技優勢。
+
+【 [超務實長清單整理：Do not make it easy!（2021年9月更新）](https://web.archive.org/web/20211204124711/https://www.patreon.com/posts/55578887) 】
+
+原文刊於 [作者Patreon](https://web.archive.org/web/20211204124711/https://www.patreon.com/posts/56375414)
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211204124711/https://hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | Pazu薯伯伯](https://web.archive.org/web/20211204124711im_/https://hkcnews.com/uploads/avatars/001d8f85-a098-4d95-b480-83af95b083b9.png?562121451)
+
+**博客 | Pazu薯伯伯**
+
+【Pazu薯伯伯・旅遊寫作人】薯伯伯為最早一批在網上連載遊記的香港人，多年來足迹遍佈歐、亞多國，在喜馬拉雅山麓、東南亞、南亞等地區生活。著有《風轉西藏》、《北韓迷宮》、《西藏西人西事》及《不正常旅行研究所》，分別在香港、北京及首爾出版。
+作者 Facebook：https://www.fb.com/pazukong；
+Patreon 頻道：https://www.patreon.com/pazu

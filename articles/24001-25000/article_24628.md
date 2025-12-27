@@ -1,0 +1,64 @@
+---
+title: "《紐時》：美對香港問題會否有更大行動，取決於難以預測的特朗普"
+date: "2019-11-04"
+last_updated: "2019-11-05 11:13:29"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "donald trump"
+  - "donald trump jr"
+  - "特朗普"
+  - "唐纳德 特 朗 普"
+  - "當勞侵"
+  - "紐約時報"
+  - "中美貿易戰"
+url: "https://web.archive.org/web/20210920055001/https://www.hkcnews.com/article/24628/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24639/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/24628/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-24639/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 《紐時》：美對香港問題會否有更大行動，取決於難以預測的特朗普
+
+<figure>
+<img src="https://web.archive.org/web/20210920055001im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/11/Hong%20Kong-紐約時報-20191104171355_1aba_large.png" alt="">
+<figcaption>《紐約時報》記者黃安偉從香港發出報道，談及美國對香港民眾的反應。網上截圖。</figcaption>
+</figure>
+
+美國《紐約時報》網上版星期日刊登由該報外交及國際事務記者黃安偉（Edward Wong）從香港發出的長篇報道，指出香港示威者希望美國總統特朗普對北京採取強硬立場，但引述分析人士說，如果《香港人權及民主法案》送交特朗普，他可能僅視這是擠壓中國在貿易談判讓步的工具，一旦協議即將拍板，可能放棄支持。文章又指出，美國是否對香港採取更大行動，將取決於難以捉摸的特朗普（whether the United States takes greater action on Hong Kong hinges on the unpredictable Mr. Trump）。
+
+黃安偉之前是《紐約時報》北京分社主任，駐在中國長達九年。在此之前，他於2003年至2007年採訪伊拉克戰爭，是國際採訪經驗豐富的記者。黃安偉是生於美國的華裔，曾在北京語言大學及台灣大學等院校學習國語。
+
+這篇題為 〈 [Hong Kong Protesters Call for U.S. Help. China Sees a Conspiracy](https://web.archive.org/web/20210920055001/https://www.nytimes.com/2019/11/03/world/asia/hong-kong-protesters-call-for-us-help-china-sees-a-conspiracy.html) ／香港示威呼籲美國幫助。中國視為陰謀〉 的報道說，「美國代表民主，社運人士希望美國也許能拯救香港—只是也許。抗爭踏入第五個月，他們更加努力要把美國拉進運動之中」。「示威者向香港官員以及在他們頭上的專制獨裁中共領導人施壓，爭取這片自治土地的民主權利和法治。他們認為，特朗普政府也許能夠向中國領導人或香港官員提出要求，尤其是精英政治階層人物想繼續與美國來往」。
+
+報道續稱，「他們注意到特朗普向中國發動的貿易戰，給中國國家主席習近平增添壓力」。「對於美國政府而言，香港示威來得更複雜—既是一個政策上的兩難，也是與北京討價還價的着力點，以及向世界各地輸送美國價值的方法」。
+
+文章引述美國前國務院及國家安全委員會官員、現任職布魯金斯研究所的哈斯（Ryan Hass）說：「美國應繼續阻嚇北京動武，繼續盯着香港一眼不眨，要北京為一旦中斷香港市民的權利和自由付上沉重的聲譽代價。」但他又說：「我擔心香港示威者冒上誤解美國對他們抗爭的同情和支持的風險，以為美國會保護他們免受北京鐵腕打壓。」
+
+文章說，美國官員及議員很想展現他們的承諾：美國國會議員已曾現身香港公開展示與示威者團結致。上月，來自德州的共和黨參議員克魯茲（Ted Cruz）穿上一身黑衣；密蘇里州的共和黨參議員霍利（Josh Hawley）則貼出在示威現場的照片。在華府，眾議院議長佩洛西（Nancy Pelosi）會見了社運人士、民主派政客，以及被北京視為危險人物的出版商黎智英。美國副總統彭斯（Mike Pence）發表演說，以香港為自由燈塔，説「我們與你們同在；我們深受你們啟發」。
+
+文章說，這項支持示威者的法案，正在兩黨力挺下在國會過關。這法案連同其他事情，可讓美國向侵犯人權的香港官員實施經濟及入境制裁，「在金鐘，戴着口罩的27歲示威者Selina Po高舉《香港人權與民主法》標語說：『我們希望這法案通過。它是我們打贏這場戰爭的希望。我們正竭盡所能』」。
+
+文章稱，「不過，美國官員表示美國需要小心權衡輕重。美國更大的參與，會給北京更多彈藥，在宣傳裏把這場民主運動説成由外國勢力策動」，「中國政府和官媒指騷亂有幕後『黑手』以及散播陰謀論，其中一個焦點，是一名美國駐港外交官被拍到和社運人士在JW萬豪酒店的照片」。
+
+報道說，「當示威持續不衰，美國官員注視着暴力升級，以及追蹤中國人民解放軍進入香港的動向。一些人更請求示威者堅守非暴力手段，即使他們面對警察鎮壓和同情中共人士襲擊」，「周日，一名相信是反對民主運動的持刀男子在商場襲擊一個家庭，造成最少六人受傷。混戰中，他更咬甩民主派區議員趙家賢的耳朵」。
+
+報道續稱，「美國國務卿蓬佩奧（Mike Pompeo）上周三說，『我們告訴跟我們互動的每一個人，我們不要暴力。我們認為，香港發生的衝突應該政治解決』」，「兩名民主黨國會議員，紐約的蘇奧斯（Tom Suozzi） 及民權運動象徵人物、喬治亞州的劉易斯（John Lewis）上月在錄影裏讚揚社運人士『做得好』，敦促他們堅持非暴力」。
+
+黃安偉寫道：美國是否對香港採取更大行動，將取決於難以捉摸的特朗普。美國政府官員和議員公開表示要遏制中共專制。但特朗普罕有提及人權和民主，也不曾就香港發表強硬聲明，「特朗普是一個做交易的總統。一名匿名美國官員透露，6月時他在電話通話中告訴習近平，只要華府和北京的貿易談判有進展，他會對香港保持沉默」，「10月，特朗普政府因應中國大陸大規模鎮壓回教徒，對相關連的中國企業和機構實施限制，但特朗普依然沒有採取更強硬的行動，恐怕影響貿易談判」，「分析家説，如果香港的法案送到特朗普的辦公桌，他只會視之榨取中國讓步的工具，一旦可望達成貿易協議，就會放棄支持」（the president might see it as merely a tool to wring concessions from China and could forego support if a trade agreement were close）。
+
+報道引述布魯金斯研究所的哈斯說：「美國兩黨對和平示威者的強烈支持，不足以壓倒總統特朗普做交易的本能（ is not enough to override President Trump’s transactional instincts）。他沒有以價值觀審視香港。只要他繼續做總統，這種前景都會限制美國對香港發展的反應。」報道又說，美國政府官員認為，特朗普的取態讓美國使北京對香港更為克制：儘管特朗普看來只是利用這片中國領土攫取自己的利益。副總統彭斯上周說，「美國期望北京履行自己的承諾。總統特朗普反覆表明，如果當局選擇對香港示威者使用武力，那使我們更難達成貿易協議」。
+
+報道說，「在北京眼裏，美國政界中人不斷挑釁。10月22日，佩洛西在Twitter貼出她在國會山莊和香港三名民主派人物—黎智英、李柱明和彭家維—的合照」。上周三，佩洛西又譴責香港官員阻止黃之鋒參加區議會選舉的決定。她說，這是「對香港法治及『一國兩制』原則的另一次打擊」，即是打擊了英國和中國同意香港實施自治的政策根本。中國外交部發言人華春瑩反駁說：「正是由於佩洛西等外部勢力這種赤裸裸的包庇縱容、煽風點火，暴力分子才更加有恃無恐。」
+
+報道說，「很多示威者希望美國干預，他們聚焦於《香港人權與民主法案》。他們說，單是美國制裁的威脅，已令運動對北京有更大的聲音」，「10月14日，眾議院就法案投票前夜，示威者在中環集會呼籲通過法案。示威者數以萬計，很多人揮舞美國國旗」，「單是港人的力量有限，我們需要美國這樣的國家，幫助我們對抗中國和維護一國兩制。32歲的Eric Kwan説：『我懷疑法案最終能改變遊戲，但我認為它足以向中國施壓』」。
+
+文章說，除了准許制裁，法案要求國務院每年審視香港自治權，以決定香港是否仍合乎獲得1992年《香港政策法》賦予不同於中國的貿易和經濟優惠待遇。「一些美國官員指出，如果美國認定香港不符合自治體制，那麼該法案可能損害香港市民。但法案支持者認為，法案有實質和象徵價值」。
+
+報道最後說，「提出法案的佛羅里達州共和黨參議員魯比奧（Marco Rubio）説：『與香港人同行和維護香港自治，應是美國和世界民主國家的優先任務』」，「法案上月在眾議院一致通過。雖然參議院多數黨領袖麥康奈爾（Mitch McConnell）仍未安排法案投票日程，但法案預料在難以否決的多數票下獲得通過。之後，法案交由特朗普決定是否簽署」。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210920055001/https://www.hkcnews.com/aboutus/#subscribe)

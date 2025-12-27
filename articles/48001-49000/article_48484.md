@@ -1,0 +1,50 @@
+---
+title: "轟中方處理彭帥風波手法不可接受　國際女子網球協會WTA停辦中國賽事"
+date: "2021-12-02"
+last_updated: "2021-12-02 18:58:17"
+author: "中國組記者曾海琪"
+category: "眾聞"
+tags:
+  - "性侵醜聞"
+  - "眾新聞中國組"
+  - "彭帥"
+  - "WTA"
+url: "https://web.archive.org/web/20220117042114/https://www.hkcnews.com/article/48484/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-wta-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48491/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/48484/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-wta-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48491/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BDwta%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 轟中方處理彭帥風波手法不可接受　國際女子網球協會WTA停辦中國賽事
+
+內地網球名將彭帥涉嫌被前國家副總理張高麗性侵風波發酵整整一個月，國際女子網球協會WTA宣布即時暫停在內地及香港舉辦賽事。
+
+<figure>
+<img src="https://web.archive.org/web/20220117042114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/彭帥-20211202175738_f7b9_large.jpg" alt="">
+<figcaption>彭帥</figcaption>
+</figure>
+
+WTA主席Steve Simon的聲明指，自從彭帥發文指「即使是以卵擊石、飛蛾撲火自取滅亡的我，也會說出你的事實」，彭帥明知危險都挺身指控，展示的力量及勇氣令人敬佩。但後果是內地網絡所有涉及彭帥的信息都被移除，相關討論亦被審查，中國領導層亦沒有用任何可信方法應對這宗重大事件。
+
+聲明又指彭帥目前更下落不明，令Steve Simon嚴重懷疑她是否自由安全。而如果有權有勢的人可以掩蓋女性的聲音，實在有違WTA女性平權的基石，現在不能夠接受，他朝亦一定不會能夠接受。
+
+Steve Simon指如果2022年在中國舉辦比賽，非常擔心球員及WTA員工會在當地面對甚麼危險。因此在董事會全體支持下，雖然遺憾，但WTA決定停辦所有中國賽事，直至中方就彭帥事件展開詳盡、透明及沒有審查的調查。
+
+<figure>
+<img src="https://web.archive.org/web/20220117042114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/彭帥-20211202175721_17ca_large.jpg" alt="">
+<figcaption>Steve Simon</figcaption>
+</figure>
+
+WTA決定一出，獲多名現任與歷屆球王球后支持，包括WTA創始人金恩夫人、娜拉提洛娃、祖高域及羅迪克。而對於正在中國迅速發展的WTA來說，這個決定的經濟影響並不小。因應疫情停賽前，2019年中國舉辦了9場WTA賽事，獎金總額達3050萬美元。而原本深圳更獲得WTA年終總決賽2019年至2028年的主辦權。
+
+此外多個國際組織組成的體育與人權聯盟亦發聲明，呼籲國際奧委會保護彭帥，停止為中方背書，要重視人先於夥伴關係。又指如果彭帥和家人仍受脅迫，2022冬奧會應該轉換地點舉辦。
+
+至於國際奧委會今日再發聲，指昨日團隊與彭帥再次視像通話，將會與她保持定期聯繫。雙方同意在下月舉行個人會議，聲明又指有不同的方法來實現彭帥的幸福和安全，國際奧委會正使用靜默外交，認為是處理這類人道主義事務最有指望的的方式。
+
+而隨著彭帥風波未平息，被指立場親中方的英國時事評論員Tom Fowdy，就因為在俄羅斯媒體RT寫了一篇有關彭帥的文章，被央視旗下的CGTN封殺，不可以再為CGTN寫文。
+
+<figure>
+<img src="https://web.archive.org/web/20220117042114im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/12/彭帥-20211202175727_2721_large.jpg" alt="">
+</figure>
+
+文章包括指中方對彭帥失蹤的解釋無法令人信服，凸顯中國溝通問題，亦解釋為何總是被西方攻擊的理由。Tom Fowdy又指和內地媒體曾合作，知道背後如何運作，可以誠實地說它是死板及無效的。
+
+而當他被封筆後，他指不後悔寫這篇文章，當初撰文正因為他愛中國，鄙視美國的輿論戰。不過他亦在twitter上被嘲諷為別人大外宣但被拋棄，而Tom Fowdy指自己被封筆的微博目前亦已找不到。

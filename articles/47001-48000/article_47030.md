@@ -1,0 +1,44 @@
+---
+title: "樹仁新傳系男生後巷掟汽油彈囚4年9月　求情指檢控當頭棒喝　做記者理想受阻"
+date: "2021-10-29"
+last_updated: "2021-10-29 13:55:36"
+author: "記者邢穎琦"
+category: "眾聞"
+tags:
+  - "汽油彈"
+  - "縱火"
+  - "106反蒙面法遊行"
+url: "https://web.archive.org/web/20220924191441/https://www.hkcnews.com/article/47030/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-106%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47038/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://www.hkcnews.com/article/47030/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-106%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-47038/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD4%EF%BF%BD%EF%BF%BD%EF%BF%BD9%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 樹仁新傳系男生後巷掟汽油彈囚4年9月　求情指檢控當頭棒喝　做記者理想受阻
+
+<figure>
+<img src="https://web.archive.org/web/20220924191441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/10/反送中-汽油彈-20211029134919_1404_large.jpg" alt="">
+</figure>
+
+前年10月6日「反緊急法大遊行」，21歲樹仁大學傳理系男生被指在深水埗後巷向警員投擲汽油彈致地面燻黑，早前被裁定一項「罔顧生命是否會受危害而縱火」罪成，今（29日）在區域法院被判囚4年9個月。辯方求情指被告深愛香港，高中立志成為記者，但因本案受阻；檢控對他當頭棒喝，他亦不會重犯。法官李俊文指案發後巷狹窄擠迫，汽油彈著地火光令追截警員「受驚止步」，甚至發射兩枚橡膠子彈；事件在警方追截時發生，無疑激化已經敵對的氣氛，須判阻嚇性刑罰。
+
+21歲被告鄭永揚，現為樹仁大學新聞與傳播學系二年級生。案情指前年10月6日下午約5時，約80名示威者在深水埗聚集，兩名警員於大埔道後巷掃蕩時，被告向警員投擲一個汽油彈致路面著火及燻黑，其後逃跑時被制服。
+
+### 檢控對被告當頭棒喝
+
+辯方求情提到，被告深愛香港，高中立志成為記者，之後成功考上大學傳理系，一心期盼畢業後一展抱負，理想現因本案受阻。多封求情信均指被告學習態度積極、成熟、備受朋輩愛戴。辯方重申事件在電光火石間發生，沒有預謀；社會當時因反修例運動而氣氛緊張，但示威活動現已「消聲匿跡」，被告不會重犯，面對檢控已對他「重重的當頭棒喝」。
+
+辯方又補充，審訊原本排期今年年初進行，受疫情影響延後至7月；被告在8月剛年滿21歲，若較早完成審訊，或有勞教中心等其他判刑選擇。
+
+<figure>
+<img src="https://web.archive.org/web/20220924191441im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/10/106反蒙面法遊行-禁蒙面法-拘捕-20191008065208_a307_large.jpg" alt="">
+<figcaption>前年10月6日「反極權反緊急法大遊行」。資料圖片</figcaption>
+</figure>
+
+### 官指被告激化敵對氣氛
+
+法官李俊文強調本案控罪嚴重，即使提早審訊、被告未滿21歲，其他判刑選擇亦不可行。李官表示，本案在狹窄後巷發生，當時擠滿多名示威者和市民，甚至有修路工程，此等環境下投擲汽油彈尤其危險。雖然涉案汽油彈未被摔破，但著地溢出的易燃液體已足以產生火光，令追截警員「受驚止步」，甚至發射兩枚橡膠子彈，情況危急；當時另有一名女市民躲在後巷凹位，未有受傷但已受驚，可見被告行徑為在場人士帶來相當風險。
+
+辯方早前求情稱被告動機只是暫緩警方追截，李官批評指事件在緊張的追截中發生，無疑激化已經敵對的緊張氣氛，被告行為具挑釁性，增加事情惡化的風險。
+
+法庭考慮事件屬一次性，汽油彈只投向地面，以監禁5年為量刑起點；另因被告年紀尚算年輕，背景良好，第一次違法已要面對不輕的刑期，酌情扣減三個月刑期，即判監禁4年9個月。
+
+【案件編號：DCCC313/2020】

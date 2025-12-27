@@ -1,0 +1,55 @@
+---
+title: "林鄭廚房污煙瘴氣　政治酬庸班子墮落"
+date: "2020-06-01"
+last_updated: "2020-06-01 22:33:45"
+author: "楊健興"
+category: "眾觀"
+tags:
+  - "何啟明"
+  - "勞福局"
+  - "羅智光"
+url: "https://web.archive.org/web/20220123082335/https://www.hkcnews.com/article/30512/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30515/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30512/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30515/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林鄭廚房污煙瘴氣　政治酬庸班子墮落
+
+
+{{< video src="https://web.archive.org/web/20220123082335if_/https://www.youtube.com/embed/54eQ5ntx-Kw" >}}
+
+
+### [楊健興【香港這一天】結集](https://web.archive.org/web/20220123082335/https://bit.ly/2Cj8v4t)
+
+前特首董建華2002年推行問責制，明眼人一早看穿，目的是要從當時代表政務官的陳方安生奪權，董建華為壓住反對聲音，打響頭炮，成功遊說到一班各界精英加入「熱廚房」，包括梁錦松、廖秀冬、馬時亨等。問責制落筆打三更，梁錦松落馬，但制度已不能還原；2007年，曾蔭權上台，推出副局長、政治助理，長遠培養政治人才。其後的梁振英年代和林鄭月娥上台後，班子一蟹不如一蟹。政府日前宣佈，委任工聯會立法會議員何啟明為勞福局副局長，反映班子繼續尋底，愈墮落，自我感覺愈快樂。
+
+勞福局局長羅致光與何啟明今日見記者，羅致光表示，政府「 熱廚房」雖然溫度相當高，但願意加入政府的人大有人在，要找尋對政治和政策工作有認識的人選，何啟明是首選。他又說，政府在立法會手中無票，需要與友好團體建立包括合作的良性互動，但這並非找何啟明當副手的主因。對於今次人事安排，是否為安撫建制派在區選大敗，羅致光說，考慮副局長人選時，無考慮區議會選舉的因素。
+
+#### 羅致光被形容「IQ爆棚」，是前民主黨「大腦」，但掉換位置後， 屁股指揮「大腦」。假如說的是真心話，是判斷出了問題， 假如是假話，是更最嚴重的誠信問題。
+
+何啟明擔任立法會議員近4年， 除了幾句出位soundbite外，政績乏善足陳，較早前一句「 沙士」前要加上「香港」，其後致歉，他並非一時口快說錯，而是反映無知和染上政治正確凌駕常識病毒。何啟明被質疑英文水平，有記者即場以英文提問，窘態畢露；副局長並非英文科導師、英文節目主持，英文要唸得抑揚頓挫， 但香港是國際城市，官員須要接觸外籍人士，英文一團糟，自己醜怪，班子亦尷尬。
+
+
+{{< video src="https://web.archive.org/web/20220123082335if_/https://www.youtube.com/embed/qBXoH8Po2ks" >}}
+
+
+羅致光否認任命與建制派區選大敗有關，有睜著眼講大話之嫌。11月建制派大敗後，特首林鄭月娥公開表示會照顧建制「落敗一族」，過去幾個月，林鄭委任不少「敗部」加入各種諮詢委員會，以公職延續他們的政治生命。外間一直估計， 何啟明要留在議會的話，須循地區直選途徑，最大機會是九東。何啟明決定離開跑道，估計是讓出位置給之前立法會選舉落敗的鄧家彪。
+
+林鄭及班子民望插水，已無法管治， 只能靠警隊暴力和制度暴力管治，林鄭和羅致光表明要與建制政黨有「良性互動」，實際上是利益輸送，建制派一手交票（最新例子是海洋公園撥款），林鄭一手交位（何啟明及民建聯成員葉俊廉為財經事務及庫務局局長政治助理）。
+
+何啟明昔日在立法會曾批評羅致光「不接地氣」，他今日表示，不同崗位有不同的角度。3天前，何啟明仍然扮演議員、監督政府，要官員問責，遊說羅致光接受失業救濟金建議；3天後，與羅致光拍膊頭，遊說工聯會放棄要求。何啟明火速轉換角色，食相難看，人格分裂，政治道德大賤賣。
+
+羅致光表示，願意加入政府的人大有人在，可信性高，因為工聯會和民建聯有大量何啟明和葉俊廉等「政治（投機）人才」 ，他們普遍質素低、缺乏獨立思考能力和政治道德，加入班子，令「熱廚房」更污煙瘴氣，真心想做事的更加卻步。
+
+#### 富商李嘉誠2014年出席業績記者會時說，「有能力的人唔出聲、無能力的人又爭住做」，惹來外界揣測李嘉誠所指的是當時的特首梁振英，他後來補充，「我都沒有說是他」。李嘉誠當年的一句話，今天仍用得著。
+
+
+{{< video src="https://web.archive.org/web/20220123082335if_/https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2FRTHKVNEWS%2Fvideos%2F266006231177045%2F&show_text=0&width=560" >}}
+
+
+---
+
+![主筆 | 楊健興](https://web.archive.org/web/20220123082335im_/https://www.hkcnews.com/uploads/avatars/1cabb7bd-d184-4a9f-af9f-5f9fa87c7687.png?1648691255)
+
+**主筆 | 楊健興**
+
+資深新聞工作者、浸會傳理人。自80年代起專責報道和分析香港政治與政策，曾任職《南華早報》、《信報》，英文評論網站 Voice of Hong Kong (www.vohk.hk) 創辦人； 對新聞工作仍著迷，能走多遠走多遠。

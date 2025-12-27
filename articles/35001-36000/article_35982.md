@@ -1,0 +1,65 @@
+---
+title: "武肺確診破6000　養和現小型爆發　袁國勇視察：「醫院有爆發，原因係社區有爆發」"
+date: "2020-11-27"
+last_updated: "2020-11-28 01:51:20"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "養和醫院"
+  - "養和"
+  - "hksh"
+  - "袁國勇"
+  - "第四波疫情"
+url: "https://web.archive.org/web/20221003014056/https://hkcnews.com/article/35982/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35998/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6000-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/35982/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-35998/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD6000-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 武肺確診破6000　養和現小型爆發　袁國勇視察：「醫院有爆發，原因係社區有爆發」
+
+本港今日新增92宗武漢肺炎確診個案，創第四波疫情的單日新高，亦令本港累計確診個案突破6000宗。今日新增個案裡面，歌舞群組佔58宗，該群組累計已經達到367宗。
+
+疫情再度擴散下，衞生防護中心傳染病處主任張竹君指，養和醫院出現小型爆發，一名住院（單人房）3個多月的婆婆昨日初步確診後離世，院內曾搶救婆婆的一名護士，及在病房內工作的一名人員，今日亦都初步確診；探訪婆婆的一名家人之前曾有不適，但未確認是否染疫。而同層病房（ward）其他單人房共13名病人原址接受隔離檢疫。
+
+政府專家顧問、港大微生物學系講座教授袁國勇已經到養和醫院視察，形容醫院的感染控制措施已經做到幾近滴水不漏，但估計來探病的家人可能帶病毒，例如接觸過跳舞群組，來院探病時未有正確申報接觸史，以致將病毒帶入院。
+
+他並指，婆婆本身患有末期癌症，無辦法禁止家人探病，而醫院已經做足預防措施，包括申報接觸史、病毒抗原測試。袁又說：「 **醫院裡面有爆發，最重要原因係社區有爆發。如果社區裡面的爆發無辦法控制到，遲早醫院或者老人院，或者其他醫療院舍，都係會受到影響。** 」
+
+另外，有線電視老闆、遠東發展主席兼行政總裁邱達昌的太太早前確診，邱達昌今晚發聲明，表示自己亦得悉檢測結果呈陽性。他在聲明又透露，夫婦二人本月19日在朋友家中進行私人飯局，出席的友人包括謝玲玲、余錦基，其後獲悉席間有人確診，遂接受病毒檢測。
+
+<figure>
+<img src="https://web.archive.org/web/20221003014056im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/袁國勇-第四波疫情-hksh-20201127211342_6f3c_large.png" alt="">
+<figcaption>政府專家顧問、港大微生物學系講座教授袁國勇受養和醫院之邀前往視察。港台影片截圖</figcaption>
+</figure>
+
+本港今日新增92宗個案，其中17宗屬源頭不明本地個案、72宗與其他個案相關、3宗屬輸入個案。養和醫院一名初步確診者離世，並有兩人今日初步確診。另外，瑪嘉烈醫院一名兒科護士、屯門醫院一名骨科病人，亦都分別於今日初步確診。今日暫時有60多宗確診個案。
+
+養和已辭世患者是77歲婆婆，8月中開始住33樓的單人房，25日發燒、26日氣促、昨日初步確診，同日離世。袁國勇現場視察後透露，患者有末期癌症，多痰，有三名家人經常來探病，懷疑其中一位將病毒帶給患者，患者再於院內傳給兩名醫院人員。
+
+患者曾經心臟停頓，一名為其進行搶救的護士今日初步確診。袁解釋：「雖然個時間唔係好長，但嗰段時間醫護人員都幾緊密的接觸，加埋個病人本身免疫系統好差，因為佢本身已經係末期癌症，於是佢感染了新冠病毒的時候，佢出來的病毒量係好高。就算你戴哂口罩、有埋面罩都好，如果你唔係戴緊N95嗰啲，你仍然都係有被感染的風險。」
+
+「大家要明白，當個病人心臟停頓時，你唔會有時間戴N95搞哂呢啲嘢，就係你戴緊咩野，即刻去救佢。所以我亦都覺得，今次呢個事件係一個，真係可以講係無辦法避免的情況。」袁國勇並指，病人需要用霧化藥物，令到病毒更容易傳播出來。
+
+養和醫院為全院3300名醫護人員進行病毒測試，因為患者接受過不同醫療程序，例如照X-ray、抽血、拍痰。袁國勇認為醫院感染控制措施做得好好，相信醫院病人是安全的。袁說：「醫院裡面有爆發，最重要原因係社區有爆發。如果社區裡面的爆發無辦法控制到，遲早醫院或者老人院，或者其他醫療院舍，都係會受到影響。」
+
+<figure>
+<img src="https://web.archive.org/web/20221003014056im_/https://hkcnews.com/news_新聞/hk-discuss/2020/11/第四波疫情-武漢肺炎-20201127211326_262e_large.png" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+至於初步確診的瑪嘉烈醫院的兒科護士，在院內工作期間有穿戴合適防護裝備，懷疑是帶小朋友去學琴期間無戴口罩，而教琴老師早前已確診，從而受感染，估計非醫院內傳播。護士曾經照顧4名嬰兒，全部已檢測並取得陰性結果，同房有20名嬰兒住過，與護士無接觸，7人已出院，已聯絡他們的父母帶嬰兒接受病毒檢測；同病房工作的50名同事亦須接受病毒檢測，陸續取得結果均呈陰性。屯門醫院骨科病人初步確診，同病格有5名病人。
+
+### 源頭不明個案現升勢
+
+醫院爆發情況以外，源頭不明個案亦上升，今日有17宗。其中一宗是14歲聖公會諸聖中學學生，學校須停面授課及校內活動14天、全校師生接受病毒檢測。
+
+歌舞群組今日雖然新增58宗個案，政府無新增涉爆發地點要求曾到訪市民接受強制檢測。目前，政府列出7個處所，要求本月曾到訪的市民做病毒檢測。市民須於11月29日（本周日）之前接受檢測，如未有遵從檢測公告可被罰款2000元，再拒檢測可被罰款25000元、監禁6個月。
+
+7個地點為：
+
+-石硤尾彩龍大酒樓   
+ -黃大仙彩雲商場彩龍皇宮大酒樓   
+ -黃大仙飛鳳街BandStage   
+ -銅鑼灣金利文廣場A&B Dance Studio   
+ -太子道西樂陶演藝中心   
+ -尖沙咀美麗華廣場A座11樓（菲力偉健美集團小組課堂）   
+ -銅鑼灣利園2期4樓（菲力偉健美集團小組課堂）

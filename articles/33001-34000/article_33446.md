@@ -1,0 +1,58 @@
+---
+title: "【荒謬事件盤點】從反送中開始，談「合理懷疑」"
+date: "2020-08-31"
+last_updated: "2020-08-31 18:32:37"
+author: "殷琦"
+category: "眾說"
+tags:
+  - "831警察太子站打人"
+  - "陳彥霖"
+  - "原告變被告"
+url: "https://web.archive.org/web/20210726155922/https://www.hkcnews.com/article/33446/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33453/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/33446/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-831%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-33453/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【荒謬事件盤點】從反送中開始，談「合理懷疑」
+
+要罵政府的說話，已經說了太多、竟已開始找不到適合的辭句去繼續罵它（除了不斷說粗口以外）。這兩日的大新聞是林卓延與許智峰被捕、黑警公然向全香港市民說謊。到底香港可以有多荒謬？
+
+<figure>
+<img src="https://web.archive.org/web/20210726155922im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/08/721元朗恐襲-許智峯-林卓廷-20200826132901_1534_large.png" alt="">
+</figure>
+
+看警匪劇，我們常常聽到「合理懷疑」四字。「合理懷疑」即係點？我們不是警察，沒辦法把犯罪者繩之於法，但我們的猜測都是建基於合理懷疑之下出現。例如面前有個被人咬掉一口的蘋果，我們就有理由相信有人吃了一口這個蘋果。蘋果可以是跌在地上以致缺了一角、或是因虫蛀而缺了一邊、但由於有咬痕，所以斷定是有人吃了一口蘋果就十分合理。
+
+回說721，市民對警察的懷疑，就是基於這樣的「合理懷疑」。鏗鏘集等鐵證如山自不多提、多項證據顯示警察對市民生死置若罔聞，甚至是有組織有預謀地置元朗市民生死不願。然後如今被打者被捕、與白衣握手的何君堯說盡風涼話；警司先生竟然要求記者以特定方向提問、警方更未事先知會傳媒而使用傳媒所拍的截圖、這一切一切不道德的墮落行徑竟然發生在要「維持治安」的警察身上。
+
+例如陳彥霖之死，雖然網上瘋傳一大堆疑似陳母屍體照、也有不少陰謀論無限想像，但我只想提出一點： [資深法醫馬宣立已言「女遺體被發現時全裸確實可疑」，但警方卻極快把遺體火化](https://web.archive.org/web/20210726155922/https://hk.appledaily.com/local/20191015/SMRVGN2YZC7J6ULDZZX6BVU6LI/) ，原因在哪？如果死因有可疑，即使家屬希望盡快火化、也當保留屍體作證據。我針對的是，為何警方會如此「迅速」地火化屍體？是要「毀屍滅跡」？這不是「合理懷疑」是什麼？
+
+又例如831，我個人也對「有沒有死人」此事存疑，但重點是無論有無死人，警方當時強封太子站已是大錯，因為任何可能的證據都可以被銷毀（陳彥霖案亦如是）—問題不是在於「有沒有死人」、而是警方你令「任何人都無法證明有沒有死人」，這才是大問題。做出這樣的行徑，我「合理懷疑」警方有事隱瞞，也是情理之內。
+
+公權無限膨脹的現象，到一年後的今天只越發離譜。那個健康碼，只能說這是比《黑鏡》更可佈更荒誕的事情。有看過 [《黑鏡》](https://web.archive.org/web/20210726155922/https://bit.ly/3hvq2Hv) 的話都知道這是一套講述資訊科技如何毀滅我們人生、以致社會的英國劇集。要知道市民的驚恐、同樣基於「合理懷疑」。我們領教過大陸一套，就知道「全民控制」不是說笑的、「資訊控制」也不是說笑的。市民基於「合理懷疑」而對全民檢測和健康碼產生抗拒，完全是合乎常理的反應。
+
+<figure>
+<img src="https://web.archive.org/web/20210726155922im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/黑鏡Black%20Mirror-UK-方舟天使Arkangel-20200724124929_2835_large.png" alt="">
+<figcaption>英國劇集《黑鏡》劇照。</figcaption>
+</figure>
+
+或許藍絲會言，「美國資訊私穩侵犯得仲勁啦！」第一，我本來就不想糾纏於「兩舊都係屎 、哪一塊比較難食？」的低質討論。第二，說到底人家就是民主國家，我就是不會因為反抗政府無端白事被捉去坐牢。香港呢？被打的人被捕、打人個西瓜佬成年都未被捉，有道理嗎？
+
+市民的「合理懷疑」，在高官警察眼中，都是「胡亂猜測」、「過度緊張」、「溝通誤會」。反正市民就是要故意和你對著幹。
+
+香港人有這樣的政府，到底前世是犯了什麼錯呀？
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726155922/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 殷琦](https://web.archive.org/web/20210726155922im_/https://www.hkcnews.com/uploads/avatars/2d741b5c-2478-4f90-be1d-c617771b50da.png?1594224226)
+
+**博客 | 殷琦**
+
+【殷琦．殷琦專欄】一舊蕃薯般的孤獨文青，也許是讀書太多，總活在迷霧之中。怨氣太多，希望太少，與你和我一樣，在小小的香港同受壓抑、同唱悲歌、每天僅為生活掙扎求存。為註冊藝術（表達藝術）治療師。興趣在表達藝術治療、哲學、心理學、生活、音樂、藝術、政治、宗教等。FB專頁：https://www.facebook.com/YanKiHongKong/

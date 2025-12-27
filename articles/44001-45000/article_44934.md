@@ -1,0 +1,67 @@
+---
+title: "【獄中書】還柙青年阿均：個人嘅力量微小但勝在隱匿　斗膽講句：理念可能真係不滅"
+date: "2021-09-01"
+last_updated: "2021-09-02 11:07:00"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "獄中來信"
+  - "728上環衝突"
+  - "還柙"
+url: "https://web.archive.org/web/20211026233044/https://hkcnews.com/article/44934/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/44934/728%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44956/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【獄中書】還柙青年阿均：個人嘅力量微小但勝在隱匿　斗膽講句：理念可能真係不滅
+
+[阿均（化名）](https://web.archive.org/web/20211026233044/https://www.hkcnews.com/article/30295/%E8%AA%8D%E7%BD%AA-728%E4%B8%8A%E7%92%B0%E8%A1%9D%E7%AA%81-%E6%9A%B4%E5%8B%95%E7%BD%AA-30347/25%E6%AD%B2%E9%9D%92%E5%B9%B4%E6%89%BF%E8%AA%8D%E6%9A%B4%E5%8B%95%E7%BD%AA%EF%BC%9A%E7%89%86%E5%A4%96%E6%AF%94%E7%89%86%E5%85%A7%EF%BC%8C%E6%9B%B4%E6%B2%89%E9%87%8D%E9%9B%A3%E9%81%8E) 於2019年7月28日在上環被捕，去年5月承認一項暴動罪，還柙至今經逾一年。在囚多時，他仍關心著牆外的事，上月多個民間團體接連宣佈解散，包括教協、民陣、612人道支援基金（612基金）。阿均寄出第四封獄中書，鼓勵說：「個人嘅力量好微小，但勝在隱匿，斗膽講句：理念可能真係不滅——你諗下連中國都仲有維權律師。」
+
+阿均寫信的時候是8月18日，當時支聯會尚未傳出解散消息。而已經宣布將會解散的612基金，據報警方引用《國安法》向高等法院申請「提交物料令」（production order），要求612基金信託人及真普選聯盟有限公司董事，在限期內提交資料，以調查是否涉及勾結外國勢力。
+
+阿均目前仍未知刑期，這是由於同案其餘23名被告不認罪，經審訊後已定於11月裁決，阿均亦將最快在11月才判刑。
+
+<figure>
+<img src="https://web.archive.org/web/20211026233044im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/還柙-728上環衝突-獄中來信-20210901215147_20d6_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+以下是阿均獄中書全文：
+
+### 〈當一座座「大山」崩塌，我哋應該如何自處？〉
+
+近日新聞傳嚟好多團體解散或被打壓嘅消息，包括民陣、教協、各大學生會、言語治療師總工會……今日家人亦通知我612將會停止運作。一個個敢於發表異見（但唔代表反政府或支持港獨）嘅團體消失，社會上可能又掀起一陣無力感。然而，或者我覺得哩啲事遲早會發生，所以成真時亦唔意外。
+
+我個人認為當政治打壓來臨，而又秀才遇著兵，化整為零係一個唔錯嘅選擇，避免被一網打盡。 **情況就似面對砲轟，分散先係合理企位。** 當然我冇可能揣摩到解散背後係因為策略抑或純粹無以為繼，我想表達嘅係：其實唔使咁灰（可能你都冇灰）。
+
+**或者當團體崩解支離，我哋先可以思考個體行動嘅可能性。** 二零一九年，個體嘅思考同行動喺反修例運動中帶嚟許許多多嘅可能性。同樣，喺團體再唔能夠成為保護傘時，我哋個體需要思考自己微小但確實存在嘅力量點樣可以喺社會中發光。以台灣同捷克為鑑，當明面上唔再有主旋律以外嘅團體，集會結社會轉向地下。地下出版、論政、讀書、教育、健身、經濟圈……可以做嘅事仲有好多。聲音同理念會一直存在，只因我哋生而為人自有一套價值觀，自有一股獨特性，呢個係人性尊嚴，不被意識形態同化嘅尊嚴。保持自己嘅獨特性，盡量講自己想講嘅說話，固然會有人退，咪睇情況補位。個人嘅力量好微小，但勝在隱匿，斗膽講句：理念可能真係不滅——你諗下連中國都仲有維權律師。
+
+樹倒猢猻散，但猢猻冇死，猢猻be water，猢猻生活得好好，猢猻要生活得好好。最後，作為一位在囚人士，想多謝612一直對一眾手足嘅支援，612能夠喺政府眼下生存至今已經好犀利。提起612就想引吳靄儀嗰句「XX時，要看書」，但就醒唔起XX係乜（類似「困惑」），呢啲就叫書到用時方恨少，所以真係要讀多啲書。
+
+阿均
+
+二一年八月十八匆匆隨寫
+
+【編按：吳靄儀去年7月接受 [《明周》訪問](https://web.archive.org/web/20211026233044/https://www.mpweekly.com/culture/%e9%96%b1%e8%ae%80%e4%bd%bf%e4%ba%ba%e8%87%aa%e7%94%b1-%e8%87%aa%e7%94%b1-%e9%96%b1%e8%ae%80-153491) ，與陳健民對談，期間說：「得閒時，要看書；動盪時，要看書；自己好本事，要看書；覺得無力時，更加要看書。」】
+
+*   *   *   *   *   *   *   *
+
+更多還柙青年阿均獄中信：
+
+[【第一封信】遇見大隻勇武、書生手足，都係有血有肉嘅人](https://web.archive.org/web/20211026233044/https://www.hkcnews.com/article/32106/%E5%9C%8B%E5%AE%89%E6%B3%95-%E8%B5%A4%E6%9F%B1%E7%9B%A3%E7%8D%84-%E6%9A%B4%E5%8B%95%E7%BD%AA-32106/)
+
+[【第二封信】因疫情停議員探訪、停球類運動，感受如「食韓燒但唔畀火你」](https://web.archive.org/web/20211026233044/https://bit.ly/31PFglE)
+
+[【第三封信】談通識老師被釘牌　籲勿擔心囚中生活　聽Imagine讀魯迅、報復式打波](https://web.archive.org/web/20211026233044/https://www.hkcnews.com/article/34960/%E7%8D%84%E4%B8%AD%E4%BE%86%E4%BF%A1-728%E4%B8%8A%E7%92%B0%E8%A1%9D%E7%AA%81-%E6%9A%B4%E5%8B%95%E7%BD%AA-34960/%E3%80%90%E7%8D%84%E4%B8%AD%E4%BF%A1%E3%80%91%E9%82%84%E6%9F%99%E9%9D%92%E5%B9%B4%E9%98%BF%E5%9D%87%E8%AB%87%E9%80%9A%E8%AD%98%E8%80%81%E5%B8%AB%E8%A2%AB%E9%87%98%E7%89%8C-%E7%B1%B2%E5%8B%BF%E6%93%94%E5%BF%83%E5%9B%9A%E4%B8%AD%E7%94%9F%E6%B4%BB-%E8%81%BDimagine%E8%AE%80%E9%AD%AF%E8%BF%85%E3%80%81%E5%A0%B1%E5%BE%A9%E5%BC%8F%E6%89%93%E6%B3%A2)
+
+<figure>
+<img src="https://web.archive.org/web/20211026233044im_/https://hkcnews.com/news_新聞/hk-discuss/2021/09/還柙-獄中來信-728上環衝突-20210901213605_1a6e_large.jpg" alt="">
+<figcaption>阿均獄中來信第一頁。</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026233044/https://hkcnews.com/aboutus/#subscribe)

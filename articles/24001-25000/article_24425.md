@@ -1,0 +1,49 @@
+---
+title: "彭斯措辭嚴厲演說狠批中國　稱美國與香港在一起"
+date: "2019-10-25"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "彭斯"
+  - "中美關係"
+url: "https://web.archive.org/web/20210712033432/https://www.hkcnews.com/article/24425/%E5%BD%AD%E6%96%AF-%E4%B8%AD%E7%BE%8E%E9%97%9C%E4%BF%82-24425/%E5%BD%AD%E6%96%AF%E6%8E%AA%E8%BE%AD%E5%9A%B4%E5%8E%B2%E6%BC%94%E8%AA%AA%E7%8B%A0%E6%89%B9%E4%B8%AD%E5%9C%8B-%E7%A8%B1%E7%BE%8E%E5%9C%8B%E8%88%87%E9%A6%99%E6%B8%AF%E5%9C%A8%E4%B8%80%E8%B5%B7"
+original_url: "https://www.hkcnews.com/article/24425/%E5%BD%AD%E6%96%AF-%E4%B8%AD%E7%BE%8E%E9%97%9C%E4%BF%82-24425/%E5%BD%AD%E6%96%AF%E6%8E%AA%E8%BE%AD%E5%9A%B4%E5%8E%B2%E6%BC%94%E8%AA%AA%E7%8B%A0%E6%89%B9%E4%B8%AD%E5%9C%8B-%E7%A8%B1%E7%BE%8E%E5%9C%8B%E8%88%87%E9%A6%99%E6%B8%AF%E5%9C%A8%E4%B8%80%E8%B5%B7"
+---
+
+# 彭斯措辭嚴厲演說狠批中國　稱美國與香港在一起
+
+  
+   
+
+
+
+{{< video src="https://web.archive.org/web/20210712033432if_/https://www.youtube.com/embed/f5CW6jmZedI" >}}
+
+
+美國副總統彭斯周四（24日）在華盛頓智庫威爾遜中心（Wilson Center）發表對中國政府措辭嚴厲的演說，其中多次提到香港。他表示，美國支持港人以非暴力方式對自由和民主的抗爭，又說美國與香港在一起，「在數百萬民眾走上街頭和平抗議之際，我們為香港民眾發聲。特朗普總統很早就明確表示，必要有尊重港人權利的和平解決方案，這些權利是1984年《中英聯合聲明》所列明的。」彭斯並稱，港人在這場抗爭展現出對自由民主的追求，也啟發了美國人。
+
+他說，香港一直是中國與世界的重要門戶，香港是全球最自由的經濟體之一，擁有堅強的獨立法律機構、活躍的新聞自由（is one of the freest economies in the world, with strong, independent legal institutions and a lively free press）。但過去幾年，北京加強對香港的干預，採取行動減少港人的權利與自由。他說，特朗普很清楚表達美國對自由的主張，美國尊重各國的主權，但也希望北京恪守承諾，特朗普多次表示若北京當局對香港示威者訴諸暴力，將使貿易協議的達成更加艱難。彭斯指，樂見港府撤回逃犯條例，北京也展現一定的克制。美方將繼續敦促中國克制、兌現承諾，並尊重港人連月來為了確保權利的和平示威。
+
+彭斯特別提到，「對於過去幾個月來，香港數以百萬和平示威捍衛自身權利的人士，我們與你在一起」（and to the millions in Hong Kong who have been peacefully demonstrating to protect your rights these past months, we stand with you）。他續稱，「我們受到你們啟發，希望你們繼續在非暴力抗爭道路。如今你們得到數以百萬美國人民的祈禱與敬仰」（We are inspired by you, and we urge you to stay on the path of nonviolent protest. But know that you have the prayers and the admiration of millions of Americans）。
+
+彭斯周四是在威爾遜中心主辦的馬勒克公共服務領袖講座（Frederic V. Malek Public Service Leadership Lecture）發表演說。他在開始時說，這個題目是「與21世紀命運大有關係的美國與中國關係」。去年10月4日，彭斯曾在華盛頓另一智庫哈德遜研究所，就美中關係發表措辭強硬的演說。他原定今年6月就美中關係再次發表講話，但被延至現在。
+
+彭斯周四在演說中強調，美國仍然致力於在平等互惠的基礎上，與北京建立務實的合作關係。美中兩國有望在下月於智利舉行的APEC峰會，達成第一階段貿易協議。不過，他抨擊北京違背與美國在雙方貿易談判中作出的承諾，而且在一些不公平貿易行為上變本加厲，又指北京加大竊取美國知識產權的行為。
+
+在演說中，彭斯就台灣、新疆和宗教問題批評北京。他指責北京繼續打壓實行民主的台灣的國際空間，「過去一年，中國通過金錢外交，誘使另外兩個國家與台北斷交轉而承認北京，增加了台灣民主的壓力」。他說，美國今年批准更多的對台軍售，以示對台灣的支持。
+
+他說：「中國共產黨政府逮捕基督教牧師，禁止銷售《聖經》，拆毀教堂，監禁了超過100萬的維吾爾穆斯林。因其對待新疆穆斯林少數族群的方式，我們追究北京的責任，上月，特朗普總統對一些中國共產黨官員實施簽證限制，並且對中國20個公安部門和八家企業實施制裁，以懲罰他們參與迫害維吾爾人和其他中國穆斯林。」
+
+在致詞中，彭斯猛烈批評美國大企業為了在中國的經濟利益，犧牲美國人崇尚的精神：「太多美國跨國企業向中國的金錢和市場的誘惑叩頭」（ too many American multinational corporations have kowtowed to the lure of China’s money and market），「他們不僅不批評中國共產黨政府，也不積極表達美國的價值觀。Nike將其自身營銷為所謂的『社會正義鬥士』，但是在香港問題上，Nike選擇把社會良心拒之門外。Nike在中國的門店移走休斯頓火箭隊的商品，加入與中國政府一起向火箭隊總經理莫雷的貼文抗議」。
+
+彭斯說，「一些最大牌球星和老闆，他們經常行使他們的自由來批評這個國家，但是在中國民眾的自由與權利問題上，他們卻失聲了。NBA與中國共產黨政府為伍，壓制言論自由，行為就像是那個威權政權全資擁有的子公司」（ In siding with the Chinese Communist Party and silencing free speech, the NBA is acting like a wholly owned subsidiary of the authoritarian regime）。
+
+與去年10月的講話類似，彭斯嚴厲抨擊中國共產黨政府在多方面的行為。不過，他說，儘管北京的一連串行為使美中關係面臨嚴峻挑戰，但特朗普政府仍然致力於與北京建設一個務實的雙邊關係。他說，美中關係涉及21世紀的命運。他說：「總統已經明確表示，美國不尋求與中國對抗。我們尋求的是公平競爭的環境，開放的市場，公平的貿易，以及中國尊重我們的價值觀。我們不尋求遏制中國發展。我們想要和中國領導人建立建設性的關係，就像我們和幾代中國人享受的關係一樣。如果中國向前一步，抓住這個獨特的歷史機遇重新開始，停止那些佔了美國人太久便宜的貿易行為，我知道特朗普總統已準備好並願意開啟新的未來。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712033432/https://www.hkcnews.com/aboutus/#subscribe)

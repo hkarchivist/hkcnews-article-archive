@@ -1,0 +1,90 @@
+---
+title: "精英運動員控訴　全職教練、治療師不足　田徑靠義教訓練　乒乓教練過勞暈倒"
+date: "2021-10-08"
+last_updated: "2021-10-08 21:59:49"
+author: "記者曾港深"
+category: "眾聞"
+tags:
+  - "香港體育學院"
+  - "杜凱琹"
+  - "陳銘泰"
+  - "黃俊穎"
+url: "https://web.archive.org/web/20221003204241/https://hkcnews.com/article/46279/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46279/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46326/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 精英運動員控訴　全職教練、治療師不足　田徑靠義教訓練　乒乓教練過勞暈倒
+
+全國運動會上月閉幕前一天（9月26日），行政長官林鄭月娥到陝西運動員村探訪香港田徑代表，多名運動員趁機向她表達對香港體育學院（體院）的資助及資源不足的問題。其中香港跳遠代表陳銘泰於席間提出，只有兩名全職教練應付百幾、二百名田徑運動員，根本無法提拔年輕運動員，林鄭聽罷表現詫異回答：「你唔講，我以為依家教練都幾好，因為睇親啲教練出嚟，都好有影響力，例如沈金康教單車。所以個別項目如果係有啲分配資源方面唔係好完全合適，我哋返去睇睇。」
+
+事隔才十多日，再有運動員提出相同問題。在多哈亞洲乒乓球錦標賽首奪女雙銀牌後返港的杜凱琹，今（7日）在社交媒體發文指，團隊中的體能教練和治療師人手不足。帖文中提到，球隊的治療師需要一人負責治理十個人，而體能教練則在球館內工作11小時，返回酒店後暈倒。杜凱琹亦在帖文中直言很羨慕其他亞洲強隊，因為他們是一個球員帶五個人，包括兩個陪練、教練、體能教練及治療師。
+
+對於早前向特首直言教練不足的問題，陳銘泰接受眾新聞電話訪問表示，他留意到自己當日提出的問題引起迴響，感激傳媒廣泛報道，但認為大部分傳媒誤解他的意思，他說當時提到的「百幾、二百個田徑運動員」，是指香港田徑隊成員，但實際能在體院受訓的全職精英田徑運動員只有34名，雖然教練不足的問題仍然存在，但比例上未至於1：100那麼誇張。至於對林鄭當日回覆的意見，陳銘泰笑說：「佢淨係講得出沈金康，就證明佢都只係識得一、兩個，唔係好了解。」
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/林鄭月娥-香港運動員-徐英偉-20211007213249_1111_large.jpg" alt="">
+<figcaption>特首林鄭月娥（藍衣）在西安到訪運動員村，探望參與全運會的香港田徑運動員。政府新聞處圖片</figcaption>
+</figure>
+
+陳銘泰透露，林鄭月娥當日在席間提到香港的體育事務一直都履行盛事化、普及化及精英化，更指未來會推動香港體育專業化及產業化。陳銘泰認同新措施將會為體育界帶來進步，但以田徑項目為例，只有運動員專業化絕對不足夠，教練專業化亦必須正視。
+
+### 付出私人時間　無償指導
+
+他指，現時體院內只有兩名全職田徑教練，包括接力隊及短跑教練蔣偉洪，以及跳高教練溫達勇，根本不足以兼顧所有田徑運動員的專項指導需求，故此體院內不少精英田徑運動員都自行聘請教練，但許多都是義教，包括陳銘泰的教練陳慧賢，因此他認為教練的待遇絕對需要改善。
+
+「好似我教練咁，佢係一位老師，上完堂就要即刻落運動場同我哋訓練，一練可能就練到天黑8、9點，返到屋企食完嘢，可能就要瞓覺，第二朝又要一早起身返學校教書。唔單止我教練係咁，其實好多精英運動員嘅教練都係咁，佢哋付出咗好多私人嘅時間，例如放棄咗同屋企人嘅相處時間，就係為咗同我哋訓練。所以我哋呢班運動員真係好好彩，如果無佢哋呢班教練栽培，我哋今日唔可能做到而家嘅成績，我真係好感激佢哋。」
+
+陳銘泰稱，相對教師的高薪厚職，田徑教練的人工「完全無得比」，甚至低過很多精英運動員，難以供樓及養家，「曾經聽聞體院想出offer俾我教練，但人工真係太低，同老師完全無得比」。
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/陳銘泰-跳遠-20211007212902_2073_large.jpg" alt="">
+<figcaption>陳銘泰於今屆中國全運會男子跳遠決賽中，跳出7.51米成績，排在第12名。香港田徑總會圖片</figcaption>
+</figure>
+
+### 「無咗呢班教練，唔會再有下一個陳銘泰」
+
+陳銘泰的教練和港隊跨欄代表陳仲泓的教練同樣任職教師，也是義務執教他們，陳銘泰擔心長此下去，田徑運動的可持續性會逐漸降低，「如果呢班教練無一個認可性俾佢哋，（香港的田徑運動）發展唔會長遠。如果無咗呢班教練，就唔會再有下一個陳銘泰、下一個呂麗瑤，因為我哋有朝一日都會退役，始終都要有新血。而且俾返一啲incentive allowance（獎勵津貼）教練真係好合理，特別係精英項目，有資源嘅情況下，無理由要啲教練白白犧牲自己時間咁去義教，咁樣講唔過去。」
+
+他再以自己的教練陳慧賢為例，「好似我教練咁，收咗我、高澔塱同馬嘉豪，幾個係跳項都有成績嘅運動員，已經唔會再收新嘅學生，因為佢根本無時間兼顧，佢要喺德望中學教書，最多只係教吓佢間學校嘅田徑隊，但唔係全港跳遠嘅運動員」。
+
+陳銘泰指，一直以來都有很多有潛質的跳項運動員想跟隨陳慧賢學習，但一一被拒諸門外，全因陳慧賢已分身不暇，「佢要教書，又有四個學生（運動員），仲有小朋友同家庭，根本擺唔到咁多時間去栽培多個新星。但其實佢係好願意教人，無奈為咗生活，佢仍然需要教書呢份工」。
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/運動員-陳銘泰-20211007224141_2e92_large.jpg" alt="">
+<figcaption>陳銘泰指其教練陳慧賢只有4名跳項學生，但已經佔用了她的大量時間。（左起：馬嘉豪、俞雅欣、教練陳慧賢、陳銘泰、高澔塱）陳銘泰Instagram圖片</figcaption>
+</figure>
+
+不過，陳銘泰認為體院及香港田徑總會（田總）都有嘗試改善教練短缺的問題，他透露體院即將聘請多兩名全職田徑教練，一個負責跳項，一個負責短跑及跨欄，是次招聘亦不限於本港教練，這意味着有機會聘請到海外教練執教。「我覺得假設真係聘請到海外教練，都可以俾本地教練跟隨海外教練學習，因為我相信香港嘅田徑教練同海外嘅仍然有一定距離。要田徑項目能夠長遠發展，栽培本地教練亦非常重要」。
+
+陳銘泰坦言，他不敢奢望自己「講兩句，抱不平」就能改變到體院的教練制度，但他仍希望自己向政府及大眾道出事實，因為這群義務的田徑教練值得獲取有更好的待遇，他希望政府能夠協助這批義務教練轉為體院的全職教練，並建立一套完善的教練系統，讓年輕運動員可以持續發展。
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/黃俊穎-三級跳-20211007213138_a71c_large.jpg" alt="">
+<figcaption>三級跳運動員黃俊穎（黑衣）認為，體院既然公開招聘全職田徑教練，倒不如將該筆款項資助一直指導精英運動員的義務教練。曾港深攝</figcaption>
+</figure>
+
+### 三級跳運動員黃俊穎　入體院義務教女友跳高
+
+自行聘請田徑教練義務執教的，還有香港三級跳運動員、田徑教練黃俊穎的女友鍾慧欣。鍾慧欣是體院的精英跳高運動員，她的義務教練正是黃俊穎本人。黃俊穎接受眾新聞訪問表示，現時不少體院內的田徑運動員都像他女友的情況，需要跟隨外面的義務教練進行日常訓練。
+
+黃俊穎表示，他留意到體院最近公開招聘全職田徑教練，人工待遇非常不錯，但他質疑為何不讓現正一直指導精英運動員的義務教練優先填補該兩個空缺。
+
+「既然你都有筆資金請教練，點解唔用啲錢以資助形式，當每個月幾千蚊，補貼俾一啲全職運動員嘅教練，當係津貼、車馬費，或者係一啲鼓勵都好，點都好過而家咩都無啊。」黃俊穎又透露，現時逢星期一至五早上，他都不能執教任何田徑學生，因為他要預留時間到體院為女友進行日常訓練，所以他的收入亦受影響。
+
+擁有國立臺灣師範大學運動競技學教育碩士，兼為IAAF 國際一級田徑教練的黃俊穎，以台灣的經驗作借鏡，建議體院可參考台灣國家體育訓練中心的規定，所有精英運動員必須跟隨體院內的教練進行訓練，否則他認為聘請全職田徑教練的作用不大，原因是現時香港的田徑運動員大多擁有自己的教練，「我相信好多精英運動員都係會傾向跟返自己嘅教練，好似我女朋友咁，就算體院而家有跳高教練，佢都係一直跟返我練習。因為正常情況下，教練係唔會隨便轉，除非你覺得個教練教唔到，又或者個教練唔想再教」。
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/08/杜凱琹-東京奧運-20210805175107_1e18_large.jpg" alt="">
+<figcaption>杜凱琹與隊友出戰今屆奧運勇奪銅牌。美聯社</figcaption>
+</figure>
+
+### 杜凱琹羨慕亞洲強隊　一個球員帶五個人
+
+另外，昨（7日）於亞洲乒乓球錦標賽女子雙打決賽中，以局數1：3敗給韓國隊奪銀的杜凱琹，今日也在社交媒體發文反映，團隊中的體能教練和治療師人數不足。杜凱琹在帖文中提到，連同WTT球星挑戰賽及亞洲乒乓球錦標賽，一共打了26場賽事，身體疲態及舊患也開始出現。她解釋自從東京奧運結束後「參加了很多活動，没有很系統的訓練」，又坦言與大家分享喜悦的同時，要保持專業運動員的競技水平，對於運動員來説不是一件容易的事。
+
+杜凱琹及李皓晴在亞洲乒乓球錦標賽女子雙打4強中，擊敗中華台北組合，及後殺入金牌戰，不敵韓國的田志希、申裕斌而拿下銀牌，但已創造港隊在亞錦賽女雙的最佳成績。昨日杜凱琹回港，在機場等候檢測時趁空檔在其Instagram發帖，表示在過去二十天出賽的日子，她非常感激團隊內的所有人，當中指明包括治療師和體能教練，前者需要一個人負責治理十個人，「加埋幫我哋拍手，隻手都流血」，後者有一日在球館內工作11小時，返回酒店後暈倒。杜凱琹在帖文中又直言羨慕其他亞洲強隊，「人哋一個球員帶五個人（兩個陪練、教練、體能教練、治療師），希望我哋嘅支援團隊都可以愈嚟愈好啦」。
+
+<figure>
+<img src="https://web.archive.org/web/20221003204241im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/杜凱琹-香港體育學院-20211007231649_2f32_large.jpg" alt="">
+<figcaption>杜凱琹在社交媒體上載了一張躺着休息的照片。杜凱琹Instagram圖片</figcaption>
+</figure>

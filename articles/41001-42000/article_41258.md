@@ -1,0 +1,45 @@
+---
+title: "演唱會尾場姜濤臨別舉手喊： 香港加油 !"
+date: "2021-05-12"
+last_updated: "2021-05-12 19:03:00"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "MIRROR"
+url: "https://web.archive.org/web/20220125202933/https://hkcnews.com/article/41258/mirror-41269/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+original_url: "https://hkcnews.com/article/41258/mirror-41269/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-"
+---
+
+# 演唱會尾場姜濤臨別舉手喊： 香港加油 !
+
+「香港加油!」本來普通不過的四個字，但在今時今日的香港，卻被視作另一番意思，所以當姜濤昨晚在演唱會尾唱最後ENCORE最後一首歌前在台上吐出這四個字時，即換來台下粉絲起哄歡呼擊掌，身旁的MIRROR隊友也露出驚訝表情，十多秒歡呼聲後，姜濤再來一句「香港樂壇加油!」繼續掌聲如雷。
+
+<figure>
+<img src="https://web.archive.org/web/20220125202933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/MIRROR-姜濤-20210512160150_1584_large.png" alt="">
+</figure>
+
+流行組合MIRROR所到之處均掀起旋風，昨晚一連六晚在九展的演唱會尾場，最後Encore 部分，成員在台上輪流發表感言說出心底話，Stanley 說這幾個年頭大家好需要希望，好需要新支持，「我想講，只要你哋唔放棄，大家一齊繼續努力下去，你哋想做嘅嘢一定會成功。我哋都會努力，做我哋要做嘅嘢，做多啲好作品答謝大家。」
+
+### 香港人仍可以發夢
+
+<figure>
+<img src="https://web.archive.org/web/20220125202933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/MIRROR-20210512190023_1103_large.jpg" alt="">
+<figcaption>Ian 則說Mirror 12 人只想唱好每一首歌，跳好每一次舞，又感嘆「呢個世界好複雜，希望在座每位保持簡單、保持純真。」(相片由主辦單位提供)</figcaption>
+</figure>
+
+Anson Kong則說到《全民造星》這節目，「它告訴很多香港人，其實香港人仍可以發夢。只要有夢想繼續去追，終有一日夢想成真。」Ian 則說Mirror 12 人很簡單，只想唱好每一首歌，跳好每一次舞，又感嘆「呢個世界好複雜，希望在座每位保持簡單、保持純真。」
+
+最後輪到姜濤壓軸發言，在旁隊友即笑說，「今次係咩第一？」(姜濤之前說香港歌手可成為亞洲第一)，姜濤一開聲即舉手高呼「香港加油！」然後舉起手指公，此語一出，他身旁的隊友也露出驚訝表情，而全場觀眾則熱烈歡呼，十多秒後，姜濤再舉手大聲高呼:「香港樂壇加油！」歡呼聲繼續響遍場館。
+
+加油這句打氣語，在演藝界可被被視為禁忌，已離開無線的女藝人田蕊妮接受訪問時便曾憶述，運動期間她要出席公開宣傳活動，宣傳部同事便著她不要公開說「加油」。
+
+<figure>
+<img src="https://web.archive.org/web/20220125202933im_/https://hkcnews.com/news_新聞/hk-discuss/2021/05/MIRROR-20210512183955_1e21_large.jpg" alt="">
+<figcaption>Anson Kong說到 《全民造星》節目，「它告訴很多香港人，其實香港人仍可以發夢。只要有夢想繼續去追，終有一日夢想成真。」(相片由主辦單位提供)</figcaption>
+</figure>
+
+### 人窮志不短
+
+MIRROR熱潮，很多人說是今天低氣壓香港下的一股清泉，大家一同分享久違了的歡笑，近日ViuTV全民造星節目爆紅，這股文化興起，令到不少人注目，今日梁啟智便在其專欄上指:「這一波的電視文化浪潮之所以能撼動人心，其實和過去一樣，正正因為其內涵反映了當前香港社會最重要的價值：人窮志不短」。
+
+「當大台充斥大陸配音劇集，當港台被貶為完全的官府喉舌，繼續為香港觀眾製作節目，本身已可敬。」

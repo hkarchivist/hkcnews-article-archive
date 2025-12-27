@@ -1,0 +1,52 @@
+---
+title: "15環保關注團體批　「明日大嶼」環評　「偷步硬闖關」　促環保署長否決申請"
+date: "2021-11-23"
+last_updated: "2021-11-24 12:05:19"
+author: "記者陳惠恩"
+category: "眾聞"
+tags:
+  - "環保政策"
+  - "填海"
+  - "明日大嶼"
+url: "https://web.archive.org/web/20220117065157/https://hkcnews.com/article/48064/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48081/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/48064/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-48081/15%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 15環保關注團體批　「明日大嶼」環評　「偷步硬闖關」　促環保署長否決申請
+
+特首林鄭月娥上月發表施政報告時，重提3年前政府「重點工作」—「明日大嶼願景」，總共填海1,700公頃。這個「願景」不再遙遠，第一期工程預計在交椅洲填海一千公頃建人工島；土拓署可持續大嶼辦事處月初已經向環保署提交申請做環境評估。15個環保及關注團體批評，環評申請文件「粗疏、空洞」，又將法定程序「掃落地毯底」，促請環境署署長否決申請，擱置環評程序。
+
+<figure>
+<img src="https://web.archive.org/web/20220117065157im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/明日大嶼-20211123205011_e130_large.jpg" alt="">
+<figcaption>15個環保及關注團體促請環保署否決「明日大嶼環評工程項目簡介」。</figcaption>
+</figure>
+
+按《環境影響評估條例》，土拓署提交環評申請後要交文件，簡介工程及預計對環境的影響，公眾諮詢期直至本月25日完結。
+
+15個環保及關注團體趁諮詢期快要結束前，召開記者會促請環保署擱置環評程序，他們批評事件是「偷步硬闖關」，形容政府「將應有法定程序掃落地毯底」。今年6月，政府委聘的顧問才開始發展計劃的可行性研究，研究預計42個月內完成；團體認為現時同步申請環評「不尋常」，反問萬一研究結果認為「明日大嶼」不可行，政府如何交代做環評時花費的公帑。
+
+另外，團體指明日大嶼發展規模龐大，但沒有按既定做法，如發展其他新市鎮前，先做宏觀的「全面策略性環評」，研究填海以外的選項。工程亦準備分開三份環評報告來評估一個發展項目對環境的影響，團體認為這樣不但容易低估了整體工程對環境的累計影響，做法亦不合理。
+
+身為環諮會委員的綠惜地球總幹事劉祉鋒，過去多年負責審視工程項目的環評報告，他認為審視一個項目，一定要由它的整體完整性去看，「（現時）斬開了逐件去看......我假設有關填海的環評獲通過，仍有兩部分，例如連接路、需要在維港水域要填海等，若然將來不獲通過，人工島豈不是會得物無所用，變成一個廢島？斬開，逐個部分做環評，這是很危險」。
+
+<figure>
+<img src="https://web.archive.org/web/20220117065157im_/https://hkcnews.com/news_新聞/hk-discuss/2021/11/劉祉鋒-20211123213059_1479_large.jpg" alt="">
+<figcaption>團體批評當局提交的簡介，隻字未提工程如何符合環境局發佈的《香港氣候行動藍圖》，明顯與環境部門訂立的政策背道而馳。</figcaption>
+</figure>
+
+政府最近經常提到《香港氣候行動藍圖2050》，爭取在2050年達到「碳中和」。翻查第一期交椅洲填海工程的環評申請文件，團體指內容隻字不提如何配合碳中和目標；工程計劃在海中央填人工島，亦沒有考慮氣候，例如水位上升的影響。環評申請文件中對工程的簡介，填海的實際範圍只有虛線，島上基建、設施位置都沒有，批評「粗疏、空洞」。
+
+環評申請的14日公眾諮詢期，直至25日完結，團體說環保署署長有權否決環評申請，或要求補交資料，他們希望環保署長作要香港環境的把關者，「不要令我們失望」。
+
+環團及關注團體又指，《香港2030+》的規劃研究已經完成，當中列出「明日大嶼」填海是可造地的選項，但公眾、環團、以至環諮會委員，都未能獲取完整報告，分析研究數據，他們質疑政府想營造「非填海不可」的假象。
+
+除了程序問題，多個環團亦擔心填海對生態的影響。海豚保育學會以港珠澳大橋為例，指當初有40 多條中華白海豚在該水域棲息，即使有保護區作補償，附近水域的海豚亦近乎絕跡。
+
+<figure>
+<img src="https://web.archive.org/web/20220117065157im_/https://hkcnews.com/news_新聞/hk-discuss/2018/08/中華白海豚-填海-20180823220125_a330_large.jpg" alt="">
+<figcaption>這幅相片攝於幾年前，現時在大嶼山附近水域的海豚近乎絕跡。資料圖片</figcaption>
+</figure>
+
+明日大嶼人工島達1,700公頃，在今年施政報告發表一個多星期後，特首林鄭月娥接受報章專訪，披露「明日大嶼」會縮水；第一期交椅州填海1,000公頃一定不會變，至於第二期700公頃填海計劃，她說「慢慢先喇......第二日再諗」。
+
+2018年，行政長官林鄭月娥提出，「明日大嶼」要填1,700公頃建人工島造價超過6,000億元，不止引來社會質疑本港經濟是否可以承受；當年土地供應專責小組負責的土地大辯論都未完成，林鄭月娥突然提出新計劃，更惹來不尊重專家的聲音。

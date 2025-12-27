@@ -1,0 +1,75 @@
+---
+title: "林在山翻譯父親林行止評論悟香港：點解我哋當年咁逆來順受？"
+date: "2018-07-21"
+last_updated: "2018-07-22 22:51:42"
+author: "實習記者陳芷琪"
+category: "眾聞"
+tags:
+  - "練乙錚"
+  - "林行止"
+  - "林在山"
+url: "https://web.archive.org/web/20211027073330/https://www.hkcnews.com/article/13757/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13792/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/13757/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-13792/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 林在山翻譯父親林行止評論悟香港：點解我哋當年咁逆來順受？
+
+1984年9月26日，時任中國國務院總理趙紫陽與英國首相戴卓爾夫人在中國北京簽訂《中英聯合聲明》。在聲明簽訂的同一個月，《信報》創辦人林行止，把他在1975年至1984年撰寫「政經短評」的《信報》社論文章結集成書《香港前途問題的設想與事實》。林行止女兒林在山，早前用了3年時間，將父親34年前的著作翻譯成英文，出版新書 《Conjecturing Hong Kong's Future: Lam Hang-chi's Editorials from the Hong Kong Economic Journal, 1975-1984》。她周五在書展舉行《回顧香港的未來：重讀林行止政經短評1975-1984》講座，與前《信報》主筆練乙錚等人對談。
+
+
+{{< video src="https://web.archive.org/web/20211027073330if_/https://www.youtube.com/embed/wvZb5qg0Bes" >}}
+
+
+林在山重讀父親在中英談判期間所寫的文章，有感而發：「當時的社論反映的問題和擔憂，均與九七後香港的前途有關。在這本書，看到的不單是香港的歷史，而是一個好珍惜香港及港人的評論員，對香港的種種意見。」
+
+「有些問題被預計在當時發生，卻在現時浮現。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027073330im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/練乙錚-林在山-書展-20180720191603_1ec4_large.jpg" alt="">
+<figcaption>林行止女兒林在山（左）、練乙錚（右）在書展主講《回顧香港的未來：重讀林行止政經短評1975-1984》。何君健攝</figcaption>
+</figure>
+
+林在山持有英國劍橋大學英文系學士學位、芝加哥大學社會科學系（法律及經濟）碩士學位、英國卡的夫 Thomson Foundation 新聞專業文憑，曾任香港電台電視部及英國廣播公司文化節目編劇及主持，1994年加入《信報財經新聞》，1998年成為執行董事，2001年獲世界經濟論壇選為明日世界領袖。
+
+林行止由1973年至1996年末，每天都在他創辦的《信報》撰寫社論「政經短評」，分析評論香港及世界政經局勢，被譽為「香江第一健筆」。林在山選擇翻譯父親1975年至1984年的文章，她解釋，簽訂《中英聯合聲明》前的十年，對香港人非常特殊，當時社論反映的社會問題和港人擔憂，不論是股市起跌、民主進程和房屋問題，都與九七後香港充滿不確定性的前途有關。
+
+**林在山於父親社論發表近40年後，一氣呵成閱讀父親當年的文章，令她最感動的，是看到當年在殖民地的香港人，對個人身分既自豪又委屈，由對英國制度充滿感激之情，到對英國政客感失望。她指，出版的新書有小說元素，娓娓道出港人對九七後的命運感到傍偟；在傍偟中，又拼命為自己及家人的將來打算。她讀父親原著時，不禁問：「點解我哋當年咁逆來順受？」**
+
+林在山說，當時香港的環境和現在不同，「當時社會出現的問題，好多是現在的問題；有些問題被預計在當時發生，卻在現時浮現，成為群眾對政府現狀不滿的原因。現時群眾覺得政府應該即時處理，但又意識到政府根本不能應付。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027073330im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/林行止-林在山-20180720220145_1c64_large.jpg" alt="">
+<figcaption>林在山出版的《Conjecturing Hong Kong’s Future: Lam Hang-chi’s Editorials from the Hong Kong Economic Journal, 1975-1984》(右)，出版社中文大學在書展的攤位，展出林行止的文章「金句」。何君健攝</figcaption>
+</figure>
+
+林行止發表過一篇經典評論《 [烏龜背蠍子過河的教訓](https://web.archive.org/web/20211027073330/https://yimin2007.blogspot.com/2010/01/blog-post.html) 》（1984年1月13日），故事是：蠍子要過河，但不通水性，於是請求烏龜，希望烏龜能背牠到對岸去。烏龜擔心蠍子會螫牠，但蠍子說不會，因為若烏龜死了，等於同歸於盡。烏龜覺得蠍子的說法有道理，於是背蠍子過河，游到河中間，蠍子螫了烏龜一下中毒，烏龜臨死前問蠍子： 「你不是說你不會螫我嗎？」蠍子回應：「這是我們的習慣！」
+
+> 烏龜背蠍子過河，最初相安無事，和平共處；可是，不一會，烏龜尾部突然感到一陣劇痛，接着暈頭轉向，知道被蠍子螫了一下，已中劇毒，生命危在旦夕，但牠不明白蠍子為何不顧本身安危，因為牠們正處河心急流，龜死蠍亡，對誰都沒有好處，於是牠要從蠍子口中知道真相，不然死不瞑目，哪知毒蠍的回答出人意外，牠說：『龜兄龜兄，難道我不知螫你一下我們就會一同葬身河底嗎？可是，這是我們蠍子的習慣，要改亦改不來啊！』……。
+
+
+**林行止2010年回顧這篇文章時曾寫道：「中共有權不會不用，這是黨性使然，因此，即使可能危害本身利益亦不惜用之；如今情況更為嚴重，因為她自以為羽翼已豐入水會游出水會飛，不但敢與美國硬碰，已成囊中物的香港，當然更可予取予攜，港人意願也者算老幾！在香港為理想以行動搞政治，風險比過往任何時機都要高，從政者能不警惕？ 」**
+
+林在山審視現時的香港，對父親的比喻如此理解：「我們都沒有察覺到，當時蠍子叫烏龜幫忙，是看重烏龜。但烏龜以為自己能幫蠍子，是沒有遠見，是不自量力。」
+
+林在山憶述，父親林行止在她小時候已跟她說：「我作為一個作者，不是沒有立場、不是沒有偏見，但有絕對的獨立。」她指，林行止從來不會用文章去討好任何勢力和任何人，「包括我媽媽。」
+
+「在這本書，看到的不單是香港的歷史，而是一個好珍惜香港及港人的評論員，對香港的種種意見，反映到當年港人的態度，對政府的期望和失望、社會演變的過程，和港人轉變的情緒。」林在山說，詳述香港歷史的書多不勝數，但以主觀的思想和港人利益為角度的書則還未有。她引用《壹週刊》前社長楊懷康在書評中的一句話，總結她翻譯父親著作的原因：「而家出這本書，係因為要有更多人知，港人點樣努力過。」
+
+<figure>
+<img src="https://web.archive.org/web/20211027073330im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/07/書展-林在山-20180720234114_50e8_large.png" alt="">
+<figcaption>「香江第一健筆」《信報》創辦人林行止。網上圖片</figcaption>
+</figure>
+
+林在山用了3年時間翻譯，她說，父親林行止可以把各式各樣的典故，包括中國的傳說歷史、西方的書籍、最新的經濟學、北歐的童話等，套用在港人的處境、形容港人的無奈。她指，林行止善用廣東話的諧音和諺語，不過，令她看得津津樂道的父親寫作手法，正正是她翻譯時碰壁的原因。以《烏龜背蠍子過河的教訓》一文為例，她不能直譯，因為外國讀者未必明白，她最後譯作「What the Tortoise Taught Us」；在《北京不可黃大仙》（1983年11月29日）一文，她指可以寫Wong Tai Sin，然後在註解再解釋「黃大仙」的意思，但她選擇譯作「Peking Cannot be the Genie in the Lamp」，「the Genie in the Lamp」是指燈神，以令外國讀者更易明白，和黃大仙的意思都是「有求必應」。
+
+《信報》前主筆練乙錚表示，他正在研究中國內戰後的思想史，從三個不同時期的思想可以看到當時人們對中國及香港發展之間的關係之看法。他劃分70年代為《信報》的時期，指林行止的看法是三個時期中，仍未過時的唯一一個，「《烏龜背蠍子過河》的比喻似乎不再是比喻，而是現實。」
+
+2014年，林行止將持有的《信報》股權全數賣給李澤楷，林行止在《信報》仍有撰文，練乙錚說：「《信報》的產權轉移後，變成一國兩制，林行止的專欄，變成了新信報之下的一個思想特區。」
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211027073330/https://www.hkcnews.com/aboutus/#subscribe)

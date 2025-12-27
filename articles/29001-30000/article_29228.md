@@ -1,0 +1,55 @@
+---
+title: "武進文退　AO的黃昏"
+date: "2020-04-22"
+last_updated: "2020-04-22 19:01:10"
+author: "顧書維"
+category: "眾說"
+tags:
+  - "問責官員"
+  - "曾國衛"
+  - "政務主任"
+url: "https://web.archive.org/web/20210928163937/https://www.hkcnews.com/article/29228/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ao%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/29228/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-29239/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-ao%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 武進文退　AO的黃昏
+
+政府高層大地震，在整個調動中，較為值得注意的，是「武」進「文」退」，意即紀律部隊（武官）當道，政務官（文官）角色漸褪。
+
+<figure>
+<img src="https://web.archive.org/web/20210928163937im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/入境處-曾國衛-20200421144511_8874_large.jpg" alt="">
+<figcaption>由入境處處長升官的曾國衛，上月底接受內地雜誌《紫荊》專訪。</figcaption>
+</figure>
+
+過往高層人事調動中，總有一兩個AO（政務主任）榜上有名，林鄭月娥籌組班子時，更是大量提拔政務官，甚有延續AO治港的味道。惟獨今次除了平調的聶德權，以及短暫做過政務官的許正宇之外，無一AO，反而紀律部隊出身的曾國衛，卻出掌政制及內地事務局，打破回歸以來由文官擔任此局局長的慣例，反映北京的未來部署──架空政務職系，讓AO影響力式微，成為歷史。
+
+AO這個帶有「港英餘孽」色彩的系統，在回歸後老早成為北京眼中釘，董建華任內推行問責制，正是要將權在AO手中奪回來。最近在反修例運動中， [一群AO更聯署勸政府回頭是岸](https://web.archive.org/web/20210928163937/https://bit.ly/2YePx60) ，在北京眼中自是大逆不道，人所共知。能成為政務官，多為醒目仔女，摸熟遊戲規則，懂得走精面，時而陽奉陰違，隨時搬出一萬個某政策不可行的理由，在北京眼中自然是「養唔熟」的一群。
+
+<figure>
+<img src="https://web.archive.org/web/20210928163937im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/07/AO-政務主任-元朗打人-20190726145915_1f1c_large.jpg" alt="">
+<figcaption>聯署的政務主任，亮出遮蓋了名字的公務員證件或名片。</figcaption>
+</figure>
+
+相反，紀律部隊的文化，卻甚合共產黨脾胃。紀律部隊的訓練，講求紀律、服從上司命令，而非獨立思考，當中的「圍威喂」及大佬文化更是蔚然成風，下屬一心希望跟隨「好大佬」、泊到「好馬房」，扶搖直上，也講求「雷氣」，習染江湖習氣，卻與制定政策完全沾不上邊，以上種種，全都符合共產黨執政理念──永不質疑、聽黨指揮、意識形態至上。如今武官可以跟隨的大佬，當然不是什麼年年考第一的林鄭月娥，而是槍桿子裡出政權的共產黨，自然政治掛帥，互相暗中較勁，爭相表忠。
+
+可以想像，日後將有更多武官佔據政府關鍵職位，與中國內地官場「公檢法」當道愈趨同步，直接後果是政府管治風格、政策制度的方向亦會大為改變，不再思考何謂政策理性、政治後果，推行政策之前也不會反覆辯論、沙盤推演以及設想種種可能性，而是以冷酷無情手段推行政策，以完成「大佬」下達的任何任務。警隊出身的李家超硬推逃犯修訂條例的手法與嘴臉，正是最佳樣本。
+
+當然，AO體系不會正式壽終正寢，而是被逐步陰乾，稍有「異心」的統統被調去無關痛癢的崗位，願意聽話的也不會被任命至最重要的職位，只能繼續「享受」薪高糧準，渡過餘生。
+
+只是在中共用人之道下，整個政務職系步向黃昏，在所難免。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210928163937/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 顧書維](https://web.archive.org/web/20210928163937im_/https://www.hkcnews.com/uploads/avatars/0d607456-0e6b-4dd4-ab56-edfb31bb36e1.png?1726761492)
+
+**博客 | 顧書維**
+
+【顧書維・左顧右盼】泛民前社區主任，現留學英倫，主修國際關係，奮力矢書，但求娛人自娛。

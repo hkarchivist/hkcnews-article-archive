@@ -1,0 +1,54 @@
+---
+title: "警長冚賭檔期間涉挪用兩副新麻將　同袍頂證被告向負責人單眼稱：「一百蚊我同你買咗佢！」"
+date: "2021-10-04"
+last_updated: "2021-10-04 19:27:48"
+author: "記者池淑霖"
+category: "眾聞"
+tags:
+  - "公職人員行為失當"
+url: "https://web.archive.org/web/20221002123929/https://hkcnews.com/article/46124/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://hkcnews.com/article/46124/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-46141/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 警長冚賭檔期間涉挪用兩副新麻將　同袍頂證被告向負責人單眼稱：「一百蚊我同你買咗佢！」
+
+大埔警區一名警長涉嫌去年在冚賭行動期間，取走兩副新麻將證物，被控一項在公職中行為失當罪。案件今（4日）開審，當日有份行動的警員供稱，被告親自處理兩副涉案新麻將時，向賭檔負責人「單眼」並說：「一百蚊我同你買咗佢！」負責人回應：「阿sir你攞去啦！」控方另指警長曾在現場表示「返去有麻雀打」。
+
+<figure>
+<img src="https://web.archive.org/web/20221002123929im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/警員-黃文浩-20211004160854_1bc9_large.jpg" alt="">
+<figcaption>被告黃文浩</figcaption>
+</figure>
+
+### 返去有麻雀打
+
+被告黃文浩（34歲），案發時駐守大埔警區特別職務隊第一隊。控方指，案發去年8月4日督察馮達仁及被告帶領6名警員進行反賭博拘捕行動，目標單位包括涉事的粉嶺和隆街22號地下後舖。行動中，警方檢走兩張電動麻將桌及桌上四副麻將證物。其間被告親自處理另外兩副新麻將時，向在場警員表示「返去有麻雀打」，將兩副新麻將帶走並放到警車上。負責處理證物警員向督察匯報下揭發事件，被告受查時承認沒有指示同袍檢取該新麻將屬個人疏忽。
+
+同隊的警員12702張耀永（譯音）供稱，當日約下午4時45分，被告安排小隊分四車從大埔警署出發至上水警署提取裝備。張獲指派駕駛警方私家七人車NY5726，而被告則駕駛車牌為「DEVIL8⚫️⚫️」的私人座駕。其後小隊所有人一同乘坐NY5726前往目標單位查看。
+
+<figure>
+<img src="https://web.archive.org/web/20221002123929im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/警員-黃文浩-20211004191652_26d1_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+張奉命率先到達，發現單位大門虛掩，屋內傳出打麻將聲音。他進入後看到單位內有8人打麻將，另有3人在沙發上聊天。張在屋內搜出閉路電視機盒等證物，並向自稱單位負責人的男子凌裕文作出調查及補錄口供。
+
+期間張聽見有警員問被告：「祥哥（即被告），呢兩副新嘅麻雀使唔使seize（檢取）？」張轉身見警員指著地上分別由藍色及綠色盒子裝著的新麻將。被告當時回應謂：「唔使！等我嚟！」之後拾起該兩副麻將，再向單位負責人凌裕文說：「一百蚊同你買咗佢！」期間被告有「單眼」，凌則回應指「阿sir你攞去啦」。張沒有看到被告付錢或取走麻將。
+
+<figure>
+<img src="https://web.archive.org/web/20221002123929im_/https://hkcnews.com/news_新聞/hk-discuss/2021/10/警員-張耀永-20211004160057_33f0_large.jpg" alt="警員12702張耀永">
+<figcaption>警員12702張耀永（譯音）指被告向賭檔負責人單眼</figcaption>
+</figure>
+
+### 要求多派一人協助押解但被告拒絕
+
+後來被告將NY5726車匙交給張，命他獨自押解凌裕文到警署，張曾要求多派一名同事協助，惟被告不理會，亦無作任何安排。
+
+被告被指於去年8月4日身為公職人員、警務人員，在執行公職過程中無合理辯解，而故意、有意圖及不合法地作出失當行為，即在新界粉嶺和隆街22號地下後舖內進行調查期間，接受或挪用兩副新麻將，並且隱瞞或未有向王裕昌、馮達仁、 江偉峰、警區指揮官、總警司或香港特別行政區政府申報或披露上述事宜。
+
+### 目賭被告曾帶走賭檔負責人耳語一番
+
+辯方盤問下，張同意被告在調查期間曾兩度帶走凌，並耳語一番，但上述過程沒有記錄在其警員記事冊中。辯方質疑張未有詢問被告為何帶走其犯人，張反駁謂：「咁佢係我上級，我認為佢帶走就一定有佢原因。」
+
+辯方另指出警員沒有問過被告要否檢取兩副新麻將，張不同意，但他同意事後沒向警員確認該段對話，亦沒向上級匯報。
+
+案件編號：FTCC338/21

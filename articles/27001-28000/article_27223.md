@@ -1,0 +1,86 @@
+---
+title: "【有名無實】公務員在家工作欠指引配套難實行　衞生署、稅局、社署不少公務員照返工"
+date: "2020-02-25"
+last_updated: "2020-02-25 22:09:18"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "稅務局"
+  - "公務員"
+  - "武漢肺炎"
+url: "https://web.archive.org/web/20210726125458/https://www.hkcnews.com/article/27223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27257/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/27223/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-27257/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【有名無實】公務員在家工作欠指引配套難實行　衞生署、稅局、社署不少公務員照返工
+
+因應武漢肺炎來勢洶洶，為減低疫情在社區擴散的風險，政府 [上月28日、農曆大年初四公布](https://web.archive.org/web/20210726125458/https://www.info.gov.hk/gia/general/202001/28/P2020012800284.htm) ，各部門翌日起實施特別上班安排，除了提供緊急和必須公共服務的人員外，其他公務員可留在家中工作，毋須返回寫字樓。有關安排最初暫定實行至2月2日，其後數度延長，目前預計維持至 [3月1日](https://web.archive.org/web/20210726125458/https://www.info.gov.hk/gia/general/202002/20/P2020022000293.htm) 。
+
+公務員在家工作政策實施至今近1個月。眾新聞向公務員工會及個別部門人員了解實際執行情況，發現政府倉卒推行，事前沒有向各部門提供明確指引，最終由部門主管決定下屬在家工作，抑或到辦公室上班，情況混亂，部份並非提供緊急和必須服務的公務員要上班，有文職人員被調派上前線為接受隔離檢疫的人士派送物資。歸根究底，有公務員指出，政府過去沒有為在家工作情況作準備，內聯網、VPN、公務手機等配套欠奉，短期內不可能支援公務員在家工作。
+
+<figure>
+<img src="https://web.archive.org/web/20210726125458im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/武漢肺炎-公務員-20200225010637_1ef4_large.jpg" alt="">
+</figure>
+
+### 工會月收數十宗投訴　文職人員被派上前線
+
+公務員工會聯合會總幹事梁籌庭指，政府推行在家工作措施，一開始時頗為混亂。由1月底至今，工會收到「不下數十宗」、不同程度的投訴。
+
+梁認為，問題主因是溝通不足。他批評，政府推行在家工作安排前，並沒有提供清晰指引，以指示各個部門該如何實施、需要預留多少人手在辦公室，「（政府）全部下放畀部門去解決，因此有混亂情況。基層主管會因應服務提供去衡量留返幾多喺度，有啲主管留三分一（人手）就OK，有啲就放一半，有啲處理個別範疇嘅員工可以拎返屋企做，所以有部份人可以長期喺屋企處理公務，但有啲隔籬位（同事）只能留喺辦公室工作。」
+
+梁籌庭又批評，有些部門不但沒有安排員工在家工作，更「推啲文職同事上前線」，包括到隔離營工作、及向家居隔離人士提供食物及日用品等，引起公務員強烈反應。他解釋，部份公務員並非自願參與該類工作，本身不屬相關服務的部門職系，而是文職人員，當中大多是女性，他們除了有受感染的風險，亦有人身安全的顧慮，會較抗拒有關工作安排，「送飯都有日、夜之分，如果我（外出）做呢樣嘢，邊個保障我安全？」梁表示，最多投訴來自社署，也有來自衛生署。
+
+梁籌庭指，工會收到投訴後向政府反映，政府回應說會跟進、盡量不強迫公務員做該些工作，但工會仍然陸續收到個別部門的投訴。不過，由於不少相關投訴並非實名，工會亦無法向投訴者了解現時情況是否持續。梁補充指，由於部份公務員怕秋後算帳，故以匿名投訴，例如以「一群XXX」名義向工會發信，亦有部份註明所屬部門。他續稱，工會過往只會處理實名投訴，但考慮到現處於「非常時期」，有些匿名投訴的情況嚴重，工會仍會轉介政府跟進。
+
+新公務員工會主席顏武周亦指，政府並沒有明確指引定義何謂緊急、必須的服務，實施在家工作措施時產生混亂，往往由部門主管決定員工能否在家工作。據他所知，衞生署所有人員都不能在家工作，連後勤back office的員工都要到辦公室上班。亦有公務員向顏反映，其工作性質非緊急、必須，而且頗高風險，但他們要繼續上班，包括任職牙科診所、小販管理隊的公務員。
+
+### 部門人手調配混亂　非提供緊急服務仍要上班
+
+梁籌庭舉例指，位於灣仔的3幢政府辦公大樓，包括稅務大樓、入境事務大樓、灣仔政府大廈，屬非常「密集式」的辦公環境，不宜集中上班，以免互相感染。不過，工會接到投訴指，在其中一幢大廈，某些樓層的組別容許部份員工在家工作，而另一樓層卻全層都有人上班，「我唔覺得佢（要求員公到辦公室上班的組別）係緊急（服務）。」
+
+<figure>
+<img src="https://web.archive.org/web/20210726125458im_/https://www.hkcnews.com/news_新聞/hk-discuss/2019/06/稅務大樓-逃犯條例-20190621140908_129a_large.jpg" alt="">
+<figcaption>梁籌庭引述投訴指，灣仔稅務大樓、入境事務大樓、灣仔政府大廈3幢大廈之中，有個別樓層全層人員都要到辦公室上班。資料圖片</figcaption>
+</figure>
+
+眾新聞記者接觸到其中一名稅務局人員June（化名）。她指出，稅務局的所有文件都非常機密，她不清楚高層是否可以在家透過內聯網存取檔案，但她認為中、下層公務員不可能在家處班該些文件。「全部都牽涉到納稅人資料，平時喺office已經要好小心去處理，更遑論畀你拎啲file返去（屋企）做，完全唔得啦，（否則）違反保密同私隱。所謂home office只係喺屋企放緊假，只係將你要做嘅嘢迫埋喺你要返工嗰兩日、可能三日裡，用你自己嘅方法去完成咗佢。」
+
+[稅務局公布](https://web.archive.org/web/20210726125458/https://www.ird.gov.hk/chi/ppr/archives/20022201.htm) ，由周一（24日）起，除了中央詢問處（只限有關離港人士清繳稅項的查詢）、商業登記署、印花稅署維持服務外，將繼續暫時停止所有公共服務。June隸屬其中一個提供緊急服務的部門，故每周一般有兩日要到稅務局上班。上司允許她遲些上班及提早下班，以避開上下班高峰期的人潮，她認為安排合理。
+
+不過，June指出，有很多並非提供緊急服務的同事，都要回到稅務大樓上班。以處理薪俸稅的部門為例，目前並沒有被界定為緊急服務，稅務局沒有要求維持服務，但該部門負責處理市民分期交稅的申請，「有啲申請我哋未做得切，但張（稅）單就過期喇喎，咁張單處唔處理好呢？呢啲位就有啲尷尬。」據June了解，某組別有20名人員之中，上星期有5人要上班，但因應近日申請增加，這星期有多3人被要求上班。
+
+June提到，根據法例，稅款的追溯年期以7年為限，而每個財政年度截止3月31日，故稅務局人員每年2月及3月都非常忙碌，「因為過咗3月31日，你就唔可以追返7年前嘅數。但總有啲好爛嘅case，唔知點解放咗喺度7年都未settle到，所以凡係要issue tax assessment嘅同事，無論係追公司定追個人，定係做investigation、調查人都好，每年3月前都要清咗呢啲case。」June指出，很多負責相關工作的組別，都沒有被界定為緊急服務，但部門主管憂3月31日前未能完成相關工作，故會要求下屬上班，以「趕deadline」、「追quota」，調查組尤其多人員需要到辦公室工作。
+
+此外，June表示，有為數不少的同事，即使上司沒有要求，亦自願回到辦公室工作。「而家話就話只提供緊急服務，但其實你個位真係好多嘢做。當resume normal之後，啲嘢都係你自己做番。遲做、早做都係你做，所以會有啲同事會返嚟（辦公室）做一部份嘢先。都唔係特別熱愛工作，只係希望將來唔好死得咁慘烈。當然，你每返一次工、每出一次街，就要take一次risk。」
+
+<figure>
+<img src="https://web.archive.org/web/20210726125458im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/02/戴口罩-武漢肺炎-Carrie%20Lam-20200201041837_fddc_large.jpg" alt="">
+<figcaption>June指，每個被要求上班的人員，每日可獲派一個CSI口罩，但個別自願到辦公室上班的人員，則不一定獲發口罩。EYEPRESS照片</figcaption>
+</figure>
+
+### 基本配套欠奉　無內聯網、VPN、公務手機
+
+另一名在社署總部工作的公務員Eva（化名），每星期至少3日要回辦公室工作。Eva負責行政工作，需要處理的文件大多不涉及機密內容，而她並不認為工作屬緊急、必須服務。大多時間都不能在家工作，她認為主因是讓公務員在家工作的軟硬件配套不足，社署總部既沒有設立內聯網或VPN，員工亦沒有配備公務手機，「基本上要做嘢都係要返office。」
+
+Eva指出，政府初四突然宣布可以在家工作，翌日，包括IT部門在內的各個部門已幾乎沒有人上班。「IT一個部門，冇可能支援到社署6,000幾個同事，每一個人3日之內整晒VPN，根本冇可能做到。因為前事根本從來冇考慮過home office，所以冇可能喺一段咁短嘅時間畀到所謂嘅（在家工作）support。」
+
+Eva透露，上司上星期已向下屬放話，指同事該回辦公室工作，以追回工作進度，故她及其他同事在家工作的機會只會有減無加。「事實上係咪真係做到嘢？好多時對家或者自己（社署）同事都冇返工，所以返到去真係應咗上司要求，我哋坐咗喺度、返咗工喇，但實際要做到嘅嘢其實唔係實係好多，亦唔係緊急嘅嘢。」
+
+新公務員工會主席顏武周表示，工會想向政府了解緊急和必須公共服務的準則，以及特別上班安排的實際操作情況，並曾約見公務員事務局，但局方僅以內容空泛的書面回覆，指政府會「適時檢視」，但未有交代不同部門在家工作政策的具體操作情況。雖然工會提出會面要求，但局方沒有回音。顏質疑，政府1月底公布公務員特別上班安排至今，一直未有推出政策、措施便利公務員在家工作。
+
+<figure>
+<img src="https://web.archive.org/web/20210726125458im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/05/公務員-政府總部-20180521232705_18c5_large.jpg" alt="">
+<figcaption>兩個工會均指，相信公務員在家工作安排不會嚴重影響公共服務。梁籌庭表示，主管一般會因應部門對外服務提供所受到的影響，而決定是否讓下屬在家工作，有些公務員甚至不會獲安排在家工作。資料圖片</figcaption>
+</figure>
+
+究竟有多少公務員可以在家工作、多少要到辦公地點工作？政府對於公務員在家工作提供什麼配套？眾新聞向公務員事務局查詢，獲回覆指，在政府部門特別上班安排下，政府部門會繼續為市民提供緊急或必須的公共服務，以及基本和有限度的公共服務。「各政策局和部門會因應實際情況及運作需要，作出合適的人手安排及相應配套。各部門自1月29日至今一直密切監察實際情況，因應運作需要調整服務及所需的人手安排。」公務員事務局未有回應有多少人可以在家工作，亦沒有回應有何配套。
+
+眾新聞隨後再度查詢部門從哪些方面密切監察實際情況，監察的數據、指標包括什麼；各部門運作如何根據需要而調整服務及所需的人手。公務員事務局重申，因應疫情最新情況，政府已宣布繼續實施政府僱員的特別上班安排至3月1日，以減低社交接觸和病毒在社區傳播的風險，期間政府部門除了會繼續為市民提供緊急或必須的公共服務外，亦會按實際情況作調整，為市民提供適切的基本服務，也會為逐步恢復正常服務作好準備。局方表示，由於每個政策局和部門提供的服務不同，亦有不同的運作模式，因此政策局和部門會按實際情況及本身運作需要各自檢視所提供的公共服務及所需的人手安排，並作出合適的安排和調整。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726125458/https://www.hkcnews.com/aboutus/#subscribe)

@@ -1,0 +1,50 @@
+---
+title: "大明遺風天龍屯堡"
+date: "2019-04-15"
+last_updated: "2019-04-15 19:04:39"
+author: "黃志全"
+category: "眾說"
+tags:
+  - "360全景"
+  - "雲南"
+  - "貴州"
+url: "https://web.archive.org/web/20210804202921/https://www.hkcnews.com/article/19850/360%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19865/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/19850/360%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-19865/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 大明遺風天龍屯堡
+
+
+{{< video src="https://web.archive.org/web/20210804202921if_/https://roundme.com/embed/385703/1328286" >}}
+
+
+天龍屯堡位於貴州西部平壩縣，古時，這裡是西進雲南咽喉之地，是元代順元古驛道上的重要驛站，名飯籠驛，明初，朱元璋從中原江淮一帶調派30萬大軍鎮壓邊隀反抗勢力，戰事平定，大軍就地駐防，建立屯堡，安置軍民，並開墾田地，糧食自供自給。本世紀初，當地鄉紳以飯籠二字不雅，之後改稱天龍。   
+   
+ 今天屯堡人都是中原漢人之後，古鎮年長女性仍然穿着大襟寬袖、藍色長袍的明代服飾，還保留明代延續下來的地戲，地戲是當年遠征軍閒暇時練武操演衍生而來的戲劇，沒有舞台就在地面演出，為使觀眾能看清楚，演出者都把面具戴在頭頂。
+
+今輯貴州天龍屯堡360 共3兩個場景，依次是：
+
+（1）航拍天龍鎮全景，天龍鎮是取自天台山的天，龍眼山的龍兩字為寨名。龍眼山山上有座廟，但已坍塌，只餘殘垣；而山腳下的大明城項目於2015年發展，號稱投資20億人民幣，集吃、住、娛、樂、遊、購、賞七大元素的大型文化旅遊綜合，但四年過去，今天仍是一堆空房子。
+
+（2）屯堡內的演武堂正演出地戲《三英戰呂布》，每場約10分鐘，為遊人而演。
+
+（3）演武堂外小廣場，走入屯堡古鎮，看到的是石頭，手摸到的是石頭，脚下踩的仍然是石頭，航拍360可清楚看到，大部分屋頂都是石頭砌的。   
+   
+   
+ 拍攝器材及參數：DJI Air 24mm鏡 ISO：100; F：2.8; S：1/800
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210804202921/https://www.hkcnews.com/aboutus/#subscribe)
+
+---
+
+![博客 | 黃志全](https://web.archive.org/web/20210804202921im_/https://www.hkcnews.com/uploads/avatars/1acd4424-ae6c-4d04-a1ad-eefa7b7fc0d9.png?519785976)
+
+**博客 | 黃志全**
+
+【黃志全・360全景】在紙媒混跡數十年，08年放下筆桿，重拾揸機樂趣，09年一個不小心接觸到360全景攝影，感受到現場一樣的震撼，自始樂此不疲，作品上載於Google Maps、roundme.com、360cities.net及skypixel.com等網站。

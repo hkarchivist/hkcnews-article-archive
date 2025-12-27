@@ -1,0 +1,55 @@
+---
+title: "聶德權上任公務員事務局後5日　勞工處開晉升會議　決定免去顏武周等8人署任職位"
+date: "2020-06-11"
+last_updated: "2020-06-11 22:38:39"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "張雲正"
+  - "公務員事務局"
+  - "公務員事務局局長"
+  - "Secretary for the Civil Service"
+  - "聶德權"
+  - "顏武周"
+  - "新公務員工會"
+url: "https://web.archive.org/web/20210726135043/https://www.hkcnews.com/article/30883/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30904/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/30883/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-30904/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD5%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD8%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 聶德權上任公務員事務局後5日　勞工處開晉升會議　決定免去顏武周等8人署任職位
+
+**眾新聞披露，8名勞工處公務員遭免去署任職位（de-acting），當中包括新公務員工會主席顏武周。眾新聞再獲悉，今次集體不獲晉升是公務員事務局在4月22日「換馬」，新局長聶德權上任後5日，勞工處在4月27日召開晉升會議之後決定。公務員事務局回覆指，不評論個別個案。**
+
+**勞工處晚上回覆指不會評論個別個案，但稱處方不時因應運作需要，按公務員事務局的既定指引和《公務員事務規例》委任人員署任以填補不同崗位，稱「這些非實任職位的署任安排旨在委任人員執行懸空崗位的職責，並沒有升職的含意」。**
+
+相關報道： [新公務員工會主席顏武周　遭免去署任職位「無得升正」　另有7名勞工處人員](https://web.archive.org/web/20210726135043/https://www.hkcnews.com/article/30860/%E9%A1%8F%E6%AD%A6%E5%91%A8-%E5%8B%9E%E5%B7%A5%E5%8F%8A%E7%A6%8F%E5%88%A9%E5%B1%80-%E6%96%B0%E5%85%AC%E5%8B%99%E5%93%A1%E5%B7%A5%E6%9C%83-30867/%E6%96%B0%E5%85%AC%E5%8B%99%E5%93%A1%E5%B7%A5%E6%9C%83%E4%B8%BB%E5%B8%AD%E9%A1%8F%E6%AD%A6%E5%91%A8-%E9%81%AD%E5%85%8D%E5%8E%BB%E7%BD%B2%E4%BB%BB%E8%81%B7%E4%BD%8D%E3%80%8C%E7%84%A1%E5%BE%97%E5%8D%87%E6%AD%A3%E3%80%8D-%E5%8F%A6%E6%9C%897%E5%90%8D%E5%8B%9E%E5%B7%A5%E8%99%95%E4%BA%BA%E5%93%A1)
+
+相關報道： [【8公務員被免署任】顏武周向受影響同事致歉：自由雖有代價成本　但才顯得難能可貴](https://web.archive.org/web/20210726135043/https://www.hkcnews.com/article/30891/%E9%A1%8F%E6%AD%A6%E5%91%A8-%E6%96%B0%E5%85%AC%E5%8B%99%E5%93%A1%E5%B7%A5%E6%9C%83-%E5%8B%9E%E5%B7%A5%E5%8F%8A%E7%A6%8F%E5%88%A9%E5%B1%80-30891/%E3%80%908%E5%85%AC%E5%8B%99%E5%93%A1%E8%A2%AB%E5%85%8D%E7%BD%B2%E4%BB%BB%E3%80%91%E9%A1%8F%E6%AD%A6%E5%91%A8%E5%90%91%E5%8F%97%E5%BD%B1%E9%9F%BF%E5%90%8C%E4%BA%8B%E8%87%B4%E6%AD%89%EF%BC%9A%E8%87%AA%E7%94%B1%E9%9B%96%E6%9C%89%E4%BB%A3%E5%83%B9%E6%88%90%E6%9C%AC-%E4%BD%86%E6%89%8D%E9%A1%AF%E5%BE%97%E9%9B%A3%E8%83%BD%E5%8F%AF%E8%B2%B4)
+
+<figure>
+<img src="https://web.archive.org/web/20210726135043im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/06/顏武周-20200611141512_2979_large.jpg" alt="">
+<figcaption>今次集體不獲晉升是公務員事務局在4月22日「換馬」，新局長聶德權上任後5日，勞工處在4月27日召開晉升會議之後決定。</figcaption>
+</figure>
+
+公務員成為政治風眼，8名勞工處公務員遭免去其目前署任的職位（de-acting），當中包括曾在去年有份發起公務員集會、新公務員工會主席顏武周，他由現時署任一級助理勞工事務主任，遭「降回」二級助理勞工事務主任。據了解，他的月薪會由5萬多元，回落至3萬多元。
+
+眾新聞昨晚向公務員事務局查詢，勞工處集體免去8人署任職位，公務員事務局是否知悉事件？有沒有參與上述決定？公務員事務局今日中午回覆指，不評論個別個案。在公務員的署任方面，各部門要根據公務員事務局的既定指引和公務員事務規例作出安排。部門可用署任安排應付管理或工作需要，或者考驗有關人員是否勝任較高職位。
+
+新工會去年9月底正式成立，顏武周多次遭親中報章點名追擊。《大公報》去年11月中，引述時任勞工界議員、現任勞福局副局長何啟明說對顏武周署任感到「出奇」。報道當時引述何啟明批評顏提出不排除罷工，「明顯不符合政府『止暴制亂』的方針，亦違反公務員政治中立的原則，現時政府欠公眾一個全面的解釋，他促請（勞工及福利局局長）羅致光、（時任公務員事務局）羅智光兩位局長交代事件」。
+
+勞工處原定在2月內部「開board」，不過受疫情影響，今年改在4月27日舉行。《大公報》及《文匯報》早在1月內9篇署名文章及報道，點名批評工會及要求紀律處分顏武周，有文章質疑「公務員可以公然反對政府？是否愈『黃』愈有得升？」
+
+<figure>
+<img src="https://web.archive.org/web/20210726135043im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/04/聶德權-林鄭新班子-20200422191910_116e_large.jpg" alt="">
+<figcaption>國務院4月22日任命聶德權為公務員事務局局長。資料圖片</figcaption>
+</figure>
+
+國務院4月22日根據行政長官林鄭月娥的提名，任命聶德權為公務員事務局局長。換句話說，聶德權上任公務員事務局局長後5日，勞工處才「開board」，決定員工晉升去留。聶德權一向被視為林鄭月娥的「愛將」，政界盛傳，聶德權調離政制局，執掌公務員系統，預計會「有一番作為」，因數萬公務員去年公開集會，又批評港府做事，讓政府高層及北京頭痛。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726135043/https://www.hkcnews.com/aboutus/#subscribe)

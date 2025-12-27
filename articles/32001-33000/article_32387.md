@@ -1,0 +1,71 @@
+---
+title: "【全日禁堂食】90後搞黃店外賣平台　落單外送一腳踢：意義比收入更重要"
+date: "2020-07-29"
+last_updated: "2020-07-29 01:54:54"
+author: "記者周滿鏗"
+category: "眾聞"
+tags:
+  - "黃店"
+  - "送外賣"
+  - "禁堂食"
+url: "https://web.archive.org/web/20220126000204/https://www.hkcnews.com/article/32387/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32390/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/32387/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-32390/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD90%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【全日禁堂食】90後搞黃店外賣平台　落單外送一腳踢：意義比收入更重要
+
+政府今天起禁全日堂食，餐廳外賣服務需求料急增。早在疫情爆發之初，21歲的AntChan與兩個朋友，4月中起成立觀塘區黃店外賣平台「 [我係外賣仔](https://web.archive.org/web/20220126000204/https://www.instagram.com/takeawayboysss/?igshid=1ezbe0rfbs3y9) 」，以Telegram和Google form落單，再由人手配對外賣員。營運三個多月以來，即使近日第三波疫情爆發致訂單有所增加，團隊真正收入並不多。
+
+AntChan解釋，落單平台未能夠完全自動化，配對和送餐時間略長，加上團隊現時只有兩名車手，有時更需要補貼步行外賣員送到偏遠位置的車費。但團隊沒有忘記，他們的初衷是希望更多人能夠選擇黃店外賣，同時提供工作機會予同路人，他估計外賣員高峰時一日可賺約千元，期望日後發展自動化程式，有助平台進一步上軌道。
+
+同時擔任行政工作和外賣員的Billy，6月起加入外賣仔團隊，雖然這兩個月足跡走遍觀塘區，但他收入不多。他認為，選擇做黃店外賣平台，不是為了錢，而是希望以另一種形式令運動延續下去。他送過外賣到聯合醫院，得到醫護們的鼓勵；亦認識了很多黃店的老闆與支持黃店的長期顧客，他認為，這些得著比收入更有意義。
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/第三波疫情爆發-送外賣-20200729002040_1148_large.jpg" alt="">
+<figcaption>22歲Billy，6月起加入外賣仔團隊，在觀塘工業區左穿右插，認識了不少黃店老闆和同路人，令他得著不少。周滿鏗攝</figcaption>
+</figure>
+
+「我係外賣仔」這一句出自周星馳《喜劇之王》的電影對白，由AntChan與兩個朋友選用作店名。AntChan是大學三年級生，在4月初第二波疫情爆發期間，他和團隊留意到天水圍、元朗等地區都有不同黃店專門外賣服務，因應當時他們在觀塘區有一間工作室，三人有感其他知名的外賣平台，當中沒有篩選黃店的功能，為了讓同路人能夠集中選擇黃店，於是忽發奇想在觀塘搞送外賣，希望提供工作機會予手足之餘，亦連結到黃色經濟圈。
+
+三個負責人沒有資本，只靠免費程式「Telegram Bot」（機器人），以最低成本、捱更抵夜設計出自動落單程式，之後再連結到Google form供顧客填寫資料和付款，最後交由後台工作人員分配訂單予外賣員。另外，三人還要兼顧宣傳設計等工作，基本上每天都要安排人手在午市和晚市分配訂單。
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/第三波疫情爆發-送外賣-20200729002107_dbd0_large.jpg" alt="">
+<figcaption>外賣仔平台暫時靠免費程式「Telegram Bot」（機器人）自動落單，之後再連結到Google form供顧客填寫資料和付款。</figcaption>
+</figure>
+
+現約有12間觀塘黃店加入了外賣仔平台，大部分位於觀塘工業區，配送範圍由近至觀塘、麗港城，遠至牛頭角、藍田和秀茂坪一帶。團隊現時約十多名外賣員，當中2人是車手，其餘是俗稱「步兵」的步行外賣員。AntChan說，一般外賣平台會抽佣30%至35%，但團隊為了降低價格，只向店舖抽佣兩成；當中佣金的三成用來支付團隊營運成本，七成給予外賣員。他們希望顧客光顧黃店有較便宜的選擇，外賣員同時得到相應合理的回報，得以維生。
+
+換句話說，營運團隊所賺的是相對地少。AntChan說，人手不足加上為了節省送餐時間，有時甚至會讓「步兵」坐的士送外賣到偏遠地區如觀塘安達邨一帶，相關車費開支就由營運團隊承擔，變相沒人工可言，「有好多車費上的開支，計計下自己都無收到咩錢，無出到糧俾自己。」他認為，做黃店外賣首要非為賺錢，而是盡能力幫到黃店、客人和外賣員三方。
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/送外賣-第三波疫情爆發-20200729002015_2ec6_large.jpg" alt="">
+<figcaption>Billy送外賣給顧客前，都會以消毒酒精噴在膠袋外。周滿鏗攝</figcaption>
+</figure>
+
+AntChan說，大部分外賣員都是兼職形式，主要工作時段分為午市和晚市，每個時段可賺100至500元不等，近日因應第三波疫情，他估計落單量大增約三成，外賣員每個時段都可賺到高峰約數百元，一日共可賺約千元。他希望未來一段時間，可增加人手能夠應付急增的外賣需求，平台亦正與另外3至4間黃店洽談加盟。
+
+因應政府禁堂食，AntChan預計未來這兩個星期，會投放更多時間在行政工作，並要留意外賣員的情況，以免他們太忙和太辛苦。雖然平台現階段回報不多，但團隊希望能夠長遠發展，他們正設計自動化的落單程式，亦計劃將外賣服務擴展至旺角區，冀更多同路人願意支持，找到外賣平台機遇。
+
+其中一位外賣員Billy是大專生，他與團隊成員早於年初的年宵活動相識，近月加入做外賣員，希望以另一種形式讓運動得以延續下去，現時除了外賣，他也會幫手部分接單分單工作。
+
+疫情期間，他試過有客人落單叫外賣，但有黃店工作太忙應接不暇，客人再叫第二間餐廳，那間店的食材又不足，同時無法應付，但客人卻跟Billy說：「唔緊要，你鍾意落咩單就咩單。」客人最後更給大額貼士予Billy，他很記得客人最後說：「唔緊要，最緊要幫到手足，你哋都要小心啲疫情。」
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/送外賣-第三波疫情爆發-20200729001940_8963_large.jpg" alt="">
+<figcaption>「我係外賣仔」平台負責人AntChan（右）和外賣員Billy（左），他們兩人相識於年初，現時合作搞黃店外賣平台。周滿鏗攝</figcaption>
+</figure>
+
+「我係外賣仔」團隊亦會特別優先送外賣到聯合醫院，並提供減運費優惠。Billy說，送外賣不時會得到醫護人員給予鼓勵說：「我哋做唔到啲咩，只希望幫到手足。」他聽罷很感動，而同路人窩心的問候和鼓勵，是他繼續做下去的原因。「最主要幫到呢個圈子，係初衷，一開頭係諗到點幫到手足和黃店，我哋都係中間人的角色。」
+
+AntChan補充說：「有時客人等超過一小時好肚餓，我都明。」、「但其實佢哋都好好，好有耐性，都會話『唔緊要，下次都會支持』。」他明白平台仍有不少改善空間，人手和落單程式亦須加強，「仲有時間、仲有條命，咁咪做下囉。」
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/第三波疫情爆發-送外賣-20200729002002_1840_large.jpg" alt="">
+<figcaption>「哥哥，你叫咩名啊？」、「你都要小心啲。」客人迎接Billy的外賣時，有這樣的一些對話。相對傳統外賣，黃店外賣平台更顯人情味。周滿鏗攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220126000204im_/https://www.hkcnews.com/news_新聞/hk-discuss/2020/07/送外賣-第三波疫情爆發-20200729003420_ef4a_large.jpg" alt="">
+<figcaption>政府今天起全日禁堂食，有網民整合了各區黃店外賣平台。網上圖片</figcaption>
+</figure>

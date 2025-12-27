@@ -1,0 +1,64 @@
+---
+title: "曾助中國制定稅法　美國法學教授孔傑榮：習須對壓制政策負全責"
+date: "2018-12-28"
+last_updated: "2018-12-28 16:02:05"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "習近平"
+  - "xi jinping"
+  - "美國之音"
+  - "孔傑榮"
+url: "https://web.archive.org/web/20220808153717/https://www.hkcnews.com/article/17444/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/17444/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-17452/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 曾助中國制定稅法　美國法學教授孔傑榮：習須對壓制政策負全責
+
+<figure>
+<img src="https://web.archive.org/web/20220808153717im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/中美關係-孔傑榮-習近平-20181228075533_2726_large.png" alt="">
+<figcaption>孔傑榮接受訪問，談到中美關係及中國現況。資料圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220808153717im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/孔傑榮-周恩來-中美關係-20181228075512_1ef6_large.png" alt="">
+<figcaption>孔傑榮（左）早於1972年已經訪問中國，並會見周恩來。網上圖片</figcaption>
+</figure>
+
+他1972年首次訪問中國，見過周恩來；改革開放初期，他協助中國制定稅法；他是馬英九在哈佛大學法學院時的老師。見證中美關係半個多世紀發展的美國著名中國法律專家 [孔傑榮](https://web.archive.org/web/20220808153717/http://www.jeromecohen.net/) （Jerome Cohen）接受《美國之音》訪問時說，40年後的今天，兩國關係進入了極困難時期。一方面，美國首次出現了對華政策充滿不確定性的特朗普政府，另一方面，更糟糕的是中國領導人習近平對內對外政策出現大倒退。他說，這種致命組合導致了兩國關係「非常不確定和悲觀的前景」。
+
+孔傑榮對《美國之音》說，習近平是「今天中國的大老闆」，必須對中共令人震驚的壓制政策負全責。習近平的倒行逆施，使他成為毛澤東所說的「反面教員」，習的作用是促使中國的改變來得更快。
+
+他目睹中國從文化大革命到改革開放、再到今天習近平專制的歷史變遷。他說，雖然他可能不能活着看到習近平專制結束的那天，但如同文革時他就確信「毛主席不會永遠活下去」、中國的變革一定會發生一樣，今天，他「對習近平也有同樣感受」。
+
+孔傑榮說：「1968年文化大革命最糟糕的時候，我發表了一本關於刑事司法的書。我說，毛主席不會永遠活下去，可怕的文革壓迫不會持久，中國人民不會容忍，會有改變，會有改革。我今天對習近平也有同樣的感受。」
+
+<figure>
+<img src="https://web.archive.org/web/20220808153717im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/孔傑榮-中美關係-20181228080351_33ac_large.png" alt="">
+<figcaption>孔傑榮曾經多次訪問中國。網上圖片</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20220808153717im_/https://www.hkcnews.com/news_新聞/hk-discuss/2018/12/周恩來-孔傑榮-中美關係-20181228075453_30af_large.png" alt="">
+<figcaption>孔傑榮（右）1972年首度訪華，會見中國總理周恩來（左）。網上圖片</figcaption>
+</figure>
+
+現年88歲的孔傑榮是紐約大學法學院教授，曾任哈佛大學法學院副院長，也是最早幫助中國建立與國際接軌的美國法學專家之一。孔傑榮表示：「1979、80、81年，我太太和我住在那裏。我教書，她發表演講，採訪藝術家。我做法制方面的事情，訓練中國的經濟官員，教他們國際商務法。」為了幫助剛打開國門的中國獲得外國投資，孔傑榮在中國的法律領域做了關鍵性工作——建立合乎國際規範的稅法。
+
+「中國當時沒有這樣的稅法，我幫助他們制定了這些稅法，使許多美國石油公司和個人能繳納中國稅。當時中國需要外匯，一切都為賺取更多外匯。通過確保美國財政部批准中國的稅收立法，我們幫助促進了外國人在中國的投資。所以80年代是非常令人興奮的時期。」他說。
+
+孔傑榮表示，沒人認為中國會成為一個民主國家，但認為中國會成為更有秩序的國家，會更尊重法治和人權。但40年後，美中關係走到今天這般被他稱之為「極為困難」的境地，一方面如他所說，因為美國出現了像特朗普這樣對中國「懷有敵意」、首次「沒有明確對華政策的美國政府」，但另一方面，因為習近平的對內對外政策。
+
+孔傑榮認為，「沒有什麼比習近平處理美國和國際政策更糟糕的了。所以這樣的組合是致命的，導致了非常不確定和悲觀的前景」。更糟糕的是，孔傑榮說，習近平上台5年來，他的對內政策已經倒退到了令人震驚的地步。
+
+「習近平相信用法律統治，他是個獨裁者，他希望一切按照他的命令和規則行事，他希望用法律作為控制人的武器進行政府運作，但他不允許自由存在，他不允許辯護律師參與刑事案件，他不允許人權活動人士參與，當然，他正在採取高壓措施鎮壓新疆和西藏人民，他有效壓制了西藏，對新疆還沒做到。對維吾爾和哈薩克回教徒的虐待，把百萬人中多數人不經刑事程序就監禁起來是個國際性醜聞。」孔傑榮說。
+
+孔傑榮曾公開呼籲對習近平實施《全球馬格尼茨基法案》的可能展開討論，他說：「今天中國有個大老闆。我們知道最終誰該負責。習近平難脫其責。我們必須引起他注意，我們必須向世界展示，誰該對這可怕的鎮壓負全責。我認為會引起人們注意的方式是，說出來你要追究他，他對你所反對的鎮壓負有責任。」
+
+孔傑榮表示，他贊同「中共權力壟斷不結束，中國永遠不會有真正法治」的看法，但他同時認為，這並不意味什麼也不做，他確信，改變一定會在中國發生，「習近平這段時期的極端壓制，並不意味未來總是這樣。我可能活不到那一天，但變化會到來。毛主席曾經說，永遠不要低估反面教員的作用。今天習近平給許多許多中國受過高等教育的好人一個關於什麼是壞政府的教育。儘管廣大人民一般來說對他反腐還是高興的。我們會做好準備、改善現狀，這一天的到來也許比人們想像的更快。所以我仍有40年前開始時的樂觀」。
+
+孔傑榮說，他見證了整整40年的兩國關係發展，「現在我們不得不面對一個新時代。我們不知道會發生什麼。但我希望中國會在許多問題上能跟我們順利達成協議，我們最終會制定一項我們能接受、非不確定的、非天天改變的對華政策」。
+
+孔傑榮是美國著名的中國法律專家，1964年，他開始擔任哈佛大學法學院教授，創立哈佛的東亞法律研究會。這段期間，他主張美國與中國實現關係正常化。1972年，孔傑榮以美國科學家聯盟訪問團團員的身份訪問中國，會見中國總理周恩來。1977年，他陪同參議員愛德華甘迺迪到北京並會見鄧小平。
+
+孔傑榮在台灣亦為人熟悉，前總統馬英九在哈佛大學時是他的學生，馬的妻子周美青曾是他的人權事務研究助理。1985年，孔傑榮在台灣政治犯呂秀蓮被釋放事件發揮關鍵作用——呂在哈佛大學時也是他的學生，後來成為台灣副總統。

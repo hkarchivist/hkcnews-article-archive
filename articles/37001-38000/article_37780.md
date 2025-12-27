@@ -1,0 +1,60 @@
+---
+title: "大頭BB護膚霜再現　嬰兒全身腫脹發育遲緩　添加類固醇牟暴利禁不絕"
+date: "2021-02-02"
+author: "眾新聞中國組"
+category: "眾聞"
+tags:
+  - "類固醇"
+  - "大頭嬰兒"
+  - "眾新聞中國組"
+url: "https://web.archive.org/web/20210712054407/https://www.hkcnews.com/article/37780/%E7%9C%BE%E6%96%B0%E8%81%9E%E4%B8%AD%E5%9C%8B%E7%B5%84-%E5%A4%A7%E9%A0%AD%E5%AC%B0%E5%85%92-%E9%A1%9E%E5%9B%BA%E9%86%87-37780/%E5%A4%A7%E9%A0%ADbb%E8%AD%B7%E8%86%9A%E9%9C%9C%E5%86%8D%E7%8F%BE-%E5%AC%B0%E5%85%92%E5%85%A8%E8%BA%AB%E8%85%AB%E8%84%B9%E7%99%BC%E8%82%B2%E9%81%B2%E7%B7%A9-%E6%B7%BB%E5%8A%A0%E9%A1%9E%E5%9B%BA%E9%86%87%E7%89%9F%E6%9A%B4%E5%88%A9%E7%A6%81%E4%B8%8D%E7%B5%95"
+original_url: "https://www.hkcnews.com/article/37780/%E7%9C%BE%E6%96%B0%E8%81%9E%E4%B8%AD%E5%9C%8B%E7%B5%84-%E5%A4%A7%E9%A0%AD%E5%AC%B0%E5%85%92-%E9%A1%9E%E5%9B%BA%E9%86%87-37780/%E5%A4%A7%E9%A0%ADbb%E8%AD%B7%E8%86%9A%E9%9C%9C%E5%86%8D%E7%8F%BE-%E5%AC%B0%E5%85%92%E5%85%A8%E8%BA%AB%E8%85%AB%E8%84%B9%E7%99%BC%E8%82%B2%E9%81%B2%E7%B7%A9-%E6%B7%BB%E5%8A%A0%E9%A1%9E%E5%9B%BA%E9%86%87%E7%89%9F%E6%9A%B4%E5%88%A9%E7%A6%81%E4%B8%8D%E7%B5%95"
+---
+
+# 大頭BB護膚霜再現　嬰兒全身腫脹發育遲緩　添加類固醇牟暴利禁不絕
+
+
+{{< video src="https://web.archive.org/web/20210712054407if_/https://www.youtube.com/embed/Ez_dY1q6gyM" >}}
+
+
+繼上個月福建有嬰兒護膚霜被驗出含有類固醇，導致嬰兒過敏頭部及四肢腫脹後，近日再有聲稱天然的嬰兒霜被驗出含類固醇。
+
+<figure>
+<img src="https://web.archive.org/web/20210712054407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/大頭嬰兒-20210202155501_17ea_large.jpg" alt="">
+<figcaption>女嬰使用含類固醇的護膚膏三個月後臉部腫脹。江西電視台</figcaption>
+</figure>
+
+有安徽的家長因女兒皮膚敏感，被母嬰店的員工推薦她使用名為「好樂嬰茶花膏」的護膚霜，三個月內用了十多支後發現女兒臉部腫脹，越來越胖，頭上和兩頰都長出汗毛。亦有家長指，嬰兒使用「七草緣」和「雲南七草」的嬰兒抑菌霜後，頭部發脹，體重增加3公斤，臉部長出白色顆粒而且發育遲緩，經醫院診斷患上內分泌病庫興氏綜合症。
+
+「七草緣」和「雲南七草」嬰兒護膚霜其後被驗出含有抗炎皮質類固醇，達每公斤267毫克，含量比早前出事的「益芙靈」抑菌霜多九倍，即嬰兒用完一支已差不多是成年人一周的上限。   
+   
+ 這款七草抑菌霜在淘寶上仍然有售，售價20到30多元不等，產品強調無添加，而且成分全部天然，聲稱可治療嬰兒敏感和濕疹。產品由江西宜春一間公司生產，當地市衛健委正調查事件。
+
+<figure>
+<img src="https://web.archive.org/web/20210712054407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/大頭嬰兒-20210202155445_b314_large.jpg" alt="">
+<figcaption>被驗出含類固醇的護膚膏在淘寶仍然有售，每月出售逾百件。網站截圖</figcaption>
+</figure>
+
+今次已是內地一個月內第二次發現有嬰兒抑菌霜被驗出含類固醇，之前涉事的益芙靈抑菌霜已被回收，企業負責人因為涉生產和銷售偽劣產品被公安調查。
+
+<figure>
+<img src="https://web.archive.org/web/20210712054407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/大頭嬰兒-20210202155426_1a0a_large.jpg" alt="">
+<figcaption>益蓉靈抑菌霜上月被揭發含類固醇，公司負責人事後被公安調查。網上圖片</figcaption>
+</figure>
+
+其實幾年前已經有媒體踢爆內地的嬰兒護膚霜含類固醇的問題，問題禁止不絕跟背後的暴利有關。無良商家將普通護膚膏和類固醇混合，製成這些所謂天然的嬰兒用抑菌護膚霜，成本僅是幾元，但售價卻達到幾十到幾百元，而且因為類固醇含量高，效用顯著所以長做長有。
+
+<figure>
+<img src="https://web.archive.org/web/20210712054407im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/02/大頭嬰兒-20210202155518_28de_large.jpg" alt="">
+<figcaption>有問題的產品多數使用「消」字號的消毒產品批文，避過藥物監管。網上截圖</figcaption>
+</figure>
+
+這些含類固醇的產品繞過當局藥品監管的秘訣，就是會以消毒用品的「消」字號或者化妝品的「妝」字號批文出售，這些批文經過中介大約一萬到兩萬就有交易。雖然當局規定消毒產品嚴禁使用激素等成分，但這些產品包裝上都聲稱使用天然材料，成分是否含類固醇則要化驗才知道。網上有不少呼聲要求當局加強規管，杜絕同類事件再次發生。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210712054407/https://www.hkcnews.com/aboutus/#subscribe)

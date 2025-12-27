@@ -1,0 +1,80 @@
+---
+title: "【黃店撐蘋果、讀者撐黃店】食店免費派《蘋果》　市民排隊支持「要令撐蘋果黃店賺錢」"
+date: "2021-06-18"
+last_updated: "2021-06-18 21:20:03"
+author: "實習記者丁心怡"
+category: "眾聞"
+tags:
+  - "蘋果日報"
+  - "appledaily"
+  - "appledaily hk"
+  - "苹果日报"
+  - "蘋果新聞"
+  - "蘋果日報香港"
+  - "黃色經濟圈"
+  - "撐蘋果"
+url: "https://web.archive.org/web/20210726161008/https://www.hkcnews.com/article/42532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/42532/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-42544/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 【黃店撐蘋果、讀者撐黃店】食店免費派《蘋果》　市民排隊支持「要令撐蘋果黃店賺錢」
+
+國安處昨日（17日）拘捕壹傳媒五名高層，到《蘋果日報》大樓調查逾五小時，檢走大批新聞工作者的材料。《蘋果日報》頂著壓力今日（18日）發行50萬份，下午多個銷售點已告售罄，有「黃店」特意買下多份《蘋果日報》免費派發，有店主認為購買報紙送人是個人自由，不少撐蘋果讀者聞訊後專門到店幫襯支持。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/蘋果公司-蘋果日報-20210618195307_2f86_large.jpg" alt="">
+<figcaption>店外放有一堆《蘋果日報》，並黏上紙條表明是「一份心意」。丁心怡攝</figcaption>
+</figure>
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/黃店-20210618195409_1c39_large.jpg" alt="">
+<figcaption>店內也擺有《蘋果日報》供食客免費拿取。丁心怡攝</figcaption>
+</figure>
+
+中午11時半，旺角一家黃店食肆剛開張，門外早已大排長龍，不少顧客表示專門來幫襯支持。門外的貨架除了擺了各式各樣的台灣手信，還有一堆《蘋果日報》，旁邊貼上紙條提醒市民可以免費索取。
+
+食肆老闆娘Polly昨晚凌晨特地到報攤購入約100份《蘋果》，今日在兩間分店免費派發，希望藉此支持壹傳媒，也派給買不到報紙的朋友及顧客。從台灣來港逾10年的Polly稱自己是蘋果的忠實讀者，因初來到港時就是靠讀蘋果慢慢了解這地方。Polly對它有很深的感情，上年8月第一次搜查後，她即刻在蘋果落廣告以「撐蘋果」。看到新聞後，她心急地問相熟的蘋果記者是否需要幫，是否需要食物支援等。Polly認為這些事情都是她應做的「我希望用自己的力量讓同路人成功。」
+
+### 食肆店東：買多點送人是我的自由
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/黃店-20210618195316_2908_large.jpg" alt="">
+<figcaption>食肆老闆娘希望能以台灣人的身分令港人知道台灣的支援。丁心怡攝</figcaption>
+</figure>
+
+高調支持蘋果，Polly笑言完全不擔心會帶來後果，因早期的黃店標籤已令店鋪屢受陌生人滋擾，貼在門外的海報經常無故被人撕毀。她認為支持蘋果只是平常事，「我是它的讀者，買多點送人是我的自由。」她亦希望以台灣人的身分撐蘋果，令香港人知道台灣人的關心和支持。
+
+任職傳媒工作的食客吳小姐今日放假，她知道旺角黃店派《蘋果》後認為應支持良心店，專門來幫襯，並在店內拿了一份報紙。談及昨日蘋果事件，她不禁眼泛淚光，沈默了一會後感嘆道︰「真相被掩蓋，香港逐步變成唔係香港。」
+
+22歲的學生Roy今早雖已在報攤買了《蘋果》，但在社交平台得悉該店免費派報後，也來吃個午飯以行動支持該店。他對昨日《蘋果》遭搜捕一事，感到離譜︰「一個媒體洗唔洗成班警員圍住，仲攞埋電腦，好過分！」
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/黃店-20210618195330_1c58_large.jpg" alt="">
+<figcaption>22歲的學生Roy也特意來支持黃店。丁心怡攝</figcaption>
+</figure>
+
+### 排隊食客︰要令撐蘋果黃店賺錢
+
+灣仔另一黃店亦有免費派發《蘋果日報》，有心人將數十份報紙放在該店，中午12時門外擠滿了近20人在排隊入座，店員萍姐指今日多了不少新客專門來幫襯。下午2時午飯時間完畢，數十份報紙已全被拿走。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/黃店-20210618195438_c802_large.jpg" alt="">
+<figcaption>下午2時午飯時間完畢，數十份報紙已全被拿走。丁心怡攝</figcaption>
+</figure>
+
+身穿黑衣的鍾小姐自言是《蘋果日報》26年的忠實讀者，每日都會買報紙，今日也不例外。她認為蘋果的新聞多元化，亦讓社會不只有一種聲音。從社交媒體得知該店提供餐飲優惠給壹傳媒員工，今日特意約友人同來支持。「既然佢付出，免費請（蘋果）員工食，我要令佢哋賺錢，感覺上間接贊助蘋果。」她認為在這個時代，只能不斷堅持自己的理念，支持同路人幫襯黃店。
+
+她的友人高先生今日則穿著一件寫有「真相，自由，生命——抗爭」的黑T到店消費兼表態。他強調這件衣服購於六四集會，因此更能代表他的心底話。「你要打壓蘋果嘅，我哋就要支持同路人。」高先生看了蘋果16年，他覺得蘋果能緊貼時事，但現時環境越來越嚴峻，身為讀者無可奈何，只能好好珍惜蘋果剩餘的時光。
+
+<figure>
+<img src="https://web.archive.org/web/20210726161008im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/06/黃店-20210618195354_1269_large.jpg" alt="">
+<figcaption>左邊為鍾小姐，高先生表示特意穿這件黑色短袖來表態。丁心怡攝</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20210726161008/https://www.hkcnews.com/aboutus/#subscribe)

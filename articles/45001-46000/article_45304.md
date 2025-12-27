@@ -1,0 +1,45 @@
+---
+title: "鄧炳強去信支聯會　擬剔除其公司註冊"
+date: "2021-09-10"
+last_updated: "2021-09-10 21:03:41"
+author: "眾新聞記者"
+category: "眾聞"
+tags:
+  - "公司註冊處"
+  - "支聯會"
+  - "鄧炳強"
+url: "https://web.archive.org/web/20211026011934/https://www.hkcnews.com/article/45304/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/45304/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-45316/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 鄧炳強去信支聯會　擬剔除其公司註冊
+
+被控「煽動顛覆國家政權罪」的支聯會，所有常委現已身陷囹圄，該會原定月底召開特別會員大會表決存亡，惟今日再添變數。保安局局長鄧炳強已經向支聯會董事發信，指建議行政長官會同行政會議剔除支聯會的公司註冊，並指禁止其運作是「維護國家安全、公共安全或公共秩序所需要的」，支聯會可在9月24日或之前提出書面解釋，即召開會員大會之前一日。保安局至晚上再就事件回應眾新聞查詢指，不能提供進一步細節，又稱會繼續處理涉嫌危害國家安全的組織。
+
+<figure>
+<img src="https://web.archive.org/web/20211026011934im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/支聯會-20210910185722_9978_large.jpg" alt="">
+<figcaption>支聯會今日收到保安局局長信件</figcaption>
+</figure>
+
+根據支聯會收到的信件，鄧炳強建議引用《公司(清盤及雜項條文)條例》，該條例指行政長官會同行政會議有權命令將「從事不良活動的公司」剔除。雖然支聯會未有註冊為社團，但鄧炳強在信中指，考慮了警務處處長蕭澤頤的建議和資料，認為假若支聯會是註冊社團，禁止其運作是維護國家安全、公共安全或公共秩序所需。
+
+如行政長官會同行政會議信納保安局局長的建議，即可命令公司註冊處處長剔除支聯會的公司註冊。鄧炳強在信中引述《條例》指，當憲報刊登有關公告時，支聯會會即告解散，但公司每名董事、高級人員及成員的法律責任仍然持續並可強制執行，「猶如該公司未曾解散一樣」。
+
+信件又指，支聯會董事最遲可於9月24日下午5時提交書面解釋，鄧炳強收到後，會提交行政長官會同行政會議考慮。如他在限期前未收到申述，就會按現有資料作出建議。保安局晚上書面回應《眾新聞》表示，局方的行動與維護國家安全的執法工作相關，個案最終會交由行政長官會同行政會議考慮，現時不能提供進一步細節。保安局又稱，會繼續積極處理涉嫌危害國家安全的組織及調查其他相關組織。
+
+不過，支聯會早前已定於限期翌日（25日）召開特別會員大會，表決解散議案。支聯會僅餘的7名常委已全部身陷囹圄，無法主持會員大會。現時仍是支聯會會員的前秘書蔡耀昌表示，由於常委早前已就會議時間、地點發出有效通知，即使沒有常委出席及主持會議，照道理仍可召開會員大會。他稱只要達到20人的出席法定人數，就可從出席者中選出主持，繼續表決議案。大會原定於六四紀念館舉行，惟該館現時被警方封鎖，蔡耀昌稱要交由支聯會決定是否需要更改會議場地。
+
+蔡耀昌又指，近日事態發展太突然，自己仍需時消化，亦難以估計其他會員對支聯會應否解散的取向。《眾新聞》亦曾接觸其他會員查詢意向，暫未獲回覆。
+
+<figure>
+<img src="https://web.archive.org/web/20211026011934im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/09/煽動顛覆國家政權罪-支聯會-20210910184557_1285_large.jpg" alt="">
+<figcaption>眾新聞製圖</figcaption>
+</figure>
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026011934/https://www.hkcnews.com/aboutus/#subscribe)

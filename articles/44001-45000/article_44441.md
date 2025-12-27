@@ -1,0 +1,124 @@
+---
+title: "阿富汗一夜變天　台灣小心前車之鑑？　學者︰美收縮力量增援亞太對抗中國"
+date: "2021-08-16"
+last_updated: "2021-08-19 00:42:02"
+author: "台灣特派員鄭智仁"
+category: "眾聞"
+tags:
+  - "阿富汗"
+  - "afghanistan"
+  - "一帶一路"
+  - "Belt and Road"
+  - "中國外交部"
+  - "印太地區"
+url: "https://web.archive.org/web/20211026031319/https://www.hkcnews.com/article/44441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44549/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+original_url: "https://www.hkcnews.com/article/44441/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-44549/%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD-%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD%EF%BF%BD"
+---
+
+# 阿富汗一夜變天　台灣小心前車之鑑？　學者︰美收縮力量增援亞太對抗中國
+
+阿富汗民兵組織塔利班（The Taliban，又稱「神學士」）閃電攻佔首都喀布爾，總統甘尼（Ashraf Ghani）宣布辭職並離境；塔利班今（16日）對半島電視台稱，阿富汗之戰已結束，將儘速公布新政府組成形式。針對中國及學者解讀，美國「背叛」阿富汗，提醒台灣注意「前車之鑑」；對此，美國及台灣學者則認為，美國軍力撤出中東地區，有助增援印太地區，加強和中國對抗的力量。
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/阿富汗-美國-塔利班-20210816151812_254e_large.jpg" alt="">
+<figcaption>塔利班15日已攻占阿富汗總統府。阿富汗總統甘尼則已逃離至國外。美聯社</figcaption>
+</figure>
+
+塔利班攻佔北方各大省後，外界原本預估一個月至90天才能挺進喀布爾，不料，15日已閃電攻下喀布爾，重奪20年前遭美軍推翻的政權。2001年10月7日，美國以要求阿富汗交出911恐怖攻擊事件主謀、基地組織精神領袖賓拉登（Osama bin Laden）為由，聯合北約盟國攻入阿富汗至今。
+
+阿富汗總統甘尼2日原本還稱將堅守崗位， [但15日當天卻已在臉書發帖宣稱](https://web.archive.org/web/20211026031319/https://www.facebook.com/ashrafghani.af/posts/10158951684383292) ，為了避免在6百萬人的首都發生流血事件，釀成重大人道災難，因此，他做出艱難決定，最好的方式就是離開。甘尼並未透露其落腳處，但根據半島電視台（Al Jazeera）引述他的私人保鑣稱，甘尼一行人已抵達鄰國烏茲別克首都塔什干（Tashkent）。
+
+塔利班政治辦公室發言人穆罕默德，納伊姆（Mohammad Naeem）今對半島電視台說，很快就會釐清新政府組成形式，並尋求國際和平關係，「感謝真主，這個國家的戰爭已經結束。」他也說，已達到追求國家自由與人民獨立的目的，「我們絕不容許任何人利用我們的土地來鎖定任何人，我們也不會傷害他人。」他並稱，所有在喀布爾的外國使館、外國企業及外國公民居所，不會發生危險，塔利班部會將承擔喀布爾和阿富汗所有城市安全保障任務。
+
+台灣政府目前並未在阿富汗設立代表處或經濟文化辦事處，但在塔利班、美國與中國相互牽制的國際局勢中，台灣該如何自處？又該如何看待中國與塔利班的友好關係發展，在台灣也激起不少討論。
+
+### 趙少康︰台灣前途交美手上　愚笨又不負責任
+
+首先，《紐約時報》（New York Times）在13日引述法國國防分析師海斯柏格（François Heisbourg）指出，阿富汗的情勢會讓「不能依賴美國的想法變得更根深蒂固」，從歐巴馬到川普，美國都在從全球撤軍，「我們必須做好準備，美國不再無限承擔忠誠盟邦的負擔」；這種對國際局勢的猶豫，包括台灣、烏克蘭、菲律賓及印尼在內的國家感受最為強烈。
+
+台灣中國廣播公司董事長、也是媒體名嘴的 [趙少康則以「小心，阿富汗是台灣的前車之鑑」發帖稱](https://web.archive.org/web/20211026031319/https://www.facebook.com/skjawtime/posts/4134430739943295) ，民進黨灌輸台灣人「中共不會打台灣」、「打了美國會來救」的一廂情願想法，把台灣的前途和台灣人的生命完全交到中國及美國手上，既愚笨又不負責任。
+
+趙少康說，老共不可測，老美不可靠，要靠還是要靠自己，兩岸之間應該是「要和不要戰」，如果要戰就要好好準備，問題是台灣做好戰爭的準備了嗎？台灣如果不想成為第二個阿富汗，就要在「和」「戰」之間想清楚，要和還是要戰？和要怎麼和？戰要如何戰？像現在一樣，緊抱美國大腿就以為天下太平，混一天拖一天就以為永遠沒事，國無近慮，必有遠憂，上下交征騙，不知險之將至。
+
+台灣大學政治系兼任教授 [楊永明也在臉書重提他7月1日即提出的論點](https://web.archive.org/web/20211026031319/https://www.facebook.com/permalink.php?story_fbid=132617332377256&id=100068869683141) ，即「美國放棄阿富汗，何時會放棄台灣？」的疑問；他說，美國整體國力不如以往，雖然仍有最強大軍事力量，但是在國家安全戰略、政治人物決策、及社會輿論民意上，美國不願意再替任何國家出兵打長久或大規模戰爭，更遑論與核武國家如中國大陸進行戰爭，「我們還看不懂嗎？」
+
+事實上，不只趙少康與楊永明質疑，美國共和黨議員錢尼（Liz Cheney）在接受美國國家廣播公司（ABC）訪談時提到，「這不只造成阿富汗的分裂，如今美國的敵人會知道，他們可以威脅我們，而我們的盟友則會質疑，是否能信任我們」。
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/塔利班-afghanistan-美國-20210816151856_27bd_large.jpg" alt="">
+<figcaption>學者認為，美國將軍力撤出中東，顯示美國願意將重心轉移到亞太地區。美聯社</figcaption>
+</figure>
+
+不過，美國「背叛」阿富汗，也有一派說法點出背後原因；根據法新社引述美國智庫「新美國安全中心」（CNAS）執行長方登（Richard Fontaine）說法指出，如果認為阿富汗的發展，會讓中國變得大膽妄為，例如對台灣採取行動，「這麼想就太簡單了」。他認為，中國反而會看到，美國是嚴肅想要把重心轉移到亞太地區，願意為此付出多麼大代價。
+
+不過，方登也憂心，認為美國現在將阿富汗讓手給從未與基地組織切斷關係的塔利班，恐怖主義的威脅將會升高，「若真如此，將會導致美國分心，無法專注對抗中國構成的更大戰略挑戰」。
+
+### 侍建宇︰美收中東軍力資源投入亞太對台非壞事
+
+針對阿富汗情勢發展，台灣中亞學會秘書長侍建宇接受眾新聞訪問時也表示，阿富汗情勢與台灣雖無直接關係，但從戰力部署的角度來看，美國自中東撤回的軍力資源，將有機會投入印太地區，也就是鞏固對抗中國陣線的戰略，對台灣來說，不見得是一件壞事。
+
+針對美國國務卿布林肯呼籲阿富汗政府應自立自強，侍建宇認為，這當然會讓美國在民主盟邦的名聲變得不好，但台灣不像阿富汗，原本就應保持自主想法，思考如何在大國對抗的格局外，借力使力，「不與大國對抗，又能游刃有餘」；不過，他也認為，目前國際局勢發展，也由不得台灣不參與。
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/王毅-阿富汗-塔利班-20210816151731_2987_large.jpg" alt="">
+<figcaption>中國外交部長王毅就與塔利班政治委員會負責人巴拉達爾（Mullah Abdul Ghani Baradar）安排正式會面。中國外交部提供</figcaption>
+</figure>
+
+至於阿富汗變局中，除了美國撤軍造成的影響外，另一備受關注的，就是中國與塔利班交好的發展；早在上月28日，中國外交部長王毅就與塔利班政治委員會負責人巴拉達爾（Mullah Abdul Ghani Baradar）安排正式會面。巴拉達爾被視為塔利班的第二號人物。
+
+會談中，王毅將塔利班稱作阿富汗「舉足輕重的軍事和政治力量」，並稱其有望在阿富汗的和平、和解和重建進程中發揮重要作用。巴拉達爾則承諾，塔利班決不允許任何勢力利用阿富汗領土做危害中國的事情。
+
+但更令人玩味的是，美國國務卿布林肯（Antony Blinken）隨即表示，中國能參與阿富汗事務可能是「一件積極的事情」。
+
+為何美國此時會站在看似「鼓勵」中國與阿富汗交好的立場呢？在過去1百多年以來，阿富汗先後成為大英帝國、前蘇聯及美國的「帝國墳墓」，中國是否能逃離此一宿命的詛咒呢？
+
+對美國而言，過去20年來，阿富汗戰爭已成為美國打得最久的一場戰爭，原本拜登宣布在今年9月11日前撤軍，後來提前到8月31日；這也讓塔利班展開從鄉村包圍城市行動，短短不到三個月，就攻占阿富汗各大主要城市；外界原本預估，塔利班預計在90天內攻下喀布爾，也就是在冬季之前完成；沒想到，15日已攻下總統府，原本甘尼還宣稱「阿富汗的國防部隊完全有能力保衛自己的人民和國家」，沒想到最後幾乎不戰而降。
+
+### 北京參與阿富汗事務或陷入另一爛攤子
+
+侍建宇說，中國與塔利班的關係發展，應是建立在「北京外援」的承諾上，也就是北京承諾在阿富汗投入資源，幫助阿富汗發展；但這種以利益為導向的外交關係，卻可能讓中國陷入另一個爛攤子，最終變成中國難以擺脫的負擔。
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/afghanistan-美利堅合眾國-塔利班-20210816151913_2a00_large.jpg" alt="">
+<figcaption>阿富汗民眾在街頭販售塔利班旗幟。美聯社</figcaption>
+</figure>
+
+阿富汗北方聯盟在美國支持下，與塔利班對抗，此次塔利班先揮軍北上，部分派系卻提前倒戈轉向塔利班，快速壯大塔利班聲勢，侍建宇認為，北方聯盟是多國、種族與派系的組合，未來北京是否也能同樣收服這些派系，還很難講。
+
+從另外一個角度來看，塔利班閃電攻佔北部省會大城，看來可能已先達成某種協議，但「承諾能否實現」也是個問題，若派系將來無利可圖，是否可能導致雙方關係交惡？進一步影響與中國的關係，也是值得關注的重點。
+
+侍建宇舉例，中國的「一帶一路」政策，目的在於貫穿歐亞大陸，通往歐洲及中東地區，與塔吉克、土庫曼斯坦及哈薩克斯坦都有貸款及基礎建設合作關係，但隨著時間發展，這些基礎建設卻不見得立即可獲得經濟利益回收，最後導致無力清償貸款，「這些國家割地或出讓金礦、瓦斯等開採權案例以替代償還貸款，屢見不鮮」；而且，更加難掌握的，還有政府貪腐的問題，錢最終都進了政府高層的口袋。
+
+同樣的情況，未來是否可能發生在塔利班政府？侍建宇認為，若遇到不守信用的騙子，中國就算獲得「割地」賠償，取得的也可能是毫無經濟價值的土地；若中國不願繼續投資，維持雙方正向關係，則有可能變成中國隱憂，「目前也只能走一步算一步」，特別是阿富汗與中國接壤，到時得面臨與印度、阿富汗三方交戰的困窘局面。
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/塔利班-afghanistan-美國-20210816151930_1d2e_large.jpg" alt="">
+<figcaption>塔利班民兵組織在阿富汗西南部省會巡邏。美聯社</figcaption>
+</figure>
+
+被問及中國發展與塔利班關係，是否為了壓抑新疆獨立的武裝份子？侍建宇說，這些武裝份子散布在不同軍閥手下，人數應該沒有多到塔利班及各軍閥須配合全力清剿的地步，「若要配合中國要求進行清剿，中國就要付出足夠代價」，這也讓塔利班及各派系在這之間有了談判的籌碼。
+
+換句話說，維吾爾武裝份子即使身處伊斯蘭民兵組織中，也難脫「被利用」的問題，若要達到「疆獨」，現在縱使傾塔利班之力都辦不到，但卻可能因此讓中國與塔利班鬧翻；不過，若中國出兵阿富汗，也有可能步上英國、前蘇聯及美國後塵，踏入「帝國墳墓」，深陷泥沼而難以脫身。
+
+塔利班上台後，面臨百廢待舉的國內情況，包括最欠缺的金融業與製造業，而且，未來在外交關係上，塔利班是否會獲得美國及歐盟等民主國家認可，也有待觀察，在此情況下，中國發展與阿富汗的關係是兩面刃，不管在經濟或外交、軍事上，將來都可能受制於塔利班。
+
+台灣近年在中歐及東歐與多個國家發展良好關係，例如﹔立陶宛、捷克、波蘭等，被問及阿富汗有可能成為台灣另一波外交關係發展的重心嗎？侍建宇透露，其實早在90年代末期，台灣差點有機會在中亞建立代表處，可惜最終仍破局；他認為，台灣一直有人在經營與阿富汗的關係，台灣商人也不斷闖關，他認為還是有機會發展，特別是投資當地的民生工業，例如保暖衣，在嚴寒的阿富汗冬天，「至少不會虧錢」。
+
+至於中國官方立場，環球網評論指出，阿富汗的變局無疑是對美國的沉重打擊。它宣告了美國改造阿富汗的企圖徹底失敗；而且，美國不顧一切地撤出計畫，展現它對盟友承諾的不可靠。美國用20年時間打不垮幾乎沒有外援的塔利班，這次失敗比越戰的失敗，更清楚顯示美國的無力，的確很像一隻紙老虎，「如果橫著比，美國在阿富汗的失敗，比上世紀80年代蘇聯在那裏的失敗更加丟人。」
+
+<figure>
+<img src="https://web.archive.org/web/20211026031319im_/https://www.hkcnews.com/news_新聞/hk-discuss/2021/08/阿富汗-塔利班-美國-20210816151831_1c22_large.jpg" alt="">
+<figcaption>聯合國秘書長古特雷斯（António Guterres）擔心未來阿富汗婦女與女童的人權。美聯社</figcaption>
+</figure>
+
+由於塔利班嚴格教義影響，對於婦女人權可能遭受極大迫害，包括數以百萬的女性將失去接受教育的機會， [聯合國秘書長古特雷斯（António Guterres）](https://web.archive.org/web/20211026031319/https://news.un.org/en/story/2021/08/1097832) 15日發布新聞稿指出，成千上萬民眾逃離家園，在交戰地區仍持續傳出嚴重人權遭受迫害的報告；他特別關注婦女及女童的未來，得來不易的權力必須受保護，強調所有虐待行為必須停止，塔利班及各方應確保國際人道法則及人民的自由與人權都能獲得尊重與保障。
+
+根據美聯社截至今年4月的死亡人數統計，美國在阿富汗20年總共有2448名軍人死亡，北約其他組織成員1144人，阿富汗軍警6.6萬人，阿富汗平民47245人。塔利班及反對陣營士兵51191人，人道救援工作者444人，並有72名新聞工作者死亡。截至2020年為止的直接戰爭成本估計為2兆美元。
+
+
+---
+
+
+請加入成為眾新聞的月費訂戶，長期支持我們的工作。所有訂戶都可以收到我們的「每周時事」通訊 。
+
+月費訂戶 [網址：hkcnews.com/aboutus/#subscribe](/web/20211026031319/https://www.hkcnews.com/aboutus/#subscribe)
